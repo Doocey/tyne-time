@@ -1,0 +1,4 @@
+/category/* /categories/:splat 301
+/tag/* /tags/:splat 301
+/page/* / 301
+/author/* / 301
