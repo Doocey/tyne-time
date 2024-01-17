@@ -1,0 +1,53 @@
+---
+const { title, backgroundImage } = Astro.props;
+---
+
+<section id="hero" style={{ backgroundImage: `url('${backgroundImage}` }}>
+  <div id="hero-content">
+    <h1>{title}</h1>
+  </div>
+</section>
+
+<style>
+  #hero {
+    padding: 8rem 3rem;
+    display: flex;
+    justify-content: flex-start;
+    background-repeat: no-repeat;
+    background-size: cover;
+    background-position-y: 28%;
+    margin: 0 auto;
+  }
+
+  #hero-content {
+    opacity: 0.8;
+    max-width: 1300px;
+    margin: 0 auto;
+    width: 100%;
+  }
+
+  #hero-content h1 {
+    display: inline-block;
+    background: black;
+    width: auto;
+    color: white;
+    font-weight: normal;
+    padding: 1.5rem 2rem;
+    margin-bottom: 0;
+  }
+
+  @media (max-width: 720px) {
+    #hero {
+      padding: 5rem 2rem;
+    }
+    #hero-content h1 {
+      font-size: 1.5em;
+      padding: 1rem;
+    }
+  }
+  @media (min-width: 1000px) {
+    #hero-content h1 {
+      max-width: 65%;
+    }
+  }
+</style>

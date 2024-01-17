@@ -1,0 +1,95 @@
+---
+import { createExcerpt } from "../utils/excerpt";
+
+const { post } = Astro.props;
+---
+
+<style>
+  article {
+    display: grid;
+    grid-template-columns: 55% 1fr;
+    grid-gap: 20px;
+    place-items: center;
+    padding: 20px 30px;
+    margin: 20px 0;
+    border-radius: 10px;
+    box-shadow: 2px 2px 8px 0 rgba(0, 0, 0, 0.2);
+    font-size: 18px;
+  }
+
+  article a {
+    text-decoration: none;
+  }
+
+  article a:hover {
+    color: rgba(0, 0, 0, 0.7);
+    transition: 200ms;
+  }
+
+  button {
+    padding: 6px 10px;
+    background-color: transparent;
+    border: 1px solid gray;
+    font-size: 15px;
+    cursor: pointer;
+  }
+
+  button:hover {
+    background-color: gainsboro;
+    transition: 1s;
+  }
+
+  @media (max-width: 860px) {
+    article {
+      display: flex;
+      flex-direction: column;
+      font-size: 1rem;
+    }
+
+    article div {
+      order: 2;
+    }
+
+    article img {
+      order: 1;
+      width: 100%;
+    }
+  }
+</style>
+
+<article>
+  <div>
+    <a href={`${post.data.url}`}>
+      <h3>{post.data.title}</h3>
+    </a>
+
+    <p>{`${createExcerpt(post.body)} ...`}</p>
+
+    <a href={`${post.data.url}`}>
+      <button>Keep Reading &rarr;</button>
+    </a>
+  </div>
+
+  {
+    post.data.image ? (
+      <a href={`${post.data.url}`}>
+        <img
+          width={620}
+          height={360}
+          loading="lazy"
+          src={post.data.image}
+          alt={post.data.image_alt || post.data.title}
+        />
+      </a>
+    ) : (
+      <img
+        width={720}
+        height={360}
+        loading="lazy"
+        src={"/images/tyne-time-nufc-blog.svg"}
+        alt={post.data.image_alt || post.data.title}
+        style={{ filter: "blur(6px)" }}
+      />
+    )
+  }
+</article>
