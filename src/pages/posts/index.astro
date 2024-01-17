@@ -1,4 +1,7 @@
 ---
+import Head from "../../components/Head.astro";
+import Header from "../../components/Header.astro";
+import Footer from "../../components/Footer.astro";
 import { getCollection } from "astro:content";
 
 const posts = (await getCollection("posts")).sort(
@@ -9,6 +12,10 @@ const posts = (await getCollection("posts")).sort(
 <!doctype html>
 <html lang="en">
   <head>
+    <Head
+      title="Archive of every NUFC post since 2008"
+      description="An entire list of every entry on Tyne Time since its inception almost twenty years ago."
+    />
     <style>
       main {
         max-width: 960px;
@@ -26,6 +33,7 @@ const posts = (await getCollection("posts")).sort(
     </style>
   </head>
   <body>
+    <Header />
     <main>
       <section>
         <h1>Posts: ({posts.length})</h1>
@@ -40,5 +48,6 @@ const posts = (await getCollection("posts")).sort(
         </ul>
       </section>
     </main>
+    <Footer />
   </body>
 </html>
