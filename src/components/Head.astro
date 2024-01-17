@@ -1,0 +1,24 @@
+---
+// Import the global.css file here so that it is included on
+// all pages through the use of the <BaseHead /> component.
+import "../styles/global.css";
+import "@fontsource/pt-serif";
+import "@fontsource/pt-serif/700.css";
+
+const canonicalURL = new URL(Astro.url.pathname, Astro.site);
+
+const { title } = Astro.props;
+---
+
+<!-- Global Metadata -->
+<meta charset="utf-8" />
+<meta name="viewport" content="width=device-width,initial-scale=1" />
+<link rel="icon" type="image/svg+xml" href="/favicon.ico" />
+
+<!-- Canonical URL -->
+<link rel="canonical" href={canonicalURL} />
+
+<!-- Primary Meta Tags -->
+<title>{title} &mdash; Tyne Time</title>
+<meta name="title" content={`${title} &mdash; Tyne Time`} />
+<meta name="robots" content="noindex" />

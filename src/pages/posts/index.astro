@@ -1,0 +1,44 @@
+---
+import { getCollection } from "astro:content";
+
+const posts = (await getCollection("posts")).sort(
+  (a, b) => Date.parse(b.data.date) - Date.parse(a.data.date),
+);
+---
+
+<!doctype html>
+<html lang="en">
+  <head>
+    <style>
+      main {
+        max-width: 960px;
+      }
+      ul {
+        list-style-type: none;
+        padding: 0;
+      }
+      ul li {
+        transition: 0.2s ease;
+      }
+      ul li a {
+        text-decoration: none;
+      }
+    </style>
+  </head>
+  <body>
+    <main>
+      <section>
+        <h1>Posts: ({posts.length})</h1>
+        <ul>
+          {
+            posts.map((post) => (
+              <li>
+                <a href={`${post.data.url}`}>&rarr; {post.data.title}</a>
+              </li>
+            ))
+          }
+        </ul>
+      </section>
+    </main>
+  </body>
+</html>
