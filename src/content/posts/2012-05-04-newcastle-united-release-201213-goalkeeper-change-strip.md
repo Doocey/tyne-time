@@ -1,9 +1,9 @@
 ---
-title: 'Newcastle United release 2012/13 Goalkeeper & Change Strip'
+title: "Newcastle United release 2012/13 Goalkeeper & Change Strip"
 author: Kevin Doocey
 type: post
 date: 2012-05-04T15:19:28+00:00
-excerpt: 'Newcastle United have today announced their change strip for the upcoming 2012/13 season - as well as released the goalkeepers shirt which is less desirable than..'
+excerpt: "Newcastle United have today announced their change strip for the upcoming 2012/13 season - as well as released the goalkeepers shirt which is less desirable than.."
 url: /2012/05/04/newcastle-united-release-201213-goalkeeper-change-strip/
 categories:
   - Newcastle United News
@@ -15,7 +15,7 @@ Newcastle United have today announced their change strip for the upcoming 2012/1
 
 I'm not sure how much we'll use the change kit, perhaps away to Spurs, and Fulham again next season but not a whole lot. Either way, here's a look at them:
 
-![Newcastle United New Away Shirt](https://www.tynetime.com/wp-content/uploads/2012/05/Red-Newcastle-away-kit.jpg "New-Newcastle-away-kit-2012/13")  
+![Newcastle United New Away Shirt](https://www.tynetime.com/wp-content/uploads/2012/05/Red-Newcastle-away-kit.jpg "New-Newcastle-away-kit-2012/13")
 
 Tim Krul modelling the keepers kit:
 

@@ -12,7 +12,7 @@ categories:
 
 ### Guthrie - Has a bright future under Newcastle United
 
-They say he was Kevin Keegan's only signing for £2m. He arrived from Liverpool after conceding he couldn't break the first team or compete with the 'brilliance' of Steven Gerrard. Well after arriving from Anfield Guthrie had a mixed start on Tyneside, he broke Craig Fagan's leg before scoring a scorcher against Portsmouth in a memorable victory.Since then, there's be little in  the way of media interaction with Danny Guthrie. He keeps his head low and doesn't complain whether he's starting or not. If I'm honest, he's one of my favourite Newcastle players simply because he seems a good lad with a good future in front of him.
+They say he was Kevin Keegan's only signing for £2m. He arrived from Liverpool after conceding he couldn't break the first team or compete with the 'brilliance' of Steven Gerrard. Well after arriving from Anfield Guthrie had a mixed start on Tyneside, he broke Craig Fagan's leg before scoring a scorcher against Portsmouth in a memorable victory.Since then, there's be little in the way of media interaction with Danny Guthrie. He keeps his head low and doesn't complain whether he's starting or not. If I'm honest, he's one of my favourite Newcastle players simply because he seems a good lad with a good future in front of him.
 
 He's been speaking about the current morale in the Toon camp :
 
@@ -22,11 +22,11 @@ He's been speaking about the current morale in the Toon camp :
 >
 > _'We're doing a pretty good job of that even though nothing gets won in the first half of the season._
 >
-> _'So the next few months are massive.__
+> \_'So the next few months are massive.\_\_
 
->_  _'We are a lot more settled and everyone is pulling in the same direction. Managerial stability means we can get on with playing, while we are going out there to win every game.'__
+> \_ \_'We are a lot more settled and everyone is pulling in the same direction. Managerial stability means we can get on with playing, while we are going out there to win every game.'\_\_
 
->_  _'It's a different club from the one I joined, particularly in the dressing room where we are all so together._
+> \_ _'It's a different club from the one I joined, particularly in the dressing room where we are all so together._
 >
 > _'It is a really strong dressing room now and only the right players should be brought in_
 >
@@ -42,4 +42,4 @@ Needless to say there will be teams after Danny at some stage this month or if n
 
 Comments welcome 🙂
 
-> __ __
+> ---

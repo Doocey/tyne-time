@@ -14,7 +14,7 @@ categories:
 
 #### Erding - Expected to sign in the coming week or so for a fee in the region of £8m
 
-It seems as if our failure with Kevin Gameiro and likely end of interest in Lille's Gervinho has brought Alan Pardew onto his next target: Paris Saint-Germain striker Mevlut Erding. Of course if you remember correctly we were after this guy back in August 2010 and [had a £5m rejected][1] with Chris Hughton in charge. It's funny to see how we maintain the same targets no matter what manager we  have. First it was Gervinho and now Erding, two players that were high up the shortlist of our former manager Chrissy Hughton and seemingly even higher up the list of the current boss Alan Pardew. I've watched both of those players this season and to be fair; they've both had good seasons at their respective clubs. Erding fell just short of double figures for the season, and indeed just short of Champions League football next season.
+It seems as if our failure with Kevin Gameiro and likely end of interest in Lille's Gervinho has brought Alan Pardew onto his next target: Paris Saint-Germain striker Mevlut Erding. Of course if you remember correctly we were after this guy back in August 2010 and [had a £5m rejected][1] with Chris Hughton in charge. It's funny to see how we maintain the same targets no matter what manager we have. First it was Gervinho and now Erding, two players that were high up the shortlist of our former manager Chrissy Hughton and seemingly even higher up the list of the current boss Alan Pardew. I've watched both of those players this season and to be fair; they've both had good seasons at their respective clubs. Erding fell just short of double figures for the season, and indeed just short of Champions League football next season.
 
 The reality with Gervinho is that we're not going to sign him. Apparent interest from Arsenal has him holding out for an offer from Wenger's side, although there were strong reports that a deal has been agreed between NUFC and the Ivory Coast international - and not just from Twitter. However if reports are to be believed, the Newcastle hierarchy weren't very impressed with his attitude and have stalled any potential deal, or even further: have cut negotiations altogether.
 
@@ -36,4 +36,4 @@ Alongside the ineviatable signing of Demba Ba - our strike force is looking some
 
 Comments welcome as always 🙂
 
- [1]: https://www.tynetime.com/2010/08/10/newcastle-united-have-5m-offer-for-mevlut-erding-rejected/
+[1]: https://www.tynetime.com/2010/08/10/newcastle-united-have-5m-offer-for-mevlut-erding-rejected/

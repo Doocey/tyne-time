@@ -10,7 +10,7 @@ categories:
 
 ### Campbell - Would be a good addition
 
-There is news today that Fraizer Campbell, who spent last season on loan at Tottenham Hotspurs, would rather join Newcastle United than Hull City. These stories are originating from the Chronicle Live which were  the only one to be spot on with takeover claims. Let's hope they're right about this one too because these are exactly the players we need if we are to have a successful promotion charge this season. An insider today told them that Campbell is aware of Newcastle interest and is waiting for the mess to clear down before deciding.
+There is news today that Fraizer Campbell, who spent last season on loan at Tottenham Hotspurs, would rather join Newcastle United than Hull City. These stories are originating from the Chronicle Live which were the only one to be spot on with takeover claims. Let's hope they're right about this one too because these are exactly the players we need if we are to have a successful promotion charge this season. An insider today told them that Campbell is aware of Newcastle interest and is waiting for the mess to clear down before deciding.
 
 A source said :
 

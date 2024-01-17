@@ -12,7 +12,7 @@ categories:
 
 ![Hatem Ben Arfa can give us a glimpse of what we haggled for tomorrow](https://static.guim.co.uk/sys-images/Admin/BkFill/Default_image_group/2010/8/8/1281280948258/Hatem-Ben-Arfa-006.jpg "Hatem Ben Arfa")
 
-After weeks of haggling, and negotiations, Newcastle United finally managed to bring Hatem Ben Arfa to St.James' Park and indeed tomorrow the Frenchman will make his début for the Toon. At home to Blackpool, the scene is set for Ben Arfa to do the business alongside his teammate Cheick Tioté who also joined from Dutch side FC Twente. We can't really expect goals upon  goals from either, but hopefully tomorrow, we'll get a glimpse of what they can both do, and Ben Arfa in particular.
+After weeks of haggling, and negotiations, Newcastle United finally managed to bring Hatem Ben Arfa to St.James' Park and indeed tomorrow the Frenchman will make his début for the Toon. At home to Blackpool, the scene is set for Ben Arfa to do the business alongside his teammate Cheick Tioté who also joined from Dutch side FC Twente. We can't really expect goals upon goals from either, but hopefully tomorrow, we'll get a glimpse of what they can both do, and Ben Arfa in particular.
 
 He has promised ammunition to Andy Carroll and if he can manage that, then we'd expect a few goals to fly in! Blackpool are certainly there for the taking and I'd hope for a 2-0 win. However, Holloway's side have got off to a decent start, which included a four-nil thrashing away at Wigan Athletic. There's no doubt they'll come to Newcastle looking to score and get the three points, but hopefully we'll just have too much for them. A performance along the lines of Villa at home three weeks back would be very suitable indeed! 😀
 

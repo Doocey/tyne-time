@@ -11,7 +11,7 @@ categories:
 
 ### Trundle - Will certainly be up for Newcastle United encounter in Wales
 
-There's no doubting the fact that we need to get three points in our next Championship game which happens to be away to a high-flying Swansea City. As Roberto Martinez departed for pastures anew in the shape of Wigan Athletic, another foreigner seized control, by the name of Paulo Sousa, and he's doing a pretty decent job at the Welsh club so far. Although we did cruise to  victory against City at home last year, it'll be a different scenario when we visit the Liberty Stadium, which is sure to be packed to the rafters full of expectant Swansea fans (and Toon fans :D).
+There's no doubting the fact that we need to get three points in our next Championship game which happens to be away to a high-flying Swansea City. As Roberto Martinez departed for pastures anew in the shape of Wigan Athletic, another foreigner seized control, by the name of Paulo Sousa, and he's doing a pretty decent job at the Welsh club so far. Although we did cruise to victory against City at home last year, it'll be a different scenario when we visit the Liberty Stadium, which is sure to be packed to the rafters full of expectant Swansea fans (and Toon fans :D).
 
 Lee Trundle, on-loan from Bristol City is sure to have a field day and has a habit of scoring against big clubs. He'll certainly be a threat both in the air and with the ball at his feet. As we saw with Rob Hulse, these sort of guys thrive on playing against the bigger clubs and it'll no different with Swansea's hitman.
 

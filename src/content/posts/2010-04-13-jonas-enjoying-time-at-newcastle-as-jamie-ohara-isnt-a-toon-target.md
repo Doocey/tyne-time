@@ -13,7 +13,7 @@ categories:
 
 ### Jonas - Doing well on Tyneside this season and has scored a few goals
 
-Jonas Gutierrez will represent Argentina at the World Cup in South Africa in June, which is a major honour for the winger that has played this season in the Coca Cola Championship. The former Mallorca man who arrived on Tyneside in rather controversial circumstances didn't really set the world alight in his first season the Premier League but then again, how many Newcastle  United players last season really did impress you besides Sebastien Bassong?
+Jonas Gutierrez will represent Argentina at the World Cup in South Africa in June, which is a major honour for the winger that has played this season in the Coca Cola Championship. The former Mallorca man who arrived on Tyneside in rather controversial circumstances didn't really set the world alight in his first season the Premier League but then again, how many Newcastle United players last season really did impress you besides Sebastien Bassong?
 
 Jonas has been good this season and has chipped in with a few goals too including a fairly nice one against Barnsley if memory serves me correctly. He was touted to leave in the summer in search of European football but he was told to stay at Newcastle by the one and only Maradona.
 

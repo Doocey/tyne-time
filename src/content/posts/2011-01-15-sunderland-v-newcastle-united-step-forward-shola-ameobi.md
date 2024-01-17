@@ -1,5 +1,5 @@
 ---
-title: 'Sunderland v Newcastle United : Step forward Shola Ameobi'
+title: "Sunderland v Newcastle United : Step forward Shola Ameobi"
 author: Kevin Doocey
 type: post
 date: 2011-01-15T20:56:45+00:00
@@ -15,7 +15,7 @@ categories:
 
 Ameobi - Can he extend his extremely good record in Tyne-Wear derbies at SOL?
 
-I think everyone will remember at least two of Shola Ameobi's many goals against Sunderland throughout the years, and that's without counting his brace when we thrashed them at St.James' Park at Halloween. He has a very good record of scoring against SAFC down through the years, and we will need him more than ever tomorrow at the Stadium Of Light. With Andy Carroll out and  Cheik Tioté still suspended, we really are without arguably two of our best players in _unarguably_ the most important match of our Premier League campaign thus far. It's not that we're struggling in the league table - far from it in fact. We are currently ninth, with Sunderland two places above in a very impressive sixth. If we win tomorrow, we shall step up to seventh, which would make for extremely pleasing reading indeed.
+I think everyone will remember at least two of Shola Ameobi's many goals against Sunderland throughout the years, and that's without counting his brace when we thrashed them at St.James' Park at Halloween. He has a very good record of scoring against SAFC down through the years, and we will need him more than ever tomorrow at the Stadium Of Light. With Andy Carroll out and Cheik Tioté still suspended, we really are without arguably two of our best players in _unarguably_ the most important match of our Premier League campaign thus far. It's not that we're struggling in the league table - far from it in fact. We are currently ninth, with Sunderland two places above in a very impressive sixth. If we win tomorrow, we shall step up to seventh, which would make for extremely pleasing reading indeed.
 
 After Sunderlands crushing defeat to us last October, they really have turned up the heat, recording some very good wins. The players and indeed Steve Bruce have no shame in admitting that the derby defeat hurt more than anything else, and has indeed been responsible for their rapid rise in performances.
 

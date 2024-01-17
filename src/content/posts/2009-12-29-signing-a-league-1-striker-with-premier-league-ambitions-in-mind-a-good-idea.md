@@ -12,7 +12,7 @@ categories:
 
 ### Beckford - Is he really worth the hassle of luring to Toon?
 
-It's no lie to say that Jermaine Beckford is probably the best striker in League 1 albeit closely followed by Grant Holt of Norwich City. Racking up 16 goals to date, Beckford of course is attracting interest from beyond League 1 and our very own Newcastle United have been linked many a time with the 6'2 London born striker. It's believed that Beckford was being scouted and chased  by the Toon Army when Dennis Wise was somehow in charge or sourcing new players for what was then, Kevin Keegan's Newcastle United.
+It's no lie to say that Jermaine Beckford is probably the best striker in League 1 albeit closely followed by Grant Holt of Norwich City. Racking up 16 goals to date, Beckford of course is attracting interest from beyond League 1 and our very own Newcastle United have been linked many a time with the 6'2 London born striker. It's believed that Beckford was being scouted and chased by the Toon Army when Dennis Wise was somehow in charge or sourcing new players for what was then, Kevin Keegan's Newcastle United.
 
 Hughton said today :
 
@@ -25,7 +25,6 @@ Hughton said today :
 > _As we lay top of the table, a few points ahead of West Brom, it does look like an immediate return for us Magpies to the Premier League. However, it's far from certain yet. My question to you, is signing a League 1 striker, 26 years of age a good direction to be taking when it looks as if Premier League football beckons in 6 months time?_
 >
 > _I don't think it is. Fair enough Beckford could be a very neat striker and I have saw signs in his play to suggest he can move up a level or two. However, he's quite a controversial character too and has had his fair share of problems at his respective clubs._
->
 
 Perhaps I'm wrong, maybe this guy could set the Coca Cola Championship alight and distance Newcastle United from West Brom and our promotion rivals. Maybe he's just reaching his potential as we speak. Either way, it seems as Chris Hughton wants him.
 

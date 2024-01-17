@@ -6,8 +6,8 @@ date: 2009-01-28T20:00:05+00:00
 url: /2009/01/28/ashley-has-veloso-desire-as-ebondo-is-in-the-works/
 categories:
   - Newcastle United News
-
 ---
+
 ## Veloso - Ashley willing to fund his transfer?
 
 Miguel Veloso's agent has indicated that Newcastle have made an approach for the versatile player. This news is greeted by Newcastle fans because we all know Veloso is a very good player, many will know him from Football Manager too 😀 Ashley is supposedly 100% behind this transfer and after missing out on Luka Modric Mike said he doesn't want to make the same mistake so it seems he is determined to secure this lads signature ahead of Bolton.

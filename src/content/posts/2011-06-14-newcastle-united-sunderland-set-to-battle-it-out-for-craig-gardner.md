@@ -1,5 +1,5 @@
 ---
-title: 'Newcastle United & Sunderland set to battle it out for Craig Gardner'
+title: "Newcastle United & Sunderland set to battle it out for Craig Gardner"
 author: Kevin Doocey
 type: post
 date: 2011-06-14T18:00:03+00:00

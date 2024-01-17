@@ -13,7 +13,7 @@ categories:
 
 ![Beye - On Hulls shortlist](https://img.skysports.com/09/07/800x600/Habib-Beye_2334040.jpg)
 
-Phil Brown is now playing hardball as want away Habib Beye is subject of transfer bids. If you told Newcastle fan this time last year that Habib Beye would be going to Hull and Newcastle would  be in the Championship they'd either laugh it off or go into serious depression, somehow I'd say the first option would be a popular one. Anyway, Hull are interested in Habib Beye and Newcastle are prepared to sell. It's understood that we've already rejected an initial bid of £2m , which is what we paid for the Senegalese star, but it's now reported Newcastle are holding out for £4m, double what we paid for the 31 year-old.
+Phil Brown is now playing hardball as want away Habib Beye is subject of transfer bids. If you told Newcastle fan this time last year that Habib Beye would be going to Hull and Newcastle would be in the Championship they'd either laugh it off or go into serious depression, somehow I'd say the first option would be a popular one. Anyway, Hull are interested in Habib Beye and Newcastle are prepared to sell. It's understood that we've already rejected an initial bid of £2m , which is what we paid for the Senegalese star, but it's now reported Newcastle are holding out for £4m, double what we paid for the 31 year-old.
 
 Phil Brown said :
 

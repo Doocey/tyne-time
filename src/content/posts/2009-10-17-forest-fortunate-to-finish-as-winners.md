@@ -11,7 +11,7 @@ categories:
 
 ![Dexter - Firing past Steve Harper](https://i.dailymail.co.uk/i/pix/2009/10/17/article-0-06DCBA8E000005DC-337_468x286.jpg)
 
-Well I think the first thing you have to say is Welcome to the Coca Cola Championship, Newcastle United. Today, a single albeit dubious goal from Dexter Blackstock saw off a Toon effort that just wasn't good enough on the day. My headline might suggest some haste in losing the game but in all fairness you have to give credit to Nottingham Forest for not laying back, and  indeed giving it their all against 'the biggest club in the league'. They've followed suit of Blackpool who before today, were the only team to have beaten us.
+Well I think the first thing you have to say is Welcome to the Coca Cola Championship, Newcastle United. Today, a single albeit dubious goal from Dexter Blackstock saw off a Toon effort that just wasn't good enough on the day. My headline might suggest some haste in losing the game but in all fairness you have to give credit to Nottingham Forest for not laying back, and indeed giving it their all against 'the biggest club in the league'. They've followed suit of Blackpool who before today, were the only team to have beaten us.
 
 Although some decisions didn't go our way including a pretty blatant legit goal, we didn't really aid our cause. The first half wasn't anything special and we were punished a few seconds before the halftime whistle sounded.
 

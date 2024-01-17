@@ -12,7 +12,7 @@ categories:
 
 ### Cort - Good enough for Newcastle?
 
-Stokes' Leon Cort is being linked with a move to Newcastle tonight after the CB has fallen short of the first team at the Britannia. Bobby Robson engineered a move for Carl Cort, the infamous striker that cost Newcastle United £7m and failed to produce but we think things might be different with Leon. Of course he'd arrive on loan for a month and we'd take  things from there but I suppose any back up or indeed players are only a plus at Newcastle. Our squad is far too small and especially in the Coca Cola Championship.
+Stokes' Leon Cort is being linked with a move to Newcastle tonight after the CB has fallen short of the first team at the Britannia. Bobby Robson engineered a move for Carl Cort, the infamous striker that cost Newcastle United £7m and failed to produce but we think things might be different with Leon. Of course he'd arrive on loan for a month and we'd take things from there but I suppose any back up or indeed players are only a plus at Newcastle. Our squad is far too small and especially in the Coca Cola Championship.
 
 Cort is 6'3' and very capable of nodding a few in for us this season. Unfortunately we don't have much of a selection when it comes to loans but we'll muster up something, or so we hope.
 

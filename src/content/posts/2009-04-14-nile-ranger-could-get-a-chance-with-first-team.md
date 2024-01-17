@@ -14,7 +14,7 @@ Alan Shearer has today said that he is not afraid to give Toon youngster Nile Ra
 
 Shearer said :
 
- _“If you’re good enough – it doesn’t matter what age you are.
+\_“If you’re good enough – it doesn’t matter what age you are.
 
 “If he can add something to the team, I would have no fear about putting him on.
 
@@ -30,7 +30,7 @@ Shearer said :
 
 “Both of them have done that and that’s why they were in the squad for Stoke and on the bench.
 
-“If they keep on producing results then you never know – they might get starts in games.”_
+“If they keep on producing results then you never know – they might get starts in games.”\_
 
 Shearer himself showed no fear when he scored a hattrick on his Southampton debut at 17 and it seems he is thinking the same for Ranger, who cam from Southampton too. We all trust Shearer with this one, and how suiting it would be if Ranger scored a screamer at Spurs on Sunday 😀
 

@@ -12,7 +12,7 @@ categories:
 
 ![Hatem Ben Arfa in action for Newcastle against Southampton](https://www.tynetime.com/wp-content/uploads/2014/03/Hatem-Ben-Arfa-Southampton.jpg "Southampton - An excellent side that have excellent with large English contingent")
 
-If there is one major travesty to happen between now and the summer its the possibility or rather probability of Danny Welbeck getting the nod to go to the 2014 World Cup in Brazil ahead of Southampton's Jay Rodriguez. The Manchester United man has been in pretty dire form all season in an ultimately shocking campaign for David Moyes' men while Rodriguez has enjoyed the form of his life netting 13 goals in a spritely Southampton outfit led by the ambitious Mauricio Pochettino. The Englishman has proven a menace for defences across the division assisted by the ever-present Adam Lallana who will surely make Roy Hodgson's squad. Another man - Luke Shaw has drawn plaudits from across the league with some fine performances and it is easy to see why; the defender has the potential to become one of the best left-backs in Europe. With that all said and  done, our French legion (and Alan Pardew) travel to St. Mary's on Saturday to try make amends for a torrid showing in the same venue last season.
+If there is one major travesty to happen between now and the summer its the possibility or rather probability of Danny Welbeck getting the nod to go to the 2014 World Cup in Brazil ahead of Southampton's Jay Rodriguez. The Manchester United man has been in pretty dire form all season in an ultimately shocking campaign for David Moyes' men while Rodriguez has enjoyed the form of his life netting 13 goals in a spritely Southampton outfit led by the ambitious Mauricio Pochettino. The Englishman has proven a menace for defences across the division assisted by the ever-present Adam Lallana who will surely make Roy Hodgson's squad. Another man - Luke Shaw has drawn plaudits from across the league with some fine performances and it is easy to see why; the defender has the potential to become one of the best left-backs in Europe. With that all said and done, our French legion (and Alan Pardew) travel to St. Mary's on Saturday to try make amends for a torrid showing in the same venue last season.
 
 From listening to carious sports channels/talk shows the way in which Southampton are spoke of would almost convince you that the Saints are in the running for the Premier League trophy. It is quite easy to forget that Newcastle United actually&nbsp;**ahead** of Pochettino's men by a point, an indication of the season we've managed so far.
 
@@ -24,9 +24,9 @@ Ahead of tomorrows game, **Tyne Time** is takes a look at the possible/probable 
 
 Davide Santon is regarded as 'touch and go' ahead of the tie against the Saints on Saturday, but I'd be pretty sure that Dummett will retain his place - it is unlikely that Santon will be rushed back into the fold, particularly against a pacy, attacking side such as Southampton.
 
-Depending on how the first half goes, I would like to think Sissoko and Gouffran will push forward on either flank seeking delivery to de Jong. Many criticised Luuk's performance against Everton, but I do think he is quite close to his first goal - slowly but surely he is adapting to the pace of the Premier League.**
+Depending on how the first half goes, I would like to think Sissoko and Gouffran will push forward on either flank seeking delivery to de Jong. Many criticised Luuk's performance against Everton, but I do think he is quite close to his first goal - slowly but surely he is adapting to the pace of the Premier League.\*\*
 
-**
+\*\*
 
 **Papiss Cissé** will likely look to feed off de Jong, but hopefully Sissoko/Anita can find a direct route to the Senegalese international. Sissoko is starting to play more through balls to Cissé of late, and to be fair Papiss' movement has been excellent in the last few games - breaking beyond the back four.
 

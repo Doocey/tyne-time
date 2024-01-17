@@ -6,8 +6,8 @@ date: 2009-03-23T16:49:53+00:00
 url: /2009/03/23/bassong-and-taylor-injuries-not-good/
 categories:
   - Newcastle United News
-
 ---
+
 ### Bassong - Will be sorely missed in Chelsea game
 
 There is some bad news today that both local lad Steven Taylor and our best center back this season, Sebastien Bassong could be out for some time as both suffered nasty injuries v Arsenal on Saturday. Taylor who was excellent on Saturday, blocking a definite van Persie goal before blocking out Arshavin in similar circumstances. Taylor however picked up a injury and was taken off, 10 men played for Newcastle when Diaby scored an important goal which effectively ended the game for the Toon.

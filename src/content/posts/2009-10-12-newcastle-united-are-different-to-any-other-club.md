@@ -11,7 +11,7 @@ categories:
 
 ### Fans - Remained positive all through the year
 
-When clubs like Newcastle United go down, they go down with a bang. Indeed we did but we got back on our feet and are continuing to grow. For any other club relegation is awful, for us, it's more than a nightmare. However, that nightmare came true on the 24th of May 2009 when Damien Duff's deflected goal sent us down. Fortunately that's behind us. We've kept  our determined players and they owe use a huge debt. The good thing is, they know that, and are putting the work in. That's why we are aloft the Coca Cola Championship table as of now.
+When clubs like Newcastle United go down, they go down with a bang. Indeed we did but we got back on our feet and are continuing to grow. For any other club relegation is awful, for us, it's more than a nightmare. However, that nightmare came true on the 24th of May 2009 when Damien Duff's deflected goal sent us down. Fortunately that's behind us. We've kept our determined players and they owe use a huge debt. The good thing is, they know that, and are putting the work in. That's why we are aloft the Coca Cola Championship table as of now.
 
 For any team to go down is bad, and most teams don't pop back up, West Brom aside. I mean the likes of Leeds United, Charlton Athletic, Norwich City and Southampton, all Premiership clubs at one stage, but now in the darkest divisions of English football.
 

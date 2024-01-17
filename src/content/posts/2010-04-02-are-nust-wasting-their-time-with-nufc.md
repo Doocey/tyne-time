@@ -12,7 +12,7 @@ categories:
 
 ### NUST - Are they wasting their time with plan to buy Newcastle United FC?
 
-NUST were big news last year when Mike Ashley was desperate to sell Newcastle United. They were on Sky Sports boasting plans of owning the club or indeed I should say, the fans owning the club in a similar style to Barcelona. However, they never made the offer if reports are to be correct and they never managed to get hold of the North-East club. Saying that, they're still plugging away  and are hopeful of a possible buy-out. A lot of people cannot see this happening and I am one of them, however it does sound great in theory.
+NUST were big news last year when Mike Ashley was desperate to sell Newcastle United. They were on Sky Sports boasting plans of owning the club or indeed I should say, the fans owning the club in a similar style to Barcelona. However, they never made the offer if reports are to be correct and they never managed to get hold of the North-East club. Saying that, they're still plugging away and are hopeful of a possible buy-out. A lot of people cannot see this happening and I am one of them, however it does sound great in theory.
 
 With Newcastle United top of the table looking set for an immediate Premier League return we'll will see a lot more money involved in the season long campaign. With a generally happy morale in the club, a safe manager and as always the great fans that fill St.James' Park, you can't see Mike Ashley selling too quickly.
 

@@ -11,7 +11,7 @@ categories:
 
 ![Hughton - You cant really fault the man](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2009/9/15/1253008257061/Chris-Hughton-Newcastles--001.jpg)
 
-I'm sure we're all well aware that Chris Hughton is very close to becoming Newcastle United's new manager within the next few days. Ashley, who looks to have failed with his attempts to sell the club again, is set to appoint Hughton as manager in hope of bringing us back to the Premier League. Two losses in a row, on the road have yet again highlighted our liabilities and none less  than a shortage of players. We've been preaching too long for new players and indeed the current squad have pleaded with Mike to loosen his purse strong. We still have to wait and see whether he does.
+I'm sure we're all well aware that Chris Hughton is very close to becoming Newcastle United's new manager within the next few days. Ashley, who looks to have failed with his attempts to sell the club again, is set to appoint Hughton as manager in hope of bringing us back to the Premier League. Two losses in a row, on the road have yet again highlighted our liabilities and none less than a shortage of players. We've been preaching too long for new players and indeed the current squad have pleaded with Mike to loosen his purse strong. We still have to wait and see whether he does.
 
 Speaking today Hughton said :
 

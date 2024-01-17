@@ -6,8 +6,8 @@ date: 2009-03-16T18:03:49+00:00
 url: /2009/03/16/joe-kinnear-set-for-return-soon/
 categories:
   - Newcastle United News
-
 ---
+
 ### Kinnear - Should be back for Stoke game
 
 Derek Llambias today angrily denied reports that Joe Kinnear had suffered another setback in his quest to recovery. Another crappy Sunday tabloid paper reported that Kinnear may not return at all this season and a replacement could be lined up quite soon. Kinnear who fell ill before the only win we've had in some time now at West Brom has successfully recovered or well on his way to recovering from major heart surgery. Next up for Newcastle are Arsenal and that will be another important game as will the remaining 8 games after Arsenal.

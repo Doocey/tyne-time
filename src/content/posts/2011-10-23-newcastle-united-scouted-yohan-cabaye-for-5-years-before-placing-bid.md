@@ -15,7 +15,7 @@ categories:
 
 #### Cabaye - Turning out to be a contender for Premier League signing of the season
 
-In an[ interesting read][1] by Mark Douglas over at the Sunday Sun, revealed that Newcastle United's scouting team were keeping tabs on Yohan Cabaye, before signing him this summer. To  be honest, I find that slightly difficult to believe. If we date back five years from this very day, we're in the year 2006. Those were the years of Glenn Roeder, and the likes of Damien Duff, Obafemi  Martins, Anotine Sibierski and so on. One of the positive impacts Mike Ashley has had on Newcastle United as a club has been the establishment of a very good youth setup. Proper coaches have been put in appropriate roles, and we are beginning to bear the early fruits of this hard work and investment. However, Ashley didn't take charge of NUFC until the spring of 2007. Begging the question - were Newcastle United scouts eyeing Cabaye even then? I doubt it.
+In an[ interesting read][1] by Mark Douglas over at the Sunday Sun, revealed that Newcastle United's scouting team were keeping tabs on Yohan Cabaye, before signing him this summer. To  be honest, I find that slightly difficult to believe. If we date back five years from this very day, we're in the year 2006. Those were the years of Glenn Roeder, and the likes of Damien Duff, Obafemi Martins, Anotine Sibierski and so on. One of the positive impacts Mike Ashley has had on Newcastle United as a club has been the establishment of a very good youth setup. Proper coaches have been put in appropriate roles, and we are beginning to bear the early fruits of this hard work and investment. However, Ashley didn't take charge of NUFC until the spring of 2007. Begging the question - were Newcastle United scouts eyeing Cabaye even then? I doubt it.
 
 In all fairness, our scouting network wasn't really sorted until Dennis Wise was removed from his position, and we stopped watching/judging players potential from YouTube videos. Graham Carr and Norman Wooster are the two main men in charge of player recruitment, with Alan Pardew working closely with the duo. Our knowledge of the French markets have seemingly been only bolstered in the last 24 months or so. That asks the question, who advised the signing of Cabaye? Was background research done on Cabaye who would have been 20 then, back in 2006? Or did the lads keep tabs on him from his early twenties onwards?
 
@@ -31,4 +31,4 @@ Here's his goal again for anyone who might have missed it, although somehow I do
 
 Comments welcome as always 🙂
 
- [1]: http://www.chroniclelive.co.uk/all-about/sunday-sun
+[1]: http://www.chroniclelive.co.uk/all-about/sunday-sun

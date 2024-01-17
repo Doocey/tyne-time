@@ -14,7 +14,7 @@ categories:
 
 #### Ben Arfa - Has raw potential that needs harnessing by Alan Pardew & NUFC
 
-I think it is fair to say that when Hatem Ben Arfa came on for Newcastle United against Sunderland on Sunday; the Geordie faithful felt he had the potential to rescue what was an impending disaster. We weren't wrong. The Frenchman gave Kieran Richardson one of the hardest times he'll get all season from anyone on the wing - tearing him to pieces over and over again. He added that  much-needed flair on the wing that we lacked for the first 45 minutes, and as much as Shola Ameobi is the undisputed derby hero - Benny put in a sterling performance. A performance that I hope we see a lot more of in the coming weeks.
+I think it is fair to say that when Hatem Ben Arfa came on for Newcastle United against Sunderland on Sunday; the Geordie faithful felt he had the potential to rescue what was an impending disaster. We weren't wrong. The Frenchman gave Kieran Richardson one of the hardest times he'll get all season from anyone on the wing - tearing him to pieces over and over again. He added that much-needed flair on the wing that we lacked for the first 45 minutes, and as much as Shola Ameobi is the undisputed derby hero - Benny put in a sterling performance. A performance that I hope we see a lot more of in the coming weeks.
 
 The headline might seem a tad sensationalist but it's not far from the truth. Ben Arfa, with his guile, agility, touch, pace, and passing range has the ability to cause massive problems for any team in the league. We saw him have a very good game away at  Manchester City in the 3-1 loss, hitting the post, with his direct running at City's defence causing havoc for Mancini's men.
 

@@ -6,8 +6,8 @@ date: 2009-01-18T12:12:54+00:00
 url: /2009/01/18/newcastle-up-mbia-offer-and-trial-adil-rami/
 categories:
   - Newcastle United News
-
 ---
+
 ## Rami - To go on trial with Newcastle?
 
 Kinnear has told Sky Sports last night that he is considering upping his bid for Stephane M'Bia to nearly £10m and possibly even cancelling the loan deals that may be in the works. We can only assume the loan deals would be cancelled because of the cost of them but one thing is for certain, we need faces and quickly! Another player Kinnear is supposedly after is Lille's Adil Rami, a young Moroccan center back who is quite highly rated in France and it seems he could be making his way to Newcastle on a trial, we certainly hope he can be the next Seb Bassong 😀

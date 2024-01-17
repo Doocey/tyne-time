@@ -11,7 +11,7 @@ categories:
 
 ### Mulemo - Not a lot is known about this lad but he's highly rated in Belgium
 
-Before I start, I'd like to congratulate a certain Ian Holloway on his fantastic success in getting Blackpool promoted in his first season at Bloomfield Road. An enthralling game at Wembley today saw the Tangerines come from behind twice and then go ahead all in the first half. A wonderful Charlie Adam free-kick, a Taylor-Fletcher nod in and a quick finish from veteran Brett  Ormerod saw Holloways side reach the promised land alongside ourselves and West Brom. Dave Jones & Cardiff again come close, but not close enough to secure Premier League football this year.
+Before I start, I'd like to congratulate a certain Ian Holloway on his fantastic success in getting Blackpool promoted in his first season at Bloomfield Road. An enthralling game at Wembley today saw the Tangerines come from behind twice and then go ahead all in the first half. A wonderful Charlie Adam free-kick, a Taylor-Fletcher nod in and a quick finish from veteran Brett Ormerod saw Holloways side reach the promised land alongside ourselves and West Brom. Dave Jones & Cardiff again come close, but not close enough to secure Premier League football this year.
 
 Anyway, the reports are already flying and the rumour mill is chruning out some funny stories already. This week, from my short glimpses across the web, we've been linked with Shaun Wright-Phillips, Kim Källström, Albin Ebondo, Joe Ledley, Urby Emanuelson and now Landry Mulemo. Some big names in there that will never make the move to St.James' Park so lets forget it.
 

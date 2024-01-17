@@ -13,7 +13,7 @@ categories:
 
 ### Ashley - No plans to sell Newcastle United FC in the very near future
 
-He's a man we've wanted out for a couple of years now. I do mention 'we' because I'm sure every Newcastle United fan out there, young and old, saw what has happened since Mike Ashley took over. Relegation and so on, but let's not get into that as it's been discussed many a time before. There's an interesting article in the [Telegraph][1] today with Derek Llambias and indeed his & Mike's  stance on Newcastle United FC. He also claimed that they're starting to win back the fans but there's a thousand miles to go yet, before he'll be a warm figure on Tyneside.
+He's a man we've wanted out for a couple of years now. I do mention 'we' because I'm sure every Newcastle United fan out there, young and old, saw what has happened since Mike Ashley took over. Relegation and so on, but let's not get into that as it's been discussed many a time before. There's an interesting article in the [Telegraph][1] today with Derek Llambias and indeed his & Mike's stance on Newcastle United FC. He also claimed that they're starting to win back the fans but there's a thousand miles to go yet, before he'll be a warm figure on Tyneside.
 
 Speaking today, Llambias said :
 
@@ -37,4 +37,4 @@ It's an interesting article in the Telegraph today and certainly worth reading. 
 
 Comments welcome 🙂
 
- [1]: http://www.telegraph.co.uk/sport/football/teams/newcastle-united/7361339/Newcastle-United-not-for-sale-says-managing-director-Derek-Llambias.html?
+[1]: http://www.telegraph.co.uk/sport/football/teams/newcastle-united/7361339/Newcastle-United-not-for-sale-says-managing-director-Derek-Llambias.html?

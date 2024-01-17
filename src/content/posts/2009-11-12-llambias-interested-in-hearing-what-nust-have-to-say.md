@@ -8,11 +8,11 @@ categories:
   - Newcastle United Supporters Trust
 ---
 
-Reports in the Chronicle today claim that Derek Llambias, the second man in charge at Newcastle United, is set to meet with the Supporters Trust, over a possible takeover. It's understood that Llambias offered to meet them within an hour of releasing their statement of intent. However, the NUST have declined the invite and say they're not yet ready to hold talks until their initial  campaign has reached top gear. Why Llambias wants to hold talks so quickly, is perhaps because he doesn't want the Supporters Trust uncovering some facts that won't favour the current Toon hierarchy.
+Reports in the Chronicle today claim that Derek Llambias, the second man in charge at Newcastle United, is set to meet with the Supporters Trust, over a possible takeover. It's understood that Llambias offered to meet them within an hour of releasing their statement of intent. However, the NUST have declined the invite and say they're not yet ready to hold talks until their initial campaign has reached top gear. Why Llambias wants to hold talks so quickly, is perhaps because he doesn't want the Supporters Trust uncovering some facts that won't favour the current Toon hierarchy.
 
 Speaking today, the Interim chair Neil Mitchell said :
 
-> _“Any negotiations conducted un behalf of the Yes We Can campaign will be conducted with the full knowledge of our potential investors and the fans in general.
+> \_“Any negotiations conducted un behalf of the Yes We Can campaign will be conducted with the full knowledge of our potential investors and the fans in general.
 >
 > “We see no benefit in meeting with Mr Ashley or his representatives until the campaign has fully got under way.
 >
@@ -24,7 +24,6 @@ Speaking today, the Interim chair Neil Mitchell said :
 >
 > The fact that Derek wanted to arrange a meeting so quickly could also be a new strategy that the owners have in place, to respond and act quicker to any media outbursts related to the club.
 >
-> They have always been too slow on responding to breaking news or coming out to deny any accusations. Then again, there's not much they can deny really. Saying that, it's really a milestone for the **Newcastle United Supporters Trust,** now showing that are going to be taken seriously from now on, or we think so anyway._
->
+> They have always been too slow on responding to breaking news or coming out to deny any accusations. Then again, there's not much they can deny really. Saying that, it's really a milestone for the **Newcastle United Supporters Trust,** now showing that are going to be taken seriously from now on, or we think so anyway.\_
 
 Comments welcome 🙂

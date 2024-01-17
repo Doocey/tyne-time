@@ -16,7 +16,7 @@ categories:
 
 There aren't many cases stranger than Xisco's career at Newcastle United.
 
-The Spanish forward signed from Deportivo, on Dennis Wise's recommendation, for a reported fee of £5.75m in the autumn of 2008. Shortly after he signed for NUFC, our manager at the time - Kevin Keegan - resigned after another player had been brought in, without him having much of a say in the matter. Since then, Xisco went on to make an amazing 9 appearances, and score a grand total of 1 goal. Emile Heskey would be proud. The most memorable of Xisco's appearances  came at home to Aston Villa on our return to the Premier League. He assisted Andy Carroll with a lovely through ball to complete his hattrick, and helped repay Villa's favour after they sent us down a year previous. That one assist will forever live on with in the Geordie folklore.
+The Spanish forward signed from Deportivo, on Dennis Wise's recommendation, for a reported fee of £5.75m in the autumn of 2008. Shortly after he signed for NUFC, our manager at the time - Kevin Keegan - resigned after another player had been brought in, without him having much of a say in the matter. Since then, Xisco went on to make an amazing 9 appearances, and score a grand total of 1 goal. Emile Heskey would be proud. The most memorable of Xisco's appearances came at home to Aston Villa on our return to the Premier League. He assisted Andy Carroll with a lovely through ball to complete his hattrick, and helped repay Villa's favour after they sent us down a year previous. That one assist will forever live on with in the Geordie folklore.
 
 Since then, and after Hughton's successful stint in charge of the club - he failed to make any more competitive appearances. He was loaned back to Deportivo for the second season in a row this year, where he trebled his NUFC tally in just 16 games. Before that, he had a season at Racing Santander where he also grabbed a couple of goals. To say he isn't wanted at Newcastle, is very much an understatement.
 
@@ -32,7 +32,7 @@ I have no doubt that he can score goals in a certain type of system where he'd s
 
 Either way, poor Francisco Jiménez Tejada doesn't have a future at Newcastle and despite the fact he collects huge wages each week without doing very much, you have to feel for him. He feels isolated and you don't seem him congregating with many of the other squad that much. The move wasn't his fault we have to remember that.
 
-The fact he was being loaned back to his former club after we dished out quite a bit for his signature is very similar to Andy Carroll's _potential_ situation at Newcastle United - just on a far, far smaller scale finance-wise. Maybe Liverpool would take Xisco and £12m for AC?..
+The fact he was being loaned back to his former club after we dished out quite a bit for his signature is very similar to Andy Carroll's *potential* situation at Newcastle United - just on a far, far smaller scale finance-wise. Maybe Liverpool would take Xisco and £12m for AC?..
 
 Personally, I would have liked to have seen Xisco feature more for Newcastle, because we never really got to see how good/bad he actually is. He couldn't have been much worse than Mark Viduka towards the end of _that_ season, could he?
 

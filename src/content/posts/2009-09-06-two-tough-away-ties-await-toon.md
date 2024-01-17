@@ -11,7 +11,7 @@ categories:
 
 ### Chopra - In good form for Cardiff
 
-Just because we are top of the table and outwitting the media, it doesn't mean we have the right to say we're going straight back up or that we can gain promotion at first attempt easily. It's not as simple as that, and although we have made pretty much a perfect start to our Championship campaign, our next two games will really test our resolve. Firstly we  travel to the Welsh capital Cardiff and then we'll venture down to the holidaying area, Blackpool. Former Toon striker Michael Chopra is banging in the goals for Cardiff at the minute and we're hoping that former teammate and current friend, Steven Taylor, can alter Chopra's goal scoring.
+Just because we are top of the table and outwitting the media, it doesn't mean we have the right to say we're going straight back up or that we can gain promotion at first attempt easily. It's not as simple as that, and although we have made pretty much a perfect start to our Championship campaign, our next two games will really test our resolve. Firstly we travel to the Welsh capital Cardiff and then we'll venture down to the holidaying area, Blackpool. Former Toon striker Michael Chopra is banging in the goals for Cardiff at the minute and we're hoping that former teammate and current friend, Steven Taylor, can alter Chopra's goal scoring.
 
 Cardiff will provide a perfect match for us and their home crowd will act as a 12th man. If we did manage to get a win from the game then it'd be a very very good three points. As you have probably saw this season already, Cardiff look very dangerous, with Michael Chopra and Ross McCormack leading the troops.
 

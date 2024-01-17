@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-The tabloids are at it again today as another article hits Newcastle. It's not about Mike Ashley or any of the board but instead of new players that 'we'll be signing' or something to that effect. This time it isn't Pancake Pancrate, but well known Spanish hitman, Raul Tamudo. The Espanyol striker is as young as could be at 32 and in fairness to the man, has scored a fair few goals. It's being  reported that he's interested in leaving and is looking to 'rip up his contract at Espanyol'. Not very enticing signs of someone that Chris could well be looking at.
+The tabloids are at it again today as another article hits Newcastle. It's not about Mike Ashley or any of the board but instead of new players that 'we'll be signing' or something to that effect. This time it isn't Pancake Pancrate, but well known Spanish hitman, Raul Tamudo. The Espanyol striker is as young as could be at 32 and in fairness to the man, has scored a fair few goals. It's being reported that he's interested in leaving and is looking to 'rip up his contract at Espanyol'. Not very enticing signs of someone that Chris could well be looking at.
 
 However, it's not only Newcastle that's eyeing him up, Wigan Athletic and Spurs are also rumoured to be interested. It's be reported now that Wigan are out of the running though so whether the Toon are actually interested in another thing.
 

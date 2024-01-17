@@ -11,9 +11,9 @@ categories:
   - Newcastle United News
 ---
 
-### Barton - Made his feelings known to Morten Gamst Pedersen foolishly last night 
+### Barton - Made his feelings known to Morten Gamst Pedersen foolishly last night
 
-Well some say it was a matter of time. Joey Barton has hit the headlines again, not for his great performances of late which includes 3 assists in the last 4 games, but for another reason. As the many various papers and online journals have pointed out, Joey Barton struck Morten Gamst Pedersen in the stomach with a right handed clout. They'll also dub this little dig into the  Norwegian's chest as a full blooded punch, with full force from the controversial midfielder. However, I think there's a lot being made out of this 'shove' that Joey gave him. First of all, it's obvious that Gamst Pedersen sticks out a slight elbow and catches Barton, whether intentional or not we're not sure, but either way, the Blackburn man was shocked when Joey lashed out at him, sending him to the floor.
+Well some say it was a matter of time. Joey Barton has hit the headlines again, not for his great performances of late which includes 3 assists in the last 4 games, but for another reason. As the many various papers and online journals have pointed out, Joey Barton struck Morten Gamst Pedersen in the stomach with a right handed clout. They'll also dub this little dig into the Norwegian's chest as a full blooded punch, with full force from the controversial midfielder. However, I think there's a lot being made out of this 'shove' that Joey gave him. First of all, it's obvious that Gamst Pedersen sticks out a slight elbow and catches Barton, whether intentional or not we're not sure, but either way, the Blackburn man was shocked when Joey lashed out at him, sending him to the floor.
 
 The funny thing about it, (if we can see any humour in this at all) is that neither the referee nor his assitants saw it. In fact, when Joey and Morten were talking after in the incident, and Barton claiming his shoved him away rather than punched, the referee had a laugh with the two players and resumed play.
 
@@ -27,4 +27,4 @@ There'll be a lot more to come regards this, and we'll keep you updated. be sure
 
 If you think Newcastle will turn things around at home to Fulham even without Joey Barton & Shola, and get their home form back on track, then why not put a few pound where your mouth is? Newcastle are nice enough odds for their home affair with Fulham and are worth a couple of quid, especially considering the wins we've managed against better opposition.
 
- [1]: https://twitter.com/tynetime "@TyneTime"
+[1]: https://twitter.com/tynetime "@TyneTime"

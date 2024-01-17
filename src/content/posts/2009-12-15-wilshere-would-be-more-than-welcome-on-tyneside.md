@@ -11,7 +11,7 @@ categories:
 
 ### Wilshere - Linked with Newcastle loan move in January
 
-The rumour mill is dusting off it's hinges and getting going again. Of course you could say it never stops at Newcastle above any other club. Today reports bring the story that Arsenal starlet Jack Wilshere will possibly make a loan switch to Newcastle United in the forthcoming January transfer window. This news comes as Arsene Wenger declared that Wilshere is available for loan  and may indeed join a 'top Championship club' and somehow I don't think he means Ipswich Town. (Sorry Town Fans). Anyway, of course it might not be us, it could well be West Bromwich Albion, QPR, Leicester, Boro or indeed Swansea City, we don't know for sure.
+The rumour mill is dusting off it's hinges and getting going again. Of course you could say it never stops at Newcastle above any other club. Today reports bring the story that Arsenal starlet Jack Wilshere will possibly make a loan switch to Newcastle United in the forthcoming January transfer window. This news comes as Arsene Wenger declared that Wilshere is available for loan and may indeed join a 'top Championship club' and somehow I don't think he means Ipswich Town. (Sorry Town Fans). Anyway, of course it might not be us, it could well be West Bromwich Albion, QPR, Leicester, Boro or indeed Swansea City, we don't know for sure.
 
 However, we'd certainly hope that Chris Hughton is in the hunt for him because we've all seen what little Jack can do when he gets on the ball. Wilshere is highly rated in Arsenal and indeed throughout England so it wouldn't surprise me if a Premier League team made an approach for him.
 

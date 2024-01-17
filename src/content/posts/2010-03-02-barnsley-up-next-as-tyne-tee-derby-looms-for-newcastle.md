@@ -11,7 +11,7 @@ categories:
 
 ![Iain Hume](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2008/11/10/1226333986889/Barnsleys-Iain-Hume-001.jpg "Hume - Always a handful up front and Saturday will be no different")
 
-A pretty decent February came to an end and we're top of the Coca Cola Championship on-course for a Premier League return, which is the most important thing. A month which saw us score a lot at home and get back to winning ways, away from home. Next up we'll have Barnsley visit St.James' Park and the last time we played these was away, in a 2-2 draw. We  conceded in the dying minutes. Mind you, it was Marlon Harewood who played up-front in that match. A new shaped strike-force in the shape of Andy Carroll and Leon Best will more than likely start this Saturday.
+A pretty decent February came to an end and we're top of the Coca Cola Championship on-course for a Premier League return, which is the most important thing. A month which saw us score a lot at home and get back to winning ways, away from home. Next up we'll have Barnsley visit St.James' Park and the last time we played these was away, in a 2-2 draw. We conceded in the dying minutes. Mind you, it was Marlon Harewood who played up-front in that match. A new shaped strike-force in the shape of Andy Carroll and Leon Best will more than likely start this Saturday.
 
 I say it every week but it's true to say that every game in the Coca Cola Championship requires a full-team effort and no teams in this division are push-overs. Barnsley will be no different and they'll come to St.James' Park with the intention of heading backing home 3 points better off.
 

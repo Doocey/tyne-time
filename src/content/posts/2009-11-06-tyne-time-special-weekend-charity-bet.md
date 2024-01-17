@@ -1,5 +1,5 @@
 ---
-title: 'Tyne Time Special : Weekend Charity Bet'
+title: "Tyne Time Special : Weekend Charity Bet"
 author: Kevin Doocey
 type: post
 date: 2009-11-06T20:16:24+00:00
@@ -8,7 +8,7 @@ categories:
   - Site
 ---
 
-I thought I'd do something different for these exciting weekends of football and I've decided on a Charity Weekend Bet. This weekend brings a huge amount of games happening in the UK, ranging from Premier League, Championship, League 1, League 2, Scottish Premier Division and FA Cup. Every once in a while, Tyne Time will place £1 on a number of fixtures that should they come through, will pay out handsome dividends. Probably known best to you as  'Pools', it will not always be all English games but European and other continental fixtures too.
+I thought I'd do something different for these exciting weekends of football and I've decided on a Charity Weekend Bet. This weekend brings a huge amount of games happening in the UK, ranging from Premier League, Championship, League 1, League 2, Scottish Premier Division and FA Cup. Every once in a while, Tyne Time will place £1 on a number of fixtures that should they come through, will pay out handsome dividends. Probably known best to you as 'Pools', it will not always be all English games but European and other continental fixtures too.
 
 Should the bet come through and my selected teams all win, or indeed match the result I have predicted, then 50% of my winnings will go straight to charity, and the charity changes each week.
 

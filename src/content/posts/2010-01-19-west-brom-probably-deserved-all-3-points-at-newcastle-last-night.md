@@ -12,7 +12,7 @@ categories:
 
 ![Lovenkrands dedicated equaliser to his late father](https://static.guim.co.uk/sys-images/Admin/BkFill/Default_image_group/2010/1/18/1263857181323/Peter-Lovenkrands-001.jpg "Lovenkrands - Courageous man playing the match despite fathers death")
 
-How suiting it was that Peter Lovenkrands had the last say in St.James' Park last night in what was a very exciting affair. Tyne Time predicted a 2-0 scoreline in Newcastle's favour and we were wrong, however I did guarantee an even encounter, one which if you ask me, we didn't deserve to win. The opening minutes saw West Brom throw the kitchen sink at Newcastle and  they got their due reward when Olsson delicately flicked Dorran's ball beyond the despairing Steve Harper. They continued to press but a foolish foul by Mulumbu just outside the box resulted in Danny Guthrie smashing the back of the net with a beaut of a free-kick albeit a dodgy wall.
+How suiting it was that Peter Lovenkrands had the last say in St.James' Park last night in what was a very exciting affair. Tyne Time predicted a 2-0 scoreline in Newcastle's favour and we were wrong, however I did guarantee an even encounter, one which if you ask me, we didn't deserve to win. The opening minutes saw West Brom throw the kitchen sink at Newcastle and they got their due reward when Olsson delicately flicked Dorran's ball beyond the despairing Steve Harper. They continued to press but a foolish foul by Mulumbu just outside the box resulted in Danny Guthrie smashing the back of the net with a beaut of a free-kick albeit a dodgy wall.
 
 You couldn't help but be impressed by West Bromich Albion last night and by Graham Dorran's & Jerome Thomas in particular. Anything attack on Newcastle was led by either of the two.
 

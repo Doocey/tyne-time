@@ -11,7 +11,7 @@ categories:
 
 ### Carroll - Arrested by police in early hours or Monday morning
 
-It's being reported pretty much everywhere that Andy Carroll has been arrested by police in the early hours of Monday morning following an incident in a local Newcastle nightclub. Carroll who was lounging with friends in the VIP area was involved in a scuffle with an unknown individual but what is known is that the unknown man, came out the worst in the affair. This isn't the first  time that Carroll has been at it, we all remember the incident which included Charles N'Zogbia, following some moaning from the Frenchman about the current state of affairs at Newcastle.
+It's being reported pretty much everywhere that Andy Carroll has been arrested by police in the early hours of Monday morning following an incident in a local Newcastle nightclub. Carroll who was lounging with friends in the VIP area was involved in a scuffle with an unknown individual but what is known is that the unknown man, came out the worst in the affair. This isn't the first time that Carroll has been at it, we all remember the incident which included Charles N'Zogbia, following some moaning from the Frenchman about the current state of affairs at Newcastle.
 
 As my headline suggests, this isn't the time for bad press, or should I say **increased** bad press. We're top of the table, high team morale and some stability for once. It doesn't take much to get the media mixer going at Newcastle.
 

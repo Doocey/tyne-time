@@ -11,7 +11,7 @@ categories:
 
 ### O'Hara - A very good player and would be a great addition to Newcastle United
 
-There are usual reports in the papers about Portsmouth and their financial worries in the last few days and more than likely, Pompey will be a Coca Cola Championship club come May this year. It's been a big drop for a club who only a couple of years ago lifted the FA Cup with Harry Redknapp in charge. Since then, the club who used to boast the likes of Jermaine Defoe, Peter  Crouch, Niko Kranjcar, Sol Campbell and indeed Sylvain Distin. Now all the stories regarding the club are about departures and indeed their uncertain future as a football club.
+There are usual reports in the papers about Portsmouth and their financial worries in the last few days and more than likely, Pompey will be a Coca Cola Championship club come May this year. It's been a big drop for a club who only a couple of years ago lifted the FA Cup with Harry Redknapp in charge. Since then, the club who used to boast the likes of Jermaine Defoe, Peter Crouch, Niko Kranjcar, Sol Campbell and indeed Sylvain Distin. Now all the stories regarding the club are about departures and indeed their uncertain future as a football club.
 
 One man who has been committed to the Pompey cause throughout the turbulent time has been Jamie O'Hara. The midfielder, on-loan from Tottenham has shown real grit in the centre of the park for Avram Grant's side and whether he still has a future at either club, remains to be seen.
 

@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-I suppose a lot of you are wondering who this guy really is, and to be honest, there isn't a whole lot of information out there about him. Two things we do know is that he's a Portuguese U-21 international and the second is that he's on loan from Porto. Chris Hughton is being linked with a swoop for him and the Portuguese striker said he's be interested in hearing what we have  to offer him. Ukra is very highly rated in Portugal and that's why he finds himself with one of the biggest clubs in the country, FC Porto.
+I suppose a lot of you are wondering who this guy really is, and to be honest, there isn't a whole lot of information out there about him. Two things we do know is that he's a Portuguese U-21 international and the second is that he's on loan from Porto. Chris Hughton is being linked with a swoop for him and the Portuguese striker said he's be interested in hearing what we have to offer him. Ukra is very highly rated in Portugal and that's why he finds himself with one of the biggest clubs in the country, FC Porto.
 
 Speaking, he said :
 

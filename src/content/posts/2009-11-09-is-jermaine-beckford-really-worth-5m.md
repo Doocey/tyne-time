@@ -8,7 +8,7 @@ categories:
   - Jermaine Beckford
 ---
 
-With 11 goals to his name for Leeds United already, Jermaine Beckford is taking League 1 by storm so far. As Leeds look set to make it back to the Championship, although in early stages, another team that is expected to pop back up a division is us, Newcastle United. Beckford has been linked to Newcastle now on many occasions and especially in the summer when his agent said he would  indeed be interested in moving clubs, and playing on a bigger stage. If he's into playing in front of big crowds in a great stadium, the Toon is a perfect place for him.
+With 11 goals to his name for Leeds United already, Jermaine Beckford is taking League 1 by storm so far. As Leeds look set to make it back to the Championship, although in early stages, another team that is expected to pop back up a division is us, Newcastle United. Beckford has been linked to Newcastle now on many occasions and especially in the summer when his agent said he would indeed be interested in moving clubs, and playing on a bigger stage. If he's into playing in front of big crowds in a great stadium, the Toon is a perfect place for him.
 
 However, the rumoured fee we would have to splash out is reported to be around the £5m mark which is just a little inflated, even with the economic situation we're in. You can see it from Leeds United's side, they want to get every last penny for one of their most prized assets in Beckford.
 

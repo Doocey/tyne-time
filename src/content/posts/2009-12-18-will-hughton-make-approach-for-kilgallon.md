@@ -11,7 +11,7 @@ categories:
 
 ### Kilgallon - Moving clubs in January if he can
 
-Sheffield United boss Kevin Blackwell has confirmed today that his prominent centre-back Matthew Kilgallon, will leave the club in the January transfer period. Kilgallon, who is highly rated in both the Championship & the Premier League will look for a new club after no agreement could be made on a new deal at Bramall Lane. Chris Hughton earlier this year expressed an interest  in the former Leeds CB, but the likes of Hull City have also been linked to making an offer for the lad.
+Sheffield United boss Kevin Blackwell has confirmed today that his prominent centre-back Matthew Kilgallon, will leave the club in the January transfer period. Kilgallon, who is highly rated in both the Championship & the Premier League will look for a new club after no agreement could be made on a new deal at Bramall Lane. Chris Hughton earlier this year expressed an interest in the former Leeds CB, but the likes of Hull City have also been linked to making an offer for the lad.
 
 Speaking today, Blackwell said :
 

@@ -14,7 +14,7 @@ categories:
 
 ### Roberts - Where will he get the money from?
 
-There has been a new spanner thrown into the works at Newcastle United now as yesterday, Sky Sports were told that Graham Roberts, a former footballer was heading a bid from a consortium called 'Fans 410', to buy Newcastle United. This news  comes just as Barry Moat was close to sealing the club but now the former defender said that he has friends who want to own a football club and that the Magpies are the perfect opportunity. The main question we all have it, where he'll get the money and how long will he keep this hope of buying the club, alive? We're pretty sure he won't take the club owner but he has confirmed that he's meeting the clubs chairman tomorrow, (and the chairman is?). We're guessing he means Derek Llambias who goes under the title of Managing Director.
+There has been a new spanner thrown into the works at Newcastle United now as yesterday, Sky Sports were told that Graham Roberts, a former footballer was heading a bid from a consortium called 'Fans 410', to buy Newcastle United. This news comes just as Barry Moat was close to sealing the club but now the former defender said that he has friends who want to own a football club and that the Magpies are the perfect opportunity. The main question we all have it, where he'll get the money and how long will he keep this hope of buying the club, alive? We're pretty sure he won't take the club owner but he has confirmed that he's meeting the clubs chairman tomorrow, (and the chairman is?). We're guessing he means Derek Llambias who goes under the title of Managing Director.
 
 Roberts said:
 

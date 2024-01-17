@@ -6,8 +6,8 @@ date: 2009-02-03T17:07:43+00:00
 url: /2009/02/03/frustration-and-failure-in-newcastles-jan-transfer-window/
 categories:
   - Newcastle United News
-
 ---
+
 ### Kinnear - Missed out on a couple of targets, again
 
 Yet again, another window passes by with us capturing next to nothing, numbers wise. Ryan Taylor, Peter Lovenkrands and Kevin Nolan all January signings but we missed out on another couple of targets last night, one of them, Manchester City's Michael Johnston. Conflicting reports are floating around but Joe Kinnear admitted Man City had indeed rejected the bid which is an absolute disgrace on City part, considering we sold them the Premier League's best keeper Shay Given, only the day before.

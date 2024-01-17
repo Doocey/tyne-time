@@ -1,5 +1,5 @@
 ---
-title: 'Newcastle United & corners: Where it’s all going wrong and how to fix it'
+title: "Newcastle United & corners: Where it’s all going wrong and how to fix it"
 author: Kevin Doocey
 type: post
 date: 2013-03-03T15:17:28+00:00
@@ -11,7 +11,7 @@ categories:
 
 ![Steven Taylor chats with Hatem Ben Arfa](https://www.tynetime.com/wp-content/uploads/2013/03/Steven-Taylor-Hatem-Ben-Arfa.jpg "Duo - Both Steven Taylor and Hatem Ben Arfa are important corner figures")
 
-Newcastle United's delivery from corners has become something of a joke. [As we highlighted][1] after our 1-1 draw with Aston Villa on the 2nd of September (just three games into the EPL season). Still, we are in the first week of January 2013, and Newcastle United are yet to still pose any decent threat from a corner. Yesterday's defeat to Swansea was a bitter pill to swallow considering we were much the better side overall, and controlled possession for the majority of the game which deserves credit, however, this article is not going to discuss our defeat to Swansea, you can find plenty of match reports out there. Below, I will be hoping to  highlight where NUFC are going wrong when it comes to taking corners, and offer a simple solution towards fixing this. Most other teams in the league have notched up a few goals from corners this season so far, but to my knowledge Alan Pardew's men have not managed a single goal from that particular set-piece.
+Newcastle United's delivery from corners has become something of a joke. [As we highlighted][1] after our 1-1 draw with Aston Villa on the 2nd of September (just three games into the EPL season). Still, we are in the first week of January 2013, and Newcastle United are yet to still pose any decent threat from a corner. Yesterday's defeat to Swansea was a bitter pill to swallow considering we were much the better side overall, and controlled possession for the majority of the game which deserves credit, however, this article is not going to discuss our defeat to Swansea, you can find plenty of match reports out there. Below, I will be hoping to highlight where NUFC are going wrong when it comes to taking corners, and offer a simple solution towards fixing this. Most other teams in the league have notched up a few goals from corners this season so far, but to my knowledge Alan Pardew's men have not managed a single goal from that particular set-piece.
 
 **The last time we scored from a corner?**
 
@@ -61,4 +61,4 @@ We are not entering a season where corners could be the difference between us se
 
 Comments welcome, what can we do to fix this mess?
 
- [1]: https://www.tynetime.com/2012/09/02/newcastle-uniteds-corners-against-villa-nothing-short-of-shocking/
+[1]: https://www.tynetime.com/2012/09/02/newcastle-uniteds-corners-against-villa-nothing-short-of-shocking/

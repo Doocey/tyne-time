@@ -31,7 +31,7 @@ We dominated the second half from start to finish. City made substitutions to sh
 
 Touré sealed the three points with a tap-in from a City break, but the overall performance from Newcastle United was pretty credible. We showed fight, tenacity, and organisation (at stages).
 
-If you were to ask any City fan how their team played, I'm pretty sure they'll rank it up there with the finest 90 minutes they've had all season as team. Annoyingly, Manchester City _always_ seem to turn on the form against us and if I remember correctly, Mancini has won in every encounter against NUFC.
+If you were to ask any City fan how their team played, I'm pretty sure they'll rank it up there with the finest 90 minutes they've had all season as team. Annoyingly, Manchester City *always* seem to turn on the form against us and if I remember correctly, Mancini has won in every encounter against NUFC.
 
 Bringing this all back to my headline, fans need to calm down and accept that Top 10 would be a great achievement this season. Our European endeavours have cost us and our domestic form but that's hardly surprising. I want us to do well in Europe, but if that means miring ourselves in a relegation battle then not so much.
 
@@ -47,4 +47,4 @@ Comments welcome folks, what are your thoughts?
 
 Also, if you aren't following Tyne Time on Twitter do so and if you even fancy some general football ramblings then you can follow myself as well, [@KevinDoocey][1].
 
- [1]: https://twitter.com/kevindoocey
+[1]: https://twitter.com/kevindoocey

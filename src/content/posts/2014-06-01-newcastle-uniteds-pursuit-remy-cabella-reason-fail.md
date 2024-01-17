@@ -15,13 +15,13 @@ The infamous 'line' everyone associated with Newcastle United talks about is yet
 
 The latest story emerging from across the sea is that their owner has raised Cabella's asking price to €12m, whereas Newcastle lodged a formal bid of about €8m. If you ask me, there should be no confusion over this deal, throw in an extra €2m to bring it to €10m and I would be surprised if a move doesn't happen.
 
-However, such deliberation on behalf of finances has always been Newcastle's downfall under Mike Ashley's ownership. According to sources  within the club, and although it is incredibly obvious to the average eye - MA looks to account for every penny spent within the club. The balance sheets are explored and every expenditure must be explained. I suppose it is a reason he has become such a successful businessman.
+However, such deliberation on behalf of finances has always been Newcastle's downfall under Mike Ashley's ownership. According to sources within the club, and although it is incredibly obvious to the average eye - MA looks to account for every penny spent within the club. The balance sheets are explored and every expenditure must be explained. I suppose it is a reason he has become such a successful businessman.
 
 **NUFC have no reason to penny-pinch with Cabella deal**
 
 As you might have read over the past few weeks, clubs in the Premier League received a hefty boost in their TV rights income. Newcastle received about £77m in TV revenues for the past season, a rise of over **£30m** on previous seasons. In that increment alone, we could buy 3 [Rémy Cabella's](https://www.tynetime.com/2014/01/06/remy-cabella-newcastle-fans-need-know-midfielder/ "remy cabella profile") never-mind just one.
 
-With that extra cash influx, there is absolutely _no excuses_ in our pursuit of Cabella. This guy is a French international, and a very talented midfielder - the club's prized asset. However, NUFC make almost insulting bids to his club, with £6.5m the latest submission. Stupid, and downright disappointing.
+With that extra cash influx, there is absolutely *no excuses* in our pursuit of Cabella. This guy is a French international, and a very talented midfielder - the club's prized asset. However, NUFC make almost insulting bids to his club, with £6.5m the latest submission. Stupid, and downright disappointing.
 
 **What will happen?**
 

@@ -12,7 +12,7 @@ categories:
 
 ### Annan - Hughton has reportedly submitted a £5m bid for the Ghanaian
 
-After browsing through Sky Sports transfer clock-watch, I stumbled upon a new enough update claiming that Newcastle United had bid £5m for Anthony Annan. The Ghanaian, who had a very good World Cup with the Africans is very much sought after, and whether this report has any accuracy or not remains to be seen. However, only a couple of days ago, Annan admitted that he  would love to play in the Premier League, but only after reported interest from Chelsea and Manchester United.
+After browsing through Sky Sports transfer clock-watch, I stumbled upon a new enough update claiming that Newcastle United had bid £5m for Anthony Annan. The Ghanaian, who had a very good World Cup with the Africans is very much sought after, and whether this report has any accuracy or not remains to be seen. However, only a couple of days ago, Annan admitted that he would love to play in the Premier League, but only after reported interest from Chelsea and Manchester United.
 
 I really cannot see Annan moving to Newcastle because there will be many bigger clubs after his services. Although, saying that, stranger things have happened, and United & Chelsea may well have no interest in him at all.
 

@@ -8,7 +8,7 @@ categories:
   - Site
 ---
 
-To be honest, I'm not in the best of moods today, mainly because France have cheated their way to the World Cup Finals in in South Africa at the expense of my nation, Ireland. Thierry Henry above all people blatantly handled the ball, not once but twice before laying it on William Gallas' head to head home an undeserved winner. I don't want to sound biased but obviously I  will as it's my country who have been denied a spot in South Africa. And to top things off, Shay Given our former keeper who kept us in many a game will yet again watch the World Cup at home, rather than take part in it.
+To be honest, I'm not in the best of moods today, mainly because France have cheated their way to the World Cup Finals in in South Africa at the expense of my nation, Ireland. Thierry Henry above all people blatantly handled the ball, not once but twice before laying it on William Gallas' head to head home an undeserved winner. I don't want to sound biased but obviously I will as it's my country who have been denied a spot in South Africa. And to top things off, Shay Given our former keeper who kept us in many a game will yet again watch the World Cup at home, rather than take part in it.
 
 As well as this, there are reports that Shola Ameobi could be called up the Nigerian squad which made the World Cup courtesy of Obafemi Martins and a late late strike.
 
@@ -22,4 +22,4 @@ Many thanks.
 
 Comments welcome 🙂
 
- [1]: http://www.gopetition.com/petitions/review-the-ireland-vs-france-qualifier-france/sign.html "THIS PETITION"
+[1]: http://www.gopetition.com/petitions/review-the-ireland-vs-france-qualifier-france/sign.html "THIS PETITION"

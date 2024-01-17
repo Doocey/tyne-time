@@ -11,7 +11,7 @@ categories:
 
 ### Pancrate - Nice pelter today against Watford
 
-Although Newcastle won again today against a rejuvenated Watford side, Chris Hughton is adamant that tougher ties await and that Newcastle will not escape as easily and they have done. Speaking today after a 2-0 home win against Watford in which saw new boy Fabrice Pancrate get his first in the Black and White Hughton said that tougher games await and that Lady Luck  won't shine on them as brightly as she has. Saying that, we'll never refuse a little rub of the green will we?
+Although Newcastle won again today against a rejuvenated Watford side, Chris Hughton is adamant that tougher ties await and that Newcastle will not escape as easily and they have done. Speaking today after a 2-0 home win against Watford in which saw new boy Fabrice Pancrate get his first in the Black and White Hughton said that tougher games await and that Lady Luck won't shine on them as brightly as she has. Saying that, we'll never refuse a little rub of the green will we?
 
 Hughton said :
 

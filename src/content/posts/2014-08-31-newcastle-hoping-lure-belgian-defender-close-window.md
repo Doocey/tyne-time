@@ -15,7 +15,7 @@ According to the well-respected Graeme Bailey formerly of Sky Sports, Newcastle 
 
 As many of you will know, Newcastle's interest in the Belgian dates back to 2010 when he was plying his trade with Ajax. Despite the definite interest, Toby made the move to Spain, signing a four-year deal with reigning La Liga champions. However, such a move has not worked out for the slick-haired defender and he is looking for a swift exit from the Spanish capital.
 
-According to the report in _Goal,_ Newcastle have won the race for his signature, although it seems to be a loan deal with an option to buy - a transfer tactic NUFC have employed in recent years (Loic Rémy, Luuk de Jong, Facundo Ferrerya).
+According to the report in *Goal,* Newcastle have won the race for his signature, although it seems to be a loan deal with an option to buy - a transfer tactic NUFC have employed in recent years (Loic Rémy, Luuk de Jong, Facundo Ferrerya).
 
 Alderweireld is a very good defender, with plenty of potential. He is also versatile and as you may have noticed, he played at right-back for Belgium during their World Cup campaign, and did quite well. Nevertheless, it seems as if Alan Pardew wants him to play centre-back alongside Coloccini, as Daryl Janmaat has the full-back position sewn up.
 

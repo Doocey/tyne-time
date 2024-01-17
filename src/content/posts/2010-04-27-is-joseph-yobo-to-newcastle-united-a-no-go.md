@@ -11,7 +11,7 @@ categories:
 
 ### Yobo - Linked with Toon switch, too old for the Magpies transfer plans?
 
-I've heard it all at this stage, from Ronaldinho to Newcastle United, and now to Carlos Puyol to the Magpies, but no, there's more! Steven Taylor has been today linked with a switch to Barcelona. Yes, Barcelona, not Birmingham, the Spanish giants and one of the best teams in the world. Where the media come up with this stuff is unbelievable but that would be the most ridiculous  rumour I've heard to date. Exactly why I'm not giving it it's own article.
+I've heard it all at this stage, from Ronaldinho to Newcastle United, and now to Carlos Puyol to the Magpies, but no, there's more! Steven Taylor has been today linked with a switch to Barcelona. Yes, Barcelona, not Birmingham, the Spanish giants and one of the best teams in the world. Where the media come up with this stuff is unbelievable but that would be the most ridiculous rumour I've heard to date. Exactly why I'm not giving it it's own article.
 
 Anyway, in the last week or so we've been linked with Everton's Joseph Yobo. The Nigerian defender has slightly fallen out of favour with David Moyes back four and he could well make the move from Goodison Park this summer. The question is, are Newcastle United interested in him?
 

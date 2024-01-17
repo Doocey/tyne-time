@@ -11,7 +11,7 @@ categories:
 
 ![Enrique - Looking good in his LB position behind Jonas](https://www1.pictures.zimbio.com/gi/Sheffield+United+v+Newcastle+United+Wyox1AMao8om.jpg "Jose Enrique - Newcastle United Defender")
 
-When it comes to players at Newcastle, who are knuckling down and attempting to get the job done, then Jose Enrique is certainly in the top five. The Spaniard who moved to Newcastle from Villareal for a hefty £6.3m fee failed to impress in his first season, under Big Sam. However, although people got on his back and labelled him as an accident waiting to happen, Enrique showed last  season and indeed this season of what he's capable of. I must say that I wasn't one of the people to get on his back, mainly because I saw a lot of talent in that lad and as you can see now, he's more than a decent LB.
+When it comes to players at Newcastle, who are knuckling down and attempting to get the job done, then Jose Enrique is certainly in the top five. The Spaniard who moved to Newcastle from Villareal for a hefty £6.3m fee failed to impress in his first season, under Big Sam. However, although people got on his back and labelled him as an accident waiting to happen, Enrique showed last season and indeed this season of what he's capable of. I must say that I wasn't one of the people to get on his back, mainly because I saw a lot of talent in that lad and as you can see now, he's more than a decent LB.
 
 It's not the first time Enrique has been linked with a move away from St.James' and certainly not the first time he's been linked to Sunderland either. It's understood that Steve Bruce is in the hunt for a new LB as George McCartney is suffering from injuries.
 

@@ -11,7 +11,7 @@ categories:
 
 ![Kevin Nolan](https://static.guim.co.uk/sys-images/Sport/Pix/pictures/2009/11/23/1259013216220/kevin-nolan-001.jpg)
 
-Another Kevin Nolan goal and indeed another one from Shola Ameobi. Still wasn't enough though. After 90 minutes of grueling and rumbustious play, it was yet again the home side that had the last laugh, with James O'Connor poking home in very controversial circumstances. Enough about that though, we were rusty today and in the end, not good enough to take home  the three points on offer. Saying that, all credit to Sheffield Wednesday, they hadn't scored in quite a while and needed to pick up form sooner rather then later, a draw with the leaders will no doubt do the trick.
+Another Kevin Nolan goal and indeed another one from Shola Ameobi. Still wasn't enough though. After 90 minutes of grueling and rumbustious play, it was yet again the home side that had the last laugh, with James O'Connor poking home in very controversial circumstances. Enough about that though, we were rusty today and in the end, not good enough to take home the three points on offer. Saying that, all credit to Sheffield Wednesday, they hadn't scored in quite a while and needed to pick up form sooner rather then later, a draw with the leaders will no doubt do the trick.
 
 Things didn't start too well for us either, poor defending led to Sheffield Wednesday's opener, Luke Varney the scorer. An instant reply saw Danny Guthrie cross brilliantly for Kevin Nolan who for me, scored one of the best headers I've seen all season. Simply nodding the ball beyond a wrong footed Grant.
 

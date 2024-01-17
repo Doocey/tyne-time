@@ -11,7 +11,7 @@ categories:
 
 ![Hughton - Managing the lads very well so far](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2009/11/5/1257445093217/chris-hughton-001.jpg)
 
-Top of the table, seven points clear and a bunch of players that want success for this club, and no, I'm not talking about BSC Young Boys in the Super League in Switzerland. Newcastle are doing well and a man by the name of Chris Hughton is doing his job very well indeed. When Hughton's name was mentioned with the permanent role as manager, a lot of people would've rather to have  had Ruud Gullit back than Chris, but how that has changed. I myself wasn't keen on seeing Chris as first team manager but after pre-season and friendlies in the Summer, my opinion changed drastically.
+Top of the table, seven points clear and a bunch of players that want success for this club, and no, I'm not talking about BSC Young Boys in the Super League in Switzerland. Newcastle are doing well and a man by the name of Chris Hughton is doing his job very well indeed. When Hughton's name was mentioned with the permanent role as manager, a lot of people would've rather to have had Ruud Gullit back than Chris, but how that has changed. I myself wasn't keen on seeing Chris as first team manager but after pre-season and friendlies in the Summer, my opinion changed drastically.
 
 Mainly because he was getting the best out of the players, there was a sense of safety within the camp even throughout the period in which Mike Ashley tried to sell the club.
 

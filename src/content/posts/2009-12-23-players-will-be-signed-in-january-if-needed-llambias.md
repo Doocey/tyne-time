@@ -12,7 +12,7 @@ categories:
 
 ### Ashley - Might actually invest in January in promotion bid
 
-There's some unbelievable news regarding Newcastle United today, Managing Director Derek Llambias has confirmed that Chris Hughton will be given cash to spend on new players if he needs. Ok, it mightn't be that unbelievable but it might come as a surprise to some fans. Speaking today, Llambias said that Chris will be supported in the January transfer window by Mike Ashley  and that it will be Chris's own players that arrive at the club, if any players happen to arrive at all.
+There's some unbelievable news regarding Newcastle United today, Managing Director Derek Llambias has confirmed that Chris Hughton will be given cash to spend on new players if he needs. Ok, it mightn't be that unbelievable but it might come as a surprise to some fans. Speaking today, Llambias said that Chris will be supported in the January transfer window by Mike Ashley and that it will be Chris's own players that arrive at the club, if any players happen to arrive at all.
 
 Speaking today, Llambias said :
 

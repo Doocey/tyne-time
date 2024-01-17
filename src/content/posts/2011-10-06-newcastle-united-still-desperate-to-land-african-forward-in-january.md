@@ -9,11 +9,12 @@ categories:
   - Alan Pardew
   - Newcastle United News
 ---
+
 ![Modibo Maiga in action for Sochaux in Ligue 1](https://www.tynetime.com/wp-content/uploads/2011/08/Modibo-Maiga-Newcastle.jpg "Modibo-Maiga-Newcastle")
 
 #### Maiga - Newcastle United still pressing hard to get a January transfer deal done
 
-Despite landing their main target in the summer to partner Leon Best/ Demba Ba Newcastle United still remain very keen on Modibo Maiga of Sochaux. In fact; they've been out to watch him since the window has closed with a plan to lure him to St.James' Park in January. The very fact that Carr & Pardew are so keen to land the striker must tell you something - the lad must have a lot of  potential in English football. Cheik Tioté, Hatem Ben Arfa, Sylvain Marveaux, and Yohan Cabaye were all advised by Graham Carr and they've turned out to be very good signings so far. Marveaux was a free transfer, Ben Arfa cost £5m, Tioté £3.5 and the classy Yohan Cabaye as little as £4.3m. If we looked to sell any of these players now, I'd be very surprised if they didn't gain double in value - perhaps with Hatem an exception. Even Marveaux would go for a few million as is; and he hasn't even got a full at the team yet.
+Despite landing their main target in the summer to partner Leon Best/ Demba Ba Newcastle United still remain very keen on Modibo Maiga of Sochaux. In fact; they've been out to watch him since the window has closed with a plan to lure him to St.James' Park in January. The very fact that Carr & Pardew are so keen to land the striker must tell you something - the lad must have a lot of potential in English football. Cheik Tioté, Hatem Ben Arfa, Sylvain Marveaux, and Yohan Cabaye were all advised by Graham Carr and they've turned out to be very good signings so far. Marveaux was a free transfer, Ben Arfa cost £5m, Tioté £3.5 and the classy Yohan Cabaye as little as £4.3m. If we looked to sell any of these players now, I'd be very surprised if they didn't gain double in value - perhaps with Hatem an exception. Even Marveaux would go for a few million as is; and he hasn't even got a full at the team yet.
 
 However, we do need a striker still despite the fine form Demba Ba & Leon Best. It's clear that Ba is going to be a very big player for Newcastle United this season and has the ability to hit double figures easily. With that said you get that feeling that we still lack up front. Nile Ranger seems to be out in the cold - Lovenkrands is losing his legs whilst Shola Ameobi is just - Shola Ameobi. The Mackem Slayer.
 

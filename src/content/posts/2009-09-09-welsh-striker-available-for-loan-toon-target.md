@@ -11,7 +11,7 @@ categories:
 
 ### Vokes - Bound for Tyneside?
 
-Sam Vokes, a prominent Sam Allardyce target during his short spell is being linked with a move to Newcastle United once again. The Welshman who was heavily linked with us last year could well be on his way to Tyneside after his boss, Mick McCarthy said he's more than willing to let the striker leave on loan. Wolves recruited talented Irish forward Kevin Doyle in the  summer and Vokes can't manage to push the other Irish striker Andy Keogh out of the team either. Vokes is a very good player, at Championship level at least and I wouldn't refuse him.
+Sam Vokes, a prominent Sam Allardyce target during his short spell is being linked with a move to Newcastle United once again. The Welshman who was heavily linked with us last year could well be on his way to Tyneside after his boss, Mick McCarthy said he's more than willing to let the striker leave on loan. Wolves recruited talented Irish forward Kevin Doyle in the summer and Vokes can't manage to push the other Irish striker Andy Keogh out of the team either. Vokes is a very good player, at Championship level at least and I wouldn't refuse him.
 
 When asked about Vokes, McCarthy said :
 

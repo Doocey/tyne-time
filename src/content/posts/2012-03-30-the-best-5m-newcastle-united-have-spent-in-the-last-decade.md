@@ -13,7 +13,7 @@ categories:
 
 #### Ben Arfa - Starting to show his raw potential in a Newcastle United shirt
 
-I think it is fair to say that Hatem Ben Arfa played his best ever 75 minutes in a Newcastle United shirt last Sunday against West Brom. His touch, pace, movement and vision crafted two goals for Papiss Cissé, before taking time out to score a beautiful effort himself. He didn't put a foot wrong all game long and ran riot any time he got the ball to his feet. If he wasn't setting up an attempt  for our two centre forwards - then he was busy holding on to the ball and resetting the pace of the game to his own liking.
+I think it is fair to say that Hatem Ben Arfa played his best ever 75 minutes in a Newcastle United shirt last Sunday against West Brom. His touch, pace, movement and vision crafted two goals for Papiss Cissé, before taking time out to score a beautiful effort himself. He didn't put a foot wrong all game long and ran riot any time he got the ball to his feet. If he wasn't setting up an attempt for our two centre forwards - then he was busy holding on to the ball and resetting the pace of the game to his own liking.
 
 The best thing about it all? [I knew that it was coming][1], and that it was only a matter of time before wor Benny began to terrorize defences into submission.
 
@@ -35,4 +35,4 @@ Chris Hughton, Graham Carr, Norman Wooster, Alan Pardew & even Mike Ashley: Well
 
 Comments welcome 🙂
 
- [1]: https://www.tynetime.com/2012/03/06/hatem-ben-arfa-has-the-potential-to-rip-apart-the-premier-league/ "hatem ben arfa "
+[1]: https://www.tynetime.com/2012/03/06/hatem-ben-arfa-has-the-potential-to-rip-apart-the-premier-league/ "hatem ben arfa "

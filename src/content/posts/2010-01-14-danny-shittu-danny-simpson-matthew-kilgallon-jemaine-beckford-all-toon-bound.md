@@ -1,5 +1,5 @@
 ---
-title: 'Danny Shittu, Danny Simpson, Matthew Kilgallon & Jemaine Beckford all Toon bound?'
+title: "Danny Shittu, Danny Simpson, Matthew Kilgallon & Jemaine Beckford all Toon bound?"
 author: Kevin Doocey
 type: post
 date: 2010-01-14T20:46:44+00:00
@@ -15,7 +15,7 @@ categories:
 
 ![Danny Shittu](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2009/3/21/1237656369513/Danny-Shittu-001.jpg "Shittu - On his way to Newcastle is reports are accurate amongst others")
 
-Sky Sports are reporting that Bolton's Danny Shittu could well arrive on Tyneside on a loan deal until the end of the season. The Nigerian hasn't really had much of a look in at the Reebok and with the arrival of Owen Coyle, Newcastle are hopeful they can borrow the 6'2 centre half. Just in case you don't know too much about him, he's 29 years of age, a Nigerian international  and has played for a fair few clubs in his time. He's hoping Newcastle United will be his latest venture, to a mixed reaction of many a Toon fan so it seems.
+Sky Sports are reporting that Bolton's Danny Shittu could well arrive on Tyneside on a loan deal until the end of the season. The Nigerian hasn't really had much of a look in at the Reebok and with the arrival of Owen Coyle, Newcastle are hopeful they can borrow the 6'2 centre half. Just in case you don't know too much about him, he's 29 years of age, a Nigerian international and has played for a fair few clubs in his time. He's hoping Newcastle United will be his latest venture, to a mixed reaction of many a Toon fan so it seems.
 
 Needless to say, Shittu could be quite good at Championship level and it's understood that QPR have been pipped at the post by Chris Hughton and his team for the Nigerian. Not only this, but a permanent deal for Danny Simpson also looks to be entering it's final stages., and I personally quite like this transfer.
 

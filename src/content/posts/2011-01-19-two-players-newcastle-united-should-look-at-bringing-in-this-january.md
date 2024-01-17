@@ -14,7 +14,7 @@ categories:
 
 That sick feeling of Sunderland's 93rd minute equaliser still lingers somewhat as I write this article, but it could have been worse; it could have been a 93rd winner for them, and our best striker could have handed in a transfer request the day after the game - Imagine that!
 
-However, we proved yet again yesterday that we are better than Sunderland on the pitch, and were so unlucky not to have done the double over  Steve Bruce's side. We were missing big Andy Carroll and Cheik Tioté for the game, so one might wonder what different they would have made if we had their presence. Transfer rumours still linger around Andy Carroll, and always will, but at this stage  I've got used to them and indeed ignore them now. Forget who want our players, let's have a look at what players we could bring in this January.
+However, we proved yet again yesterday that we are better than Sunderland on the pitch, and were so unlucky not to have done the double over Steve Bruce's side. We were missing big Andy Carroll and Cheik Tioté for the game, so one might wonder what different they would have made if we had their presence. Transfer rumours still linger around Andy Carroll, and always will, but at this stage  I've got used to them and indeed ignore them now. Forget who want our players, let's have a look at what players we could bring in this January.
 
 **Tyne Time** has chosen two players who they think would make very good additions to the squad, and compliment the team Chris Hughton has built, and indeed a team Alan Pardew is trying to improve.
 

@@ -11,7 +11,7 @@ categories:
 
 ![Andy Carroll responded pretty well to the recent commotion](https://static.guim.co.uk/sys-images/Football/Clubs/Club_Home/2009/12/14/1260799484455/Barnsley-v-Newcastle-Unit-001.jpg)
 
-Andy Carroll has responded extremely well to the bad news surrounding Newcastle United and indeed the incident between the two local lads, Steven Taylor and Carroll. In fact a goal on the hour mark away to a very good Doncaster side to secure a vital win in Newcastle United's season so far. In what's been a fairly smooth sailing season on Tyneside with Chris Hughton  and Colin Calderwood doing a very good job, Andy Carroll and his jaw-breaking scenario has caused some unwelcome bad vibes around the Toon. You wouldn't have thought that though when Andy Carroll latched onto Routledge's through ball to finish at the Keepmoat Stadium.
+Andy Carroll has responded extremely well to the bad news surrounding Newcastle United and indeed the incident between the two local lads, Steven Taylor and Carroll. In fact a goal on the hour mark away to a very good Doncaster side to secure a vital win in Newcastle United's season so far. In what's been a fairly smooth sailing season on Tyneside with Chris Hughton and Colin Calderwood doing a very good job, Andy Carroll and his jaw-breaking scenario has caused some unwelcome bad vibes around the Toon. You wouldn't have thought that though when Andy Carroll latched onto Routledge's through ball to finish at the Keepmoat Stadium.
 
 Newcastle United are no strangers to controversy and have one of England's most controversial characters on the books in Joey Barton. We needn't bring any memories back of the nightmare he caused to Newcastle and we're still not fully convinced that he's changed for the 3rd time now.
 

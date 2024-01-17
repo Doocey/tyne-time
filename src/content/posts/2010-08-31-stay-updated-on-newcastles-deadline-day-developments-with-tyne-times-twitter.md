@@ -11,7 +11,7 @@ categories:
 
 ### Carroll - Has been looked at throughout the window but staying put
 
-It's the day every fan loves, it's just like Christmas, your Birthday, a bank holiday and Easter all rolled in together. That day is here, the final day of the summer transfer window. Often a day when some managers panic and buy a couple of players for overinflated prices and end up being flops, or where other managers snatch a coup in the last minute to save their clubs season. Either  way, it's a very exciting day indeed.
+It's the day every fan loves, it's just like Christmas, your Birthday, a bank holiday and Easter all rolled in together. That day is here, the final day of the summer transfer window. Often a day when some managers panic and buy a couple of players for overinflated prices and end up being flops, or where other managers snatch a coup in the last minute to save their clubs season. Either way, it's a very exciting day indeed.
 
 Tyne Time promises to keep you updated on anything Newcastle United, any rumours we hear and indeed if there happens to be any developments at all. Instead of writing long, time consuming article for your to decipher through, we have a Twitter, where you get small messages, telling you just what you need to know, and straight to your desktop. Easy, quick and simple.
 

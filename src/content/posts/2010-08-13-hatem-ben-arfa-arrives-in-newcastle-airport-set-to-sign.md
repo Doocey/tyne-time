@@ -12,7 +12,7 @@ categories:
 
 ### Hatem Ben Arfa - Spotted in Newcastle Airport - signing soon?
 
-Well the situation goes on! Even after Marseille president claiming Ben Arfa would be staying in France with L'OM, and even after Hughton admitted he didn't know where the rumours of this supposed capture were coming from - Hatem Ben Arfa has been spotted in Newcastle Airport. Whether this is true, or just unbelievable Photoshoppin', either way there's questions  still to be answered.
+Well the situation goes on! Even after Marseille president claiming Ben Arfa would be staying in France with L'OM, and even after Hughton admitted he didn't know where the rumours of this supposed capture were coming from - Hatem Ben Arfa has been spotted in Newcastle Airport. Whether this is true, or just unbelievable Photoshoppin', either way there's questions still to be answered.
 
 **More to follow on this story**, but credit to Talk Of The Tyne for this upload, and indeed an Indian reader named _Mithun_, who showed me.
 

@@ -12,7 +12,7 @@ categories:
 
 ![Neil Lennon looks on from the sidelines at Celtic Park](https://www.tynetime.com/wp-content/uploads/2014/05/Neil-Lennon-Celtic.jpg "Lennon - Will surely look to test his credentials in the Premier League in the future?")
 
-While Newcastle United prepare for their daunting trip to Anfield on Sunday, it is well reported that Mike Ashley will sit down with current manager Alan Pardew and thrash out details of how the 2013/14 Premier League campaign unfolded. Many of the reputable news outlets are insistent that Pardew's future will be under major review when this meeting takes place, and that more than likely he could relieved of his duties as manager. With that in mind - and it is fair to say almost all Newcastle fans would like to see a new boss, it is worth considering the potential replacements. While David Moyes, Frank de Boer (wishful thinking), Tony Pulis (hopefully not), Steve Bruce, and Michael Laudrup have all been mentioned as possibilities for the role, I want to take a look at a man who has  not really been associated with the Magpies.
+While Newcastle United prepare for their daunting trip to Anfield on Sunday, it is well reported that Mike Ashley will sit down with current manager Alan Pardew and thrash out details of how the 2013/14 Premier League campaign unfolded. Many of the reputable news outlets are insistent that Pardew's future will be under major review when this meeting takes place, and that more than likely he could relieved of his duties as manager. With that in mind - and it is fair to say almost all Newcastle fans would like to see a new boss, it is worth considering the potential replacements. While David Moyes, Frank de Boer (wishful thinking), Tony Pulis (hopefully not), Steve Bruce, and Michael Laudrup have all been mentioned as possibilities for the role, I want to take a look at a man who has not really been associated with the Magpies.
 
 **Neil Lennon - What would he bring?**
 
@@ -28,7 +28,7 @@ In summary - Lennon has shown his credentials in Europe as well as domestically,
 
 As the caption of this article states, one would expect Lennon to look for a new challenge in the near future. He has won everything to speak of in Scotland and cannot achieve much more with the Bhoys.
 
-If he was to be considered as next Newcastle manager, he would represent someone who I believe could make a seamless transition. He is used to working under _financial restrictions_ at Celtic and has been often forced to _sell his best players_ with Victor Wanyama and Gary Hooper just two examples of such cases.
+If he was to be considered as next Newcastle manager, he would represent someone who I believe could make a seamless transition. He is used to working under *financial restrictions* at Celtic and has been often forced to *sell his best players* with Victor Wanyama and Gary Hooper just two examples of such cases.
 
 Realistically he would have more money to work with on Tyneside and could probably attract a higher quality of player, maybe he would even look to bring a couple from Celtic (Fraser Forster, van Dijk). In that regard - Lennon would have no problem with the working restrictions at the Toon.
 

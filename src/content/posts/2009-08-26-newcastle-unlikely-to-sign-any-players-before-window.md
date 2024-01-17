@@ -8,9 +8,10 @@ categories:
   - Danny Simpson
   - Newcastle United News
 ---
+
 ### Simpson - Only arrival this summer
 
-Danny Simpson's arrival from Manchester United a while back has been Newcastle's only 'signing' of the summer, so far. Mind you, it's only a loan deal and lasts to January, which is pretty poor if you ask me. I can't see why Newcastle don't look to loan Macheda, or Fabio or indeed  his brother Rafael.
+Danny Simpson's arrival from Manchester United a while back has been Newcastle's only 'signing' of the summer, so far. Mind you, it's only a loan deal and lasts to January, which is pretty poor if you ask me. I can't see why Newcastle don't look to loan Macheda, or Fabio or indeed his brother Rafael.
 
 There are plenty of players, as I've said many times before, that would join Newcastle in a flash, now more than ever, after our good start to the Coca Cola Championship campaign. Thing is, the only transfer activity at Newcastle will be the exit door, and eight players have already fled from Tyneside.
 

@@ -14,7 +14,7 @@ categories:
 
 #### Hoilett - Out of contract in the summer and NUFC could do with a new winger
 
-If you followed today's Premier League games then you'll definitely have noticed Blackburn's win away at Wolves, and Junior Hoilett's goal haul in that game. The winger scored twice to clinch three crucial points of Steve Kean's side as they look to pull away from the dreaded relegation zone. The forward is out of contract in the summer according to reports and it will be hard for the Blackburn  hierarchy to hold onto him with many clubs sniffing around. United, Liverpool, Spurs and indeed ourselves have been credited with interest in the Canadian and with no transfer fee in question - you can see why.
+If you followed today's Premier League games then you'll definitely have noticed Blackburn's win away at Wolves, and Junior Hoilett's goal haul in that game. The winger scored twice to clinch three crucial points of Steve Kean's side as they look to pull away from the dreaded relegation zone. The forward is out of contract in the summer according to reports and it will be hard for the Blackburn hierarchy to hold onto him with many clubs sniffing around. United, Liverpool, Spurs and indeed ourselves have been credited with interest in the Canadian and with no transfer fee in question - you can see why.
 
 Hatem Ben Arfa, Jonas and even Guthrie can play the wings - with HBA and Danny more right sided. Hoilett can play on either wing from what I've seen of him this season, or even up front; offering any club something going forward.
 

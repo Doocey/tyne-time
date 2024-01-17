@@ -1,6 +1,6 @@
 ---
 title: Newcastle United 'agree deal' for Rémy Cabella
-description: 'Son of Montpellier owner Louis Nicollin has this evening confirmed that Newcastle United have agreed a fee for their prized-asset Rémy Cabella.'
+description: "Son of Montpellier owner Louis Nicollin has this evening confirmed that Newcastle United have agreed a fee for their prized-asset Rémy Cabella."
 author: Kevin Doocey
 type: post
 date: 2014-07-11T16:09:19+00:00

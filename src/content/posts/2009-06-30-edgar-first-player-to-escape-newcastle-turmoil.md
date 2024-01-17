@@ -10,6 +10,6 @@ categories:
 
 ![Edgar - Well never forget that goal](https://newsimg.bbc.co.uk/media/images/42404000/jpg/_42404029_edgar_pa416.jpg)
 
-Well it's not the news we're looking for but it's news all the same. David Edgar, Newcastle's backup defender has opted  to join newly promoted Burnley on a 4 year deal. Edgar's contract ran out today but it so happened he was offered an extension (by who?) but he didn't like what he saw on it. We wish David the very best of luck and are sure he'll be more than decent for his new side. We'll never forget that goal v Manchester United to grab a point, or indeed his solid performances throughout the years.
+Well it's not the news we're looking for but it's news all the same. David Edgar, Newcastle's backup defender has opted to join newly promoted Burnley on a 4 year deal. Edgar's contract ran out today but it so happened he was offered an extension (by who?) but he didn't like what he saw on it. We wish David the very best of luck and are sure he'll be more than decent for his new side. We'll never forget that goal v Manchester United to grab a point, or indeed his solid performances throughout the years.
 
 Comments appreciated 🙂

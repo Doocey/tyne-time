@@ -1,5 +1,5 @@
 ---
-title: 'Southampton 2-0 Newcastle United: Diabolical performance adds to disappointing defeat'
+title: "Southampton 2-0 Newcastle United: Diabolical performance adds to disappointing defeat"
 author: Kevin Doocey
 type: post
 date: 2012-11-25T19:03:28+00:00
@@ -13,7 +13,7 @@ categories:
 
 #### Pardew - Tactical inefficiency costing Newcastle United for 3rd game running
 
-As I am sure you know by now if you have read my blog for any considerable length of time; I'm probably one of the most optimistic Newcastle United supporters you'll met. Optimistic, not unrealistic. However, today's performance away at newly promoted Southampton was nothing less than depressing even for the most hopeful of us. We were truly atrocious. In fact, I have never seen such a poor performance since the season we were relegated back in 2009, but the less we talk about that, the better. I find it quite funny the sudden change in morale at a club, from supporters all the way to the players on the pitch after a positive result. Southampton's  away win at ailing Queens Park Rangers had them going into today's encounter against us in great spirits and from the first whistle, you had the feeling there was only going to be one outcome. Sadly, those feelings were proven true.
+As I am sure you know by now if you have read my blog for any considerable length of time; I'm probably one of the most optimistic Newcastle United supporters you'll met. Optimistic, not unrealistic. However, today's performance away at newly promoted Southampton was nothing less than depressing even for the most hopeful of us. We were truly atrocious. In fact, I have never seen such a poor performance since the season we were relegated back in 2009, but the less we talk about that, the better. I find it quite funny the sudden change in morale at a club, from supporters all the way to the players on the pitch after a positive result. Southampton's away win at ailing Queens Park Rangers had them going into today's encounter against us in great spirits and from the first whistle, you had the feeling there was only going to be one outcome. Sadly, those feelings were proven true.
 
 Two goals from Adam Lallana and Gaston Ramiréz either side of the break helped the Premier League's new boys a second win on the go, and picking up such momentum as we come into Christmas is imperative if Adkin's side want to remain in the top flight.
 
@@ -21,7 +21,7 @@ Today, we made Southampton look as they were an established Premier League team,
 
 One of the guys I follow on Twitter phrased it quite aptly with the following Tweet:
 
-> We are absolutely sh**e. Making average footballers look like Spanish internationals.
+> We are absolutely sh\*\*e. Making average footballers look like Spanish internationals.
 
 Sadly, it is true. Our ball retention was absolutely woeful. Yet, despite after 33 times of trying the long-ball up to an isolated Demba Ba, we still continued to hoof it, quite literally, right back the opposition.
 
@@ -65,5 +65,5 @@ Feel free to follow us on Twitter [@TyneTime][1] or if you fancy following the a
 
 Comments welcome as always 🙂
 
- [1]: https://twitter.com/tynetime
- [2]: https://twitter.com/kevindoocey
+[1]: https://twitter.com/tynetime
+[2]: https://twitter.com/kevindoocey

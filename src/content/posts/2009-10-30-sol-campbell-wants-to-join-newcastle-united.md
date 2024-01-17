@@ -11,7 +11,7 @@ categories:
 
 ### Campbell - Newcastle his preferred destination
 
-Sol Campbell has today came out and told Sky Sports News that he wants to join Newcastle United. Campbell who is a free transfer after leaving Notts County after only one game, is hoping for a switch to Newcastle, after he settles his contract dispute with his former club. It's quite random news and it will be interesting to see whether Chris is interested in signing him. Only a  few months ago, Newcastle were reportedly interested in securing his services but it's understood that his wage demands were too high and opted for the League 2 side.
+Sol Campbell has today came out and told Sky Sports News that he wants to join Newcastle United. Campbell who is a free transfer after leaving Notts County after only one game, is hoping for a switch to Newcastle, after he settles his contract dispute with his former club. It's quite random news and it will be interesting to see whether Chris is interested in signing him. Only a few months ago, Newcastle were reportedly interested in securing his services but it's understood that his wage demands were too high and opted for the League 2 side.
 
 He said :
 

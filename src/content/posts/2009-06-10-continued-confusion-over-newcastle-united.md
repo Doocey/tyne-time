@@ -10,7 +10,7 @@ categories:
 
 ### Bassong - Looking to leave St.James Park
 
-Apparently yesterday Profitable Groupe were interested in buying Newcastle United Football Club. Earlier this morning Derek Llambias has rubbished these rumours and says there has been no  contact from this group. He said however, they were in talks with 4 potential buying groups , none of the names disclosed. It seemed a little too perfect what they were saying, making St.James' 60,000 seater, Alan Shearer as manager and run it as a similar mould as Barcelona where the fans have a major say. As much as Llambias has denied it, The Chronicle (local newspaper) has continued in their quest about 'serious' interest from the Far East.
+Apparently yesterday Profitable Groupe were interested in buying Newcastle United Football Club. Earlier this morning Derek Llambias has rubbished these rumours and says there has been no contact from this group. He said however, they were in talks with 4 potential buying groups , none of the names disclosed. It seemed a little too perfect what they were saying, making St.James' 60,000 seater, Alan Shearer as manager and run it as a similar mould as Barcelona where the fans have a major say. As much as Llambias has denied it, The Chronicle (local newspaper) has continued in their quest about 'serious' interest from the Far East.
 
 A source told the Chronicle :
 

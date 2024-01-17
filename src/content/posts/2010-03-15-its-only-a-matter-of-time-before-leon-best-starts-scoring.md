@@ -12,7 +12,7 @@ categories:
 
 ### Best - Only needs his first goal for the club and more will follow
 
-A lot of people have doubted the talent of Leon Best in the last few weeks and are concerned that he might have been a poor signing from Chris Hughton. Leon arrived on Tyneside in a dream move (for him) on the last day of the transfer window in January of this year. The former Coventry striker had scored reached double figures in the league with Coventry up until his move but he  is yet to bag his first goal for Newcastle United in what's been a very successful Coca Cola Championship campaign.
+A lot of people have doubted the talent of Leon Best in the last few weeks and are concerned that he might have been a poor signing from Chris Hughton. Leon arrived on Tyneside in a dream move (for him) on the last day of the transfer window in January of this year. The former Coventry striker had scored reached double figures in the league with Coventry up until his move but he is yet to bag his first goal for Newcastle United in what's been a very successful Coca Cola Championship campaign.
 
 For me, it's only a matter of time before the Irishman scores his first goal in Black & White, and when he hits hie debut goal then I'm very confident it won't be his last. We've seen it through the years that a lot of strikers only need one goal for belief and they can go on and score bucket-loads.
 

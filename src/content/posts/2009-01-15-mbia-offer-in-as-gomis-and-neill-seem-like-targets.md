@@ -6,7 +6,6 @@ date: 2009-01-15T16:29:44+00:00
 url: /2009/01/15/mbia-offer-in-as-gomis-and-neill-seem-like-targets/
 categories:
   - Newcastle United News
-
 ---
 
 ### Gomis - Toon look to Frenchman again?

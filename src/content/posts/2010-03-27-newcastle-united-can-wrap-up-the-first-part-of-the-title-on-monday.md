@@ -11,7 +11,7 @@ categories:
 
 ![Chris Hughton has one hand on the Coca Cola Championship title already](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2009/10/22/1256233158532/Chris-Hughton-001.jpg)
 
-West Bromwich Albion seem to love scoring in the last <span style="text-decoration: line-through;">15</span> **5** minutes of their games as we've seen them ditch their 1 point for a more desirable 3 in the dying minutes of many a game this season. Graham Dorrans has been in flying form this season and will no doubt have caught the eye of a couple of Premier League teams in the process of keeping West Brom's automatic promotion  hopes alive. If you ask an experienced Toon fan and 'blogger like me, the title is all but Newcastle United's. 😀
+West Bromwich Albion seem to love scoring in the last <span style="text-decoration: line-through;">15</span> **5** minutes of their games as we've seen them ditch their 1 point for a more desirable 3 in the dying minutes of many a game this season. Graham Dorrans has been in flying form this season and will no doubt have caught the eye of a couple of Premier League teams in the process of keeping West Brom's automatic promotion hopes alive. If you ask an experienced Toon fan and 'blogger like me, the title is all but Newcastle United's. 😀
 
 It's been a long time since Newcastle United lifted a trophy and we can't really class the Coca Cola Championship (should we win it outright), as a major piece of silverware. Instant promotion was mandatory for some of Newcastle's higher earners.
 

@@ -11,6 +11,6 @@ categories:
 
 ### Robert Kuok - Nearly as good looking as his bank balance
 
-According to BBC Radio, Derek Llambias was  showing a Malaysian bidder around St.James' Park. This news has only broken so it's in, its infancy details-wise. Apparently the bidder could be a representative of Robert Kuok, who is worth $10bn as of last year. That is some fortune to have, indeed his nickname is 'Sugar King of Asia' because he is responsible for about 10% of the worlds sugar! To make it even better , he's a modest and quiet man that keeps to himself, perfect for Newcastle United if you ask me. However he may not be involved at all or indeed the rumors mightn't be true either. We'll just have to wait and see - per usual.
+According to BBC Radio, Derek Llambias was showing a Malaysian bidder around St.James' Park. This news has only broken so it's in, its infancy details-wise. Apparently the bidder could be a representative of Robert Kuok, who is worth $10bn as of last year. That is some fortune to have, indeed his nickname is 'Sugar King of Asia' because he is responsible for about 10% of the worlds sugar! To make it even better , he's a modest and quiet man that keeps to himself, perfect for Newcastle United if you ask me. However he may not be involved at all or indeed the rumors mightn't be true either. We'll just have to wait and see - per usual.
 
 Comments appreciated 🙂

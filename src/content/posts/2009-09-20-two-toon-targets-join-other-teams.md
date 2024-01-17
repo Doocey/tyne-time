@@ -10,7 +10,7 @@ categories:
   - Newcastle United News
 ---
 
-Newcastle United have missed out on the chance of grabbing two strikers after the duo completed loan moves other Championship teams. James Vaughan, Everton's striker join Derby County on loan whilst Irishman and Hull hitman, Caleb Folan completed his much awaited move to Middlesbrough. Both were targets of Newcastle, as confirmed by Chris himself and it's  quite disappointing to lose out, especially on James Vaughan who could've been excellent for us this season as we hope for a immediate return to the Premier League.
+Newcastle United have missed out on the chance of grabbing two strikers after the duo completed loan moves other Championship teams. James Vaughan, Everton's striker join Derby County on loan whilst Irishman and Hull hitman, Caleb Folan completed his much awaited move to Middlesbrough. Both were targets of Newcastle, as confirmed by Chris himself and it's quite disappointing to lose out, especially on James Vaughan who could've been excellent for us this season as we hope for a immediate return to the Premier League.
 
 Derby County, managed by Nigel Clough snapped up the pacey striker ahead of Chris Hughton, although it's still unknown whether Chris made an offer on behalf of NUFC.
 

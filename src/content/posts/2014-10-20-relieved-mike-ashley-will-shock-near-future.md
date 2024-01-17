@@ -27,7 +27,7 @@ In fact, Obertan's goal came from a sustained period of pressure from the visito
 
 What caught my eye and had me shaking my head was when a number of Newcastle players made a dart for the corner flag with five minutes of normal time remaining.
 
-1-0 up _at home_ against _a newly promoted side_ with _85 minutes gone_ and we head to the corner flag to waste time. There are no words.
+1-0 up *at home* against *a newly promoted side* with _85 minutes gone_ and we head to the corner flag to waste time. There are no words.
 
 ### **Mike Ashley's dart to the dressing-room:**
 

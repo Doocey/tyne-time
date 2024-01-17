@@ -13,7 +13,7 @@ categories:
 
 There are a lot of Newcastle United fans overreacting right now, following a disappointing defeat to West Ham United. However, to say that Newcastle United performed quite miserably today would be a slight understatement. Up against old boys Kevin Nolan and Andy Carroll, it was almost written in the script that one of them would net against us, but to grab the three points is another matter.
 
-In quite a sluggish first half, neither side showed much ambition to be fair. Newcastle tried to release Ben Arfa on countless occasions and despite all his classy dribbling, and checking in and out, no one looked for the ball. Moves  broke down, far too frequently. In the end, our hesitancy and lack of fluidity gave West Ham to the ability to change the pace of the game to their liking, and as we know: Kevin Nolan netted a very characteristic poacher's effort inside the six yard box.
+In quite a sluggish first half, neither side showed much ambition to be fair. Newcastle tried to release Ben Arfa on countless occasions and despite all his classy dribbling, and checking in and out, no one looked for the ball. Moves broke down, far too frequently. In the end, our hesitancy and lack of fluidity gave West Ham to the ability to change the pace of the game to their liking, and as we know: Kevin Nolan netted a very characteristic poacher's effort inside the six yard box.
 
 The second half didn't get much better. We swapped an ineffective Cissé for Shola Ameobi, to no avail.
 

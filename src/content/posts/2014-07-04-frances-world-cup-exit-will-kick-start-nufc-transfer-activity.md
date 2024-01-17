@@ -15,7 +15,7 @@ In a rather turgid affair, Germany secured a hard-fought 1-0 victory over France
 
 Rémy Cabella, a latecomer to the France setup, did not play one minute in Brazil, much to the disappointment of Montpellier chairman Louis Nicollin who was hoping that any performances at the World Cup would boost his price tag by at least €5-10m. Thankfully, Cabella's place on the bench throughout the tournament should mean Newcastle will be relatively unrivalled in their pursuit of the 23 year-old.
 
-Newcastle's next signing will likely come _after_ Debuchy departs. While there hasn't been anything concrete regards Mathieu's move away, I  would be absolutely shocked if he lines out in Black and White in the Premier League come September. At 28 years of age and being on the better right-backs in Europe, you can't blame the ex-Lille man for wanting to play in the Champions League. Arsenal seems a good destination for him.
+Newcastle's next signing will likely come _after_ Debuchy departs. While there hasn't been anything concrete regards Mathieu's move away, I would be absolutely shocked if he lines out in Black and White in the Premier League come September. At 28 years of age and being on the better right-backs in Europe, you can't blame the ex-Lille man for wanting to play in the Champions League. Arsenal seems a good destination for him.
 
 Overall, the France's exit will likely see some definitive transfer action on part of Newcastle. I would hazard a guess that it could well see one in (Cabella), one out (Debuchy) within the next 7 days.
 

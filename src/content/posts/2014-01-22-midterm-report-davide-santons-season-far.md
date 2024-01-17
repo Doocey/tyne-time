@@ -1,5 +1,5 @@
 ---
-title: 'Midterm Report: Davide Santon’s season so far'
+title: "Midterm Report: Davide Santon’s season so far"
 author: Kevin Doocey
 type: post
 date: 2014-01-22T17:30:05+00:00
@@ -12,7 +12,7 @@ categories:
 
 ![Davide Santon in action for Newcastle United against Manchester City](https://www.tynetime.com/wp-content/uploads/2014/01/Davide-Santon-Newcastle-United-EPL.jpg "Santon - Has been a consistent performer at Newcastle since arriving from Inter")
 
-Current Chelsea manager Jose Mourinho once told reporters that one of his few regrets during his time at Inter Milan was his decision to let Davide Santon leave. The young Italian joined Newcastle United in August 2011 for a fee of £5m, and has fast become a important starter in the NUFC team. His attacking ability and technical awareness made him an ideal full-back to recruit, and replaced Jose Enrique aptly. Santon arrived with huge potential and I remember classing the buy as a major coup as I had joked during that summer that Newcastle needed someone like Davide — so when he did arrive it marked a major signing in my book. My opinion has not changed and Santon is Newcastle's first choice left-back and hopefully  will be for years to come. The question is: how has he fared out in the 2013/14 campaign so far?
+Current Chelsea manager Jose Mourinho once told reporters that one of his few regrets during his time at Inter Milan was his decision to let Davide Santon leave. The young Italian joined Newcastle United in August 2011 for a fee of £5m, and has fast become a important starter in the NUFC team. His attacking ability and technical awareness made him an ideal full-back to recruit, and replaced Jose Enrique aptly. Santon arrived with huge potential and I remember classing the buy as a major coup as I had joked during that summer that Newcastle needed someone like Davide — so when he did arrive it marked a major signing in my book. My opinion has not changed and Santon is Newcastle's first choice left-back and hopefully will be for years to come. The question is: how has he fared out in the 2013/14 campaign so far?
 
 Here are our thoughts on the Italian's form:
 

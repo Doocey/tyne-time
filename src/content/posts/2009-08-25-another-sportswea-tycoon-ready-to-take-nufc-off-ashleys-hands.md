@@ -12,7 +12,7 @@ categories:
 
 ### Sheard - Supposedly watched the Palace game
 
-Things are never dull at Newcastle, not for one minute. All of a sudden we're being taken over, then we have a deadline set, and then the deadline delayed. The latest gust of news/rumours/(made up nonsense), is that  Newcastle United have a new bidder. In the Chronicle in the last few minutes, Lee Ryder has posted up a ground breaking (well not really) story, that Geoff Sheard is making a bid for the Magpies. Sheard, who will be mainly known for his failed takeover at Sheffield Wednesday, is apparently interested in taking the troubled club off a fellow sportswear tycoon, Mike Ashley.
+Things are never dull at Newcastle, not for one minute. All of a sudden we're being taken over, then we have a deadline set, and then the deadline delayed. The latest gust of news/rumours/(made up nonsense), is that Newcastle United have a new bidder. In the Chronicle in the last few minutes, Lee Ryder has posted up a ground breaking (well not really) story, that Geoff Sheard is making a bid for the Magpies. Sheard, who will be mainly known for his failed takeover at Sheffield Wednesday, is apparently interested in taking the troubled club off a fellow sportswear tycoon, Mike Ashley.
 
 Speaking today, Llambias said :
 

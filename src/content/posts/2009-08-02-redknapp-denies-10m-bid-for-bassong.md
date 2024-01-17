@@ -11,7 +11,7 @@ categories:
 
 ![Harry - Interested in Bassong but has not bid](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2008/05/23/HarryRedknappActionCarlRecine.jpg)
 
-Just as it seems we'd be getting good money for our Frenchman Sebastien Bassong, Harry Redknapp has denied the rumours that he's bid £10m for the centre back. Speaking today, Redknapp confirmed that  Sebastien is a player he'd interested in and will probably bid at some stage for the 23 year-old. Reports were rife today from Sky Sports that an initial bid has been rejected but Harry said he knows nothing about the bid, although he said that he didn't 'think' the chairman, Daniel Levy had submitted the bid without his consent.
+Just as it seems we'd be getting good money for our Frenchman Sebastien Bassong, Harry Redknapp has denied the rumours that he's bid £10m for the centre back. Speaking today, Redknapp confirmed that Sebastien is a player he'd interested in and will probably bid at some stage for the 23 year-old. Reports were rife today from Sky Sports that an initial bid has been rejected but Harry said he knows nothing about the bid, although he said that he didn't 'think' the chairman, Daniel Levy had submitted the bid without his consent.
 
 Redknapp said :
 

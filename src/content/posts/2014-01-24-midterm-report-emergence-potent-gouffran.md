@@ -1,5 +1,5 @@
 ---
-title: 'Midterm Report: The emergence of a potent Gouffran'
+title: "Midterm Report: The emergence of a potent Gouffran"
 author: Kevin Doocey
 type: post
 date: 2014-01-24T19:58:09+00:00
@@ -12,7 +12,7 @@ categories:
 
 ![Yoan Gouffran celebrates scoring the winner against Aston Villa](https://www.tynetime.com/wp-content/uploads/2014/01/Yoan-Gouffran-Newcastle-United.jpg "Gouffran - Has settled well on at Newcastle United since his move from Bordeaux")
 
-When Yoan Gouffran was linked with a move to Newcastle United this time last year, the most bizarre rumour appeared about the Frenchman. Reports from France suggested that Gouffran was allergic to grass, which worried some Newcastle fans. Later we all found out that he is allergic to certain species of trees and not grass, otherwise how would he have become a successful, professional footballer?! In January of 2013 Newcastle parted with £600,000 to land the Bordeaux forward who had impressed Alan Pardew in his performance against the Magpies in a Europa League group stage game and also happened to be in the final six months of his contract at the French club. Arriving alongside Mapou Yanga-Mbiwa, Mathieu Debuchy, Moussa Sissoko, and Massadio Haidara he arrived under the radar and considering he had cost less than a million pounds, he didn't  land on Tyneside with huge expectations. He did quite well in his first season in English football and showed signs that he would prove a very important team player in the coming years.
+When Yoan Gouffran was linked with a move to Newcastle United this time last year, the most bizarre rumour appeared about the Frenchman. Reports from France suggested that Gouffran was allergic to grass, which worried some Newcastle fans. Later we all found out that he is allergic to certain species of trees and not grass, otherwise how would he have become a successful, professional footballer?! In January of 2013 Newcastle parted with £600,000 to land the Bordeaux forward who had impressed Alan Pardew in his performance against the Magpies in a Europa League group stage game and also happened to be in the final six months of his contract at the French club. Arriving alongside Mapou Yanga-Mbiwa, Mathieu Debuchy, Moussa Sissoko, and Massadio Haidara he arrived under the radar and considering he had cost less than a million pounds, he didn't land on Tyneside with huge expectations. He did quite well in his first season in English football and showed signs that he would prove a very important team player in the coming years.
 
 The question is, how has he fared out in the 2013/14 campaign?
 

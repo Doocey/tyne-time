@@ -10,10 +10,10 @@ categories:
 ---
 
 ![Luke James of Hartlepool appeals for a decision during a match](https://www.tynetime.com/wp-content/uploads/2012/05/Luke-James-Hartlepool.jpg "Luke-James-Hartlepool")
-  
+
 #### James - Newcastle United building for the future and looking towards English
 
-While Newcastle United's transfer focus revolves around a certain Romain Amalfitano and his imminent move to St.James' Park, SkySports are reporting that Luke James, of Hartlepool is subject to an approach from the North East's biggest club. James, at just 17 years old has burst on to the scene in League 1 - or apparently so - and NUFC alongside relegated Bolton, and Scottish champions Celtic chase his signature. First off, it's great to see we are looking at young English talent  and our youth-system work is well and truly moving through the gears - it is very encouraging to see us eyeing up potential stars of the game that's for sure.
+While Newcastle United's transfer focus revolves around a certain Romain Amalfitano and his imminent move to St.James' Park, SkySports are reporting that Luke James, of Hartlepool is subject to an approach from the North East's biggest club. James, at just 17 years old has burst on to the scene in League 1 - or apparently so - and NUFC alongside relegated Bolton, and Scottish champions Celtic chase his signature. First off, it's great to see we are looking at young English talent and our youth-system work is well and truly moving through the gears - it is very encouraging to see us eyeing up potential stars of the game that's for sure.
 
 The most interesting about it all, and you can read the article on [SkySports here][1], is the fact we have supposedly already submitted a bid for the midfielder. So, that says to me that the Newcastle scouting team were watching him all last season in League 1 and with the summer approaching, are now ready to offer cash and sign the youngster up.
 
@@ -23,4 +23,4 @@ If there's any Hartlepool fans reading this, it would be great to hear what you'
 
 Comments welcome 🙂
 
- [1]: http://www.skysports.com/football/news/11719/7773221/Trio-leading-race-for-James
+[1]: http://www.skysports.com/football/news/11719/7773221/Trio-leading-race-for-James

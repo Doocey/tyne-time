@@ -1,5 +1,5 @@
 ---
-title: 'Tyne Time v Dean Midas Maynard – Week #3'
+title: "Tyne Time v Dean Midas Maynard – Week #3"
 author: Kevin Doocey
 type: post
 date: 2010-03-17T19:44:16+00:00
@@ -9,7 +9,7 @@ categories:
   - Newcastle United News
 ---
 
-For the third week running, we bring the tipping challenge of the century, between Tyne Time and one of the Worlds Leading Sports Psychics, Dean Midas Maynard. Last week we predicted a Newcastle United win away to Middlesbrough but neither of us gained any points because of the draw. I predicted a 1-3 Toon win so we got the four goals part right whereas  Dean was spot on the exact amount of goals Newcastle United scored in the game. Tonight we're up against Scunthorpe and we really hope for 3 points more than anything 🙂
+For the third week running, we bring the tipping challenge of the century, between Tyne Time and one of the Worlds Leading Sports Psychics, Dean Midas Maynard. Last week we predicted a Newcastle United win away to Middlesbrough but neither of us gained any points because of the draw. I predicted a 1-3 Toon win so we got the four goals part right whereas Dean was spot on the exact amount of goals Newcastle United scored in the game. Tonight we're up against Scunthorpe and we really hope for 3 points more than anything 🙂
 
 The table is as stands :
 

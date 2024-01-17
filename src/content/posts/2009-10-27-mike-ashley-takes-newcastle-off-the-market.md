@@ -11,7 +11,7 @@ categories:
 
 ### Ashley - Going to put another £20m into the club quickly
 
-The worst news possible has come today with owner Mike Ashley confirming he has taken the club off the market and has appointed Chris Hughton as permanent manager on an 18-month contract. This isn't surprising news but devastating all the same. To cap it all, Ashley claims to invest £20m immediately and bring the club forward. Not the first time we've heard this and it's  sure to cause uproar amongst the Toon faithful.
+The worst news possible has come today with owner Mike Ashley confirming he has taken the club off the market and has appointed Chris Hughton as permanent manager on an 18-month contract. This isn't surprising news but devastating all the same. To cap it all, Ashley claims to invest £20m immediately and bring the club forward. Not the first time we've heard this and it's sure to cause uproar amongst the Toon faithful.
 
 It said :
 

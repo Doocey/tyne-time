@@ -18,7 +18,7 @@ Samuel Oluwaseyi J. 'Sammy' Ameobi was the talk of Newcastle United's youth acad
 
 At 22 years of age, Ameobi has enjoyed a run in the first team due to various injuries and the plain fact that we lack quality on the left hand side. He even scored a long-range effort against Hull City a month ago to help secure a crucial three points, but apart from that, its been a very limp couple of years for the Englishman. With just eleven games left in the Premier League season, Ameobi will have to impress the Newcastle hierarchy enough to earn a new deal. Will it happen?
 
-I am always one for giving youth a chance, and while it may see like I have something against Sammy - it's far from the truth. I have just grown tired of the cumbersome figure that he portrays in a Magpies' shirt. Give him the ball and he can make things happen, he has quality, there is no doubt about that. I do however, question whether he has  the heart for the battle.
+I am always one for giving youth a chance, and while it may see like I have something against Sammy - it's far from the truth. I have just grown tired of the cumbersome figure that he portrays in a Magpies' shirt. Give him the ball and he can make things happen, he has quality, there is no doubt about that. I do however, question whether he has the heart for the battle.
 
 Sometimes I wonder if Ameobi is bothered. He might try to take on his man, end up being dispossessed and then cut a disinterested figure on the byline leaving our defenders with the task of cleaning up the scraps. Perhaps such a trait is in the Ameobi blood - Shola was the same, so much _potential_, but an overwhelming sense of _laziness_ or guile.
 
@@ -32,4 +32,4 @@ It might seem a bit harsh, but at 6'4, 22 years of age and having been given eve
 
 Comments welcome as always, and feel free to follow me [@KevinDoocey][1].
 
- [1]: https://twitter.com/kevindoocey "doocey"
+[1]: https://twitter.com/kevindoocey "doocey"

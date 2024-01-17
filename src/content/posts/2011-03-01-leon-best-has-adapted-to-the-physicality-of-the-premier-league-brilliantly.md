@@ -3,7 +3,7 @@ title: Leon Best has adapted to the physicality of the Premier League brilliantl
 author: Kevin Doocey
 type: post
 date: 2011-03-01T14:22:36+00:00
-excerpt: 'When Andy Carroll made his shock deadline day move to Liverpool FC for a staggering initial fee of £35m - Newcastle United fans..'
+excerpt: "When Andy Carroll made his shock deadline day move to Liverpool FC for a staggering initial fee of £35m - Newcastle United fans.."
 url: /2011/03/01/leon-best-has-adapted-to-the-physicality-of-the-premier-league-brilliantly/
 categories:
   - Leon Best
@@ -14,7 +14,7 @@ categories:
 
 #### Best - Has thrived since Andy Carroll's departure to Liverpool in January
 
-When Andy Carroll made his shock deadline day move to Liverpool FC for a staggering initial fee of £35m - Newcastle United fans started to worry as to where our goals for the remainder of the Premier League campaign would come from. It might be easy to say now, but I never doubted our ability to score goals with or without the Newcastle born front-man. The important thing  was that we had fit strikers; any forward in the EPL can score goals if they are given the right service. Since then, Irish international Leon Best has impressed all round scoring an impressive 5 goals in  under 10 games. A hat-trick on his début against West Ham, followed by one against Arsenal and indeed Birmingham in games which we didn't lose.
+When Andy Carroll made his shock deadline day move to Liverpool FC for a staggering initial fee of £35m - Newcastle United fans started to worry as to where our goals for the remainder of the Premier League campaign would come from. It might be easy to say now, but I never doubted our ability to score goals with or without the Newcastle born front-man. The important thing was that we had fit strikers; any forward in the EPL can score goals if they are given the right service. Since then, Irish international Leon Best has impressed all round scoring an impressive 5 goals in  under 10 games. A hat-trick on his début against West Ham, followed by one against Arsenal and indeed Birmingham in games which we didn't lose.
 
 What has impressed me about Best is that he has both taken his chance very well as a striker for Newcastle United and secondly that he has adapted very well so far with what is required in the Premier League. He was possibly a little understrength physically for the Premier League in his first couple of games but since then he has shown a real grit and determination against every centre half he has been put up against.
 

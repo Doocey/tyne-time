@@ -13,7 +13,7 @@ categories:
 
 #### Ba - Looks like his agents want a big pay day at the expense of NUFC
 
-There has been a lot of speculation about Demba Ba today, and that he is on his way out of St.James' Park. Galatasaray are the club that are being strongly linked with the forward and reports from Sky Italia even went as far as confirming a move had been agreed between both parties. SkySports here in the UK however, have official confirmation from Newcastle United FC that no bids have been received for the Senegalese international. That confirmation does not mean an awful  lot though, because it seems that - sooner or later - Demba Ba will leave NUFC and play his football elsewhere. It doesn't come as a surprise mind you.
+There has been a lot of speculation about Demba Ba today, and that he is on his way out of St.James' Park. Galatasaray are the club that are being strongly linked with the forward and reports from Sky Italia even went as far as confirming a move had been agreed between both parties. SkySports here in the UK however, have official confirmation from Newcastle United FC that no bids have been received for the Senegalese international. That confirmation does not mean an awful lot though, because it seems that - sooner or later - Demba Ba will leave NUFC and play his football elsewhere. It doesn't come as a surprise mind you.
 
 The rumours of his imminent departure to Turkey came on strong when a major bookmaker announced that they had suspended bets on his next club. However, it seems that most people just threw money on Galatasaray due to the rumours flooding Twitter, you'd think they'd be more interested in Euro 2012, obviously not!
 
@@ -23,7 +23,7 @@ Alan Pardew said in a recent interview that money means very little to Demba, an
 
 Ba is/was certainly loved and appreciated at NUFC, but I'm sure it was very much mutual. Remember, we took a gamble by taking him on board, fortunately a gamble that paid off.
 
-If he does leave, it'll be _at least_ £7.5m which of course is much more than what we paid for him initially. With that said, he is worth a lot more than that and really - why would he want to go to Turkey? Afterall, the Premier League is the best league in the world.
+If he does leave, it'll be *at least* £7.5m which of course is much more than what we paid for him initially. With that said, he is worth a lot more than that and really - why would he want to go to Turkey? Afterall, the Premier League is the best league in the world.
 
 Should Ba leave, it'll be for the money rather than the football. That - as blunt as it may sound - is the truth of the matter.
 

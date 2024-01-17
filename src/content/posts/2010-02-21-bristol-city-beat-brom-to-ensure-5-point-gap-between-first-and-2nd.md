@@ -11,7 +11,7 @@ categories:
 
 ### Iwelumo - Scored the first goal in Bristol City's comeback against West Brom
 
-The beauty of the Coca Cola Championship where every team can beat each other. Known more for his horrific yet hilarious miss against Norway a year ago, Chris Iwelumo today scored Bristol City's equalizer and their first goal in what proved to be a very pleasing comeback from Gary Johnson's men. For us, it's a very important win and indeed for Nottingham Forest's promotion  hopes too. We were 5 points ahead at the top of the table yesterday and today we're 5 points still, with the same amount of games played. So far so good without a doubt.
+The beauty of the Coca Cola Championship where every team can beat each other. Known more for his horrific yet hilarious miss against Norway a year ago, Chris Iwelumo today scored Bristol City's equalizer and their first goal in what proved to be a very pleasing comeback from Gary Johnson's men. For us, it's a very important win and indeed for Nottingham Forest's promotion hopes too. We were 5 points ahead at the top of the table yesterday and today we're 5 points still, with the same amount of games played. So far so good without a doubt.
 
 Now, I think we all remember vaguely that we once had a 10 point lead at the top of the table around Christmas and only last week, we were knocked off the top courtesy of goal difference. It just shows you how much things can change in a matter of a couple of games and thankfully, it's changed for the best for us Magpies.
 

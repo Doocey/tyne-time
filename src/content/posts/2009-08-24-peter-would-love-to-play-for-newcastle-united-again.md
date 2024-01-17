@@ -10,7 +10,7 @@ categories:
   - Peter Lovenkrands
 ---
 
-Remember him? Peter Lovenkrands? Well, he used to play for us last season if you didn't know and since then he has been relieved of his contract at Newcastle United, looking to ply his trade elsewhere. I think most people  will remember him, he fought for the magpies in every game, and scored three goals in his stint here as well. Signed by Joe Kinnear on a free from Schalke, Lovenkrands most memorable Newcastle moment would have been scoring the third goal against Middlesbrough which indeed proved to be Newcastle]s's last top flight goal that season. Speaking today, Peter said he'd relish the chance to play in front of the Newcastle fans again.
+Remember him? Peter Lovenkrands? Well, he used to play for us last season if you didn't know and since then he has been relieved of his contract at Newcastle United, looking to ply his trade elsewhere. I think most people will remember him, he fought for the magpies in every game, and scored three goals in his stint here as well. Signed by Joe Kinnear on a free from Schalke, Lovenkrands most memorable Newcastle moment would have been scoring the third goal against Middlesbrough which indeed proved to be Newcastle]s's last top flight goal that season. Speaking today, Peter said he'd relish the chance to play in front of the Newcastle fans again.
 
 He said:
 

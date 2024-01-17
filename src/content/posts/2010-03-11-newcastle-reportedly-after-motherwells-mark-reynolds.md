@@ -11,7 +11,7 @@ categories:
 
 ### Reynolds - Apparently attracting the interest from Colin Calderwood & Hughton
 
-Well it might not have been John Ruddy Chris Hughton and co. were looking at in their quest to Scotland a day ago I expected. instead, the attention has turned to their centre-back, Mark Reynolds. The Scottish defender is also rumoured to be attracting interest from Sam Allardyce's Blackburn Rovers so whether that indicates what type of player he is, is another matter. However, reports  are good on Reynolds and a lot of Motherwell fans see big times lying ahead of Mark.
+Well it might not have been John Ruddy Chris Hughton and co. were looking at in their quest to Scotland a day ago I expected. instead, the attention has turned to their centre-back, Mark Reynolds. The Scottish defender is also rumoured to be attracting interest from Sam Allardyce's Blackburn Rovers so whether that indicates what type of player he is, is another matter. However, reports are good on Reynolds and a lot of Motherwell fans see big times lying ahead of Mark.
 
 Motherwell's manager Craig Brown commented saying :
 
@@ -20,7 +20,6 @@ Motherwell's manager Craig Brown commented saying :
 > _“Six boys have left Motherwell in recent times, Ross McCormack, Paul Quinn, David Clarkson, Stephen Pearson, James McFadden and also Scott McDonald. That proves that Motherwell give young players a chance and not stand in their way if they want to leave and progress their career.”_
 >
 > _“But I would hate to think any player would leave here for a comparable SPL club. That would not be a forward move in my opinion. But to go south to one of the bigger clubs in the Premier League or the Championship, we can’t hold them back.”_
-
 
 Although this may be news to you, the rumours of Newcastle being interested in him and indeed teammate Andy Halliday are rife around Scotland. Both are not well known to most Newcastle United fans but obviously Chris Hughton sees something in them and we can't fault his judgment so far.
 

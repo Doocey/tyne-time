@@ -11,7 +11,7 @@ categories:
 
 ### Taylor - Scored again yesterday with a header
 
-After a comprehensive  hammering yesterday, Newcastle United are still waiting on new owners and indeed waiting we've been. It's been well over 40 days since relegation and the only real changes have been players leaving on free contracts. Michael Owen being the most noticeable, scoring the winner on his début in Malaysia. Speaking after the match Chris Hughton indicated he expected an 'announcement' soon and he gave the impression that he wasn't going to be head coach of Newcastle United for much longer.
+After a comprehensive hammering yesterday, Newcastle United are still waiting on new owners and indeed waiting we've been. It's been well over 40 days since relegation and the only real changes have been players leaving on free contracts. Michael Owen being the most noticeable, scoring the winner on his début in Malaysia. Speaking after the match Chris Hughton indicated he expected an 'announcement' soon and he gave the impression that he wasn't going to be head coach of Newcastle United for much longer.
 
 He said :
 

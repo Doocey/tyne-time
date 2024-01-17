@@ -1,6 +1,6 @@
 ---
-title: 'Jack Colback: What will the Englishman bring to Newcastle?'
-description: 'There are many supporters on both sides of the deal questioning why exactly Newcastle United have agreed to sign midfielder Jack Colback. A Sunderland..'
+title: "Jack Colback: What will the Englishman bring to Newcastle?"
+description: "There are many supporters on both sides of the deal questioning why exactly Newcastle United have agreed to sign midfielder Jack Colback. A Sunderland.."
 author: Kevin Doocey
 type: post
 date: 2014-06-08T20:00:58+00:00
@@ -17,9 +17,9 @@ There are many supporters on both sides of the deal questioning why exactly Newc
 
 Over the past few years, there have been very few players that have caught my eye on Wearside however, once in a while I do tend to earmark one or two plying their trade at the Stadium of Light. **Jordan Henderson** was the most recent, and as we all know - he has gone on to be a key midfielder for Liverpool and indeed England with the 23 year-old currently preparing for the 2014 World Cup.
 
-One might even go on to say that Henderson's absence from the Reds' midfielder for the remaining Premier League games last season was  the main reason that Brendan Rodgers' men missed out on their first Premier League title.
+One might even go on to say that Henderson's absence from the Reds' midfielder for the remaining Premier League games last season was the main reason that Brendan Rodgers' men missed out on their first Premier League title.
 
-The other man to catch my eye was **Jack Colback** so when I heard that Newcastle were holding discussions with him, I was somewhat pleased, but hardly elated. You see, I'm the type of guy who tends to take a liking to midfielders that are very neat on the ball, and rarely give possession away. _Vurnon Anita_ is someone - as many of you will know - I rate very highly, but I'm often in a minority with that opinion.
+The other man to catch my eye was **Jack Colback** so when I heard that Newcastle were holding discussions with him, I was somewhat pleased, but hardly elated. You see, I'm the type of guy who tends to take a liking to midfielders that are very neat on the ball, and rarely give possession away. *Vurnon Anita* is someone - as many of you will know - I rate very highly, but I'm often in a minority with that opinion.
 
 Many Newcastle and Sunderland fans will be at a loss to explain what exactly it is Colback offers to any side, but hopefully I can examine that in the new few paragraphs. It is worth mentioning that Swansea, and indeed Everton, both expressed an interest in signing him - and to be quite honest, I am surprised Martinez did not get his man. Colback's desire to stay in the North-East had a big part to play in that regard.
 
@@ -30,7 +30,8 @@ Many Newcastle and Sunderland fans will be at a loss to explain what exactly it 
 Colback is primarily a central midfielder. Similar in ways to Vurnon Anita, Jack operates quietly in the middle of the park, recycling possession before looking to feed a more attacking threat. Despite that, Colback is no stranger to going forward, and he has a very decent strike on him as Newcastle fans will know all too well. He also scored a beauty against Middlesbrough in the Cup last season - well worth a watch if you want to see what he's capable of.
 
 The 24 year-old has also played left-back in rougher times for Sunderland so he does boast versatility, an asset which has not been present at St. James' Park since James Perch left for Wigan.
-_________________________________
+
+---
 
 **Conclusion:** Colback isn't Cabaye's replacement, rather, a swap for Dan Gosling who left to Bournemouth earlier this month. We can't expect massive things from the Killingworth born man, but with the right coaching (!) he has the potential to become a very talented midfielder, I have no doubt about that.
 

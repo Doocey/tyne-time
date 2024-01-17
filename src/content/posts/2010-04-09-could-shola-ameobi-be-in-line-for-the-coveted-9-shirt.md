@@ -1,5 +1,5 @@
 ---
-title: 'Could Shola Ameobi be in line for the coveted #9 shirt?'
+title: "Could Shola Ameobi be in line for the coveted #9 shirt?"
 author: Kevin Doocey
 type: post
 date: 2010-04-09T16:09:49+00:00

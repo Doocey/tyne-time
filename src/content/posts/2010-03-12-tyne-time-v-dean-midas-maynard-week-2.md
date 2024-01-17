@@ -1,5 +1,5 @@
 ---
-title: 'Tyne Time v Dean Midas Maynard – Week #2'
+title: "Tyne Time v Dean Midas Maynard – Week #2"
 author: Kevin Doocey
 type: post
 date: 2010-03-12T20:59:20+00:00
@@ -11,7 +11,7 @@ categories:
 
 ### Tyne Time v Dean Maynard in tipping challenge
 
-With Newcastle traveling to Middlesbrough tomorrow, **Tyne Time** continues it's feature which see us put our wits up against one of the leading sports psychics in the world, Dean Midas Maynard. As mentioned in the previous weeks posts, Dean is quite a famous sports psychic and has worked with many football clubs. This week, we go head to head to see who can predict the exact result for  the Boro derby, or indeed the closest thing to a derby we'll get this season anyway.
+With Newcastle traveling to Middlesbrough tomorrow, **Tyne Time** continues it's feature which see us put our wits up against one of the leading sports psychics in the world, Dean Midas Maynard. As mentioned in the previous weeks posts, Dean is quite a famous sports psychic and has worked with many football clubs. This week, we go head to head to see who can predict the exact result for the Boro derby, or indeed the closest thing to a derby we'll get this season anyway.
 
 The leader-board as of last week, with 12 games remaining including the Boro one, looks like this :
 

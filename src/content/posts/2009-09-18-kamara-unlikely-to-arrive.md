@@ -11,7 +11,7 @@ categories:
 
 ![Kamara - Started and scored in Europa League fixture last night](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2009/5/9/1241883577795/Diomansy-kamara-English-P-001.jpg)
 
-Diomansy Kamara is now unlikely to arrive to Newcastle on loan after Roy Hodgson dismissed reports and then started the striker in the Europa League affair yesterday. It so happened that he also scored in yesterdays affair and the odds of him joining Chris Hughton is very unlikely. We were hopeful that a deal could be sorted and indeed Chris confirmed his interest but it seems  we'll have to look to Marlon Harewood, Daniel Cousin or Caleb Folan to boost our front men. Either or wouldn't be too bad in the CCC.
+Diomansy Kamara is now unlikely to arrive to Newcastle on loan after Roy Hodgson dismissed reports and then started the striker in the Europa League affair yesterday. It so happened that he also scored in yesterdays affair and the odds of him joining Chris Hughton is very unlikely. We were hopeful that a deal could be sorted and indeed Chris confirmed his interest but it seems we'll have to look to Marlon Harewood, Daniel Cousin or Caleb Folan to boost our front men. Either or wouldn't be too bad in the CCC.
 
 In other news, the major stories are about Newcastle's game against Plymouth tomorrow in St.James' Park, a game which will hopefully see us rise to the top of the table again, pending other results in the league.
 

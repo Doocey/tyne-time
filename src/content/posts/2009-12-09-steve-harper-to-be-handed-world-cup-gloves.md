@@ -11,7 +11,7 @@ categories:
 
 ### Harper - Being looked at by Fabio Capello?
 
-There's reports that Steve Harper could well be line for a call up by England manager, Fabio Capello. Of coruse Harper has been doing well and very well at that, it would be great to see the man represent Newcastle in the World Cup in South Africa. Whether this story is made up or not I'm not entirely sure but I could honestly see Harper between the sticks for England, and  perhaps a long time coming. Although you'll have your Robert Green's, David James, Scott Carson, Joe Hart and maybe even Arsenal Manuel Almunia in line, I just think that Harper is as good as any of those above keepers. Then again, that's my opinion, you might not agree.
+There's reports that Steve Harper could well be line for a call up by England manager, Fabio Capello. Of coruse Harper has been doing well and very well at that, it would be great to see the man represent Newcastle in the World Cup in South Africa. Whether this story is made up or not I'm not entirely sure but I could honestly see Harper between the sticks for England, and perhaps a long time coming. Although you'll have your Robert Green's, David James, Scott Carson, Joe Hart and maybe even Arsenal Manuel Almunia in line, I just think that Harper is as good as any of those above keepers. Then again, that's my opinion, you might not agree.
 
 Chris Hughton is firmly behind Harper and thinks that Steve would make a very good England #1. He's not the only one I'm sure and maybe Capello is taking a look at him as another option.
 

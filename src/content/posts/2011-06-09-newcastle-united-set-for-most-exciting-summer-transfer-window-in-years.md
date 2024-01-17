@@ -15,7 +15,7 @@ categories:
 
 #### Gervinho - Wouldn't be too surprised if he doesn't arrive on Tyneside
 
-I'm sure that most the Premier League are aware of the Gervinho scenario by now. Over a week ago he was meant to have signed for Newcastle United, alongside Yohan Cabaye. The funny this is: neither have signed officially yet however, Cabaye is expected to be revealed holding our new 2011/12 jersey as early as tomorrow. I am also quite sure that most internet friendly NUFC fans will have  wandered on to Twitter at some stage, whether it's been to follow [us][1] or indeed keep tabs on the many rumour 'merchants' flooding the Newcastle news scene lately. There is one particular guy on Twitter, who keeps insisting that we have signed both of the Lille players and it's a matter of time before they are revealed. I still find it quite hard to believe that Gervinho is set for Tyneside, considering he is leaving Champions League football behind. Mind you, as we've all read yesterday; he has confirmed that he is heading to the Premier League to ply his trade. The main question is however - what club will he be signing for?
+I'm sure that most the Premier League are aware of the Gervinho scenario by now. Over a week ago he was meant to have signed for Newcastle United, alongside Yohan Cabaye. The funny this is: neither have signed officially yet however, Cabaye is expected to be revealed holding our new 2011/12 jersey as early as tomorrow. I am also quite sure that most internet friendly NUFC fans will have wandered on to Twitter at some stage, whether it's been to follow [us][1] or indeed keep tabs on the many rumour 'merchants' flooding the Newcastle news scene lately. There is one particular guy on Twitter, who keeps insisting that we have signed both of the Lille players and it's a matter of time before they are revealed. I still find it quite hard to believe that Gervinho is set for Tyneside, considering he is leaving Champions League football behind. Mind you, as we've all read yesterday; he has confirmed that he is heading to the Premier League to ply his trade. The main question is however - what club will he be signing for?
 
 I would love to say that it is us, but I am still very dubious. Quite frankly: it wouldn't surprised me one bit if Tottenham, Liverpool or even Arsenal unveil the African in the coming days. It has happened many a time where fans of this club have been set for a big signing, a coup if you like: only to see Harry Redknapp standing beside him, grinning away.
 
@@ -23,19 +23,19 @@ From a quick think, the following players have all been linked to us, and mentio
 
 **Gervinho**
 
- **Yohan Cabaye**
+**Yohan Cabaye**
 
- **Kevin Gameiro**
+**Kevin Gameiro**
 
- **Charles N'Zogbia**
+**Charles N'Zogbia**
 
- **Cheik M'Bengue**
+**Cheik M'Bengue**
 
- **Boukary Drame**
+**Boukary Drame**
 
- **Neil Taylor**
+**Neil Taylor**
 
- **Ryad Boudebouz**
+**Ryad Boudebouz**
 
 Realistically speaking, I do believe that Cabaye, Taylor & N'Zogbia could well all sign for NUFC in the next few weeks - it wouldn't surprise me. We've heard from Cabaye himself declaring he is set for a move to St.James' & indeed a blunder by the site manager at nufc.co.uk points very much to the fact that he as good as ours.
 
@@ -57,5 +57,5 @@ What do you guys think?
 
 Comments welcome as always 🙂
 
- [1]: https://twitter.com/TyneTime
- [2]: https://www.tynetime.com/2011/02/14/liverpool-will-undoubtedly-venture-in-for-jose-enrique-in-the-summer/
+[1]: https://twitter.com/TyneTime
+[2]: https://www.tynetime.com/2011/02/14/liverpool-will-undoubtedly-venture-in-for-jose-enrique-in-the-summer/

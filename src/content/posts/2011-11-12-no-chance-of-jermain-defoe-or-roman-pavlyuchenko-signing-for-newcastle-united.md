@@ -15,7 +15,7 @@ categories:
 
 #### Linked - Defoe & Pavlyuchenko both linked to Newcastle United this week
 
-I've noticed of late that quite a few websites are linking Roman Pavlyuchenko and Jermain Defoe to Newcastle United in a 'double swoop'. Both of these guys have been rumoured to be on Alan Pardew's wish-list since his arrival and I think it's fair to say that Jermain Defoe has been linked with a move to St.James' Park any time he hasn't been playing for Harry Redknapp's side. Both are pretty ridiculous  rumours as there's little or no chance either of these will actually make a move to Tyneside and pull on the Black and White of Newcastle United. I laugh every time they're mentioned in a possible move to NUFC because I know it won't happen, and thankfully so.
+I've noticed of late that quite a few websites are linking Roman Pavlyuchenko and Jermain Defoe to Newcastle United in a 'double swoop'. Both of these guys have been rumoured to be on Alan Pardew's wish-list since his arrival and I think it's fair to say that Jermain Defoe has been linked with a move to St.James' Park any time he hasn't been playing for Harry Redknapp's side. Both are pretty ridiculous rumours as there's little or no chance either of these will actually make a move to Tyneside and pull on the Black and White of Newcastle United. I laugh every time they're mentioned in a possible move to NUFC because I know it won't happen, and thankfully so.
 
 Both Defoe and Pav are in decline as footballers - they have played their best football in bygone years and we as a club, are looking for players that have their best footballing years ahead of them. (Obertan, Cabaye, Marveaux, Santon)
 

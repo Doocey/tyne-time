@@ -12,7 +12,7 @@ categories:
 
 ![Wayne Routledge](https://static.guim.co.uk/sys-images/Sport/Pix/columnists/2010/2/17/1266441245626/newcastle-001.jpg "Routledge - Got his first goal for the club and what a good strike it was")
 
-Well it does feel good to stay top of the table and even better to score four goals against a pretty decent Coventry City team. In what was a must-win game ( which ones aren't? ) the lads truly delivered. Although it didn't start the best, and it took us a little while to get into the game, we eventually got a grasp on the game and didn't loosen our grip on it once we scored. When Clinton  Morrison put the Sky Blues ahead a lot of Toon fans thought we might be in for the same old, however a minute later we were on even terms again, with new-boy Wayne Routledge scoring his first for the club in emphatic style.
+Well it does feel good to stay top of the table and even better to score four goals against a pretty decent Coventry City team. In what was a must-win game ( which ones aren't? ) the lads truly delivered. Although it didn't start the best, and it took us a little while to get into the game, we eventually got a grasp on the game and didn't loosen our grip on it once we scored. When Clinton Morrison put the Sky Blues ahead a lot of Toon fans thought we might be in for the same old, however a minute later we were on even terms again, with new-boy Wayne Routledge scoring his first for the club in emphatic style.
 
 Goals from Andy Carroll just after the break, Peter Lovenkrands again bringing his tally into double figures for the season as far as I know, and a rare goal from Ryan Taylor, all finished off a brave Coventry City effort.
 

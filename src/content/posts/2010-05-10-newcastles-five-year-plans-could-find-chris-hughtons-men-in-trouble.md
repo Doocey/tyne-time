@@ -15,7 +15,7 @@ categories:
 
 #### Hughton - Really does need a couple of signings this summer to get things right
 
-I suppose when you see the demise of Portsmouth Football Club and indeed the serous financial state of many well known clubs across the land, you know it wouldn't be long before Newcastle United would be hit with some sort of financial implication. Indeed here it is. A statement released by the club yesterday outlined the boards' plans for the coming few years, which  1.Indicates that Mike Ashley will more than likely stay on as owner and 2. Chris Hughton will have less than two-pence to spend in the Summer transfer market.
+I suppose when you see the demise of Portsmouth Football Club and indeed the serous financial state of many well known clubs across the land, you know it wouldn't be long before Newcastle United would be hit with some sort of financial implication. Indeed here it is. A statement released by the club yesterday outlined the boards' plans for the coming few years, which 1.Indicates that Mike Ashley will more than likely stay on as owner and 2. Chris Hughton will have less than two-pence to spend in the Summer transfer market.
 
 The statement released yesterday holds both positives and negatives for Newcastle United Football Club but mainly gets across the cold truth that this club has some debt and an undesirable one at that. The loss last year amounted to over £30m, better than the previous year but the club wants to break even by the 2015/16 season when hopefully we'll still be a Premier League club.
 

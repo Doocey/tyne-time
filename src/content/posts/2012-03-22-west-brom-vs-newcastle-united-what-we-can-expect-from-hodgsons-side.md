@@ -3,7 +3,7 @@ title: West Brom vs. Newcastle United – What we can expect from Hodgson’s si
 author: Kevin Doocey
 type: post
 date: 2012-03-22T11:52:22+00:00
-excerpt: 'The last time Newcastle United met West Brom at the Hawthorns we were on the end of a 3-1 loss, courtesy of Peter Odemwingie & Simon Tchoyi. Andy Carroll managed..'
+excerpt: "The last time Newcastle United met West Brom at the Hawthorns we were on the end of a 3-1 loss, courtesy of Peter Odemwingie & Simon Tchoyi. Andy Carroll managed.."
 url: /2012/03/22/west-brom-vs-newcastle-united-what-we-can-expect-from-hodgsons-side/
 categories:
   - Alan Pardew

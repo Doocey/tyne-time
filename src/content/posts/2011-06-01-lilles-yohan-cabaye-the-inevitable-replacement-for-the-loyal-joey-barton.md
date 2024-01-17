@@ -15,7 +15,7 @@ categories:
 
 #### Cabaye - Likely to replace Joey Barton as the club looks to offload the POTS
 
-The board at this club continue to confuse me with their antics. Firstly they sack an absolute gent of a manager who after bringing Newcastle United back to the Premier League at first attempt, was looking like he would finish midtable after some stunning results throughout the season - including an away win at Arsenal, Chelsea, Everton & indeed absolute routs at home to Aston Villa and Sunderland. After  getting Alan Pardew in as his replacement - it's fair to say that Pards has done as well as he can, and the fans are taking a liking to the man. He respects the club, the fans, and indeed what has been a dream job for him to get - so very soon after leaving Southampton. With Andy Carroll's departure, the fans were once again complaining of the way the hierarchy; more notably Mike Ashley & Derek Llambias are running this club.
+The board at this club continue to confuse me with their antics. Firstly they sack an absolute gent of a manager who after bringing Newcastle United back to the Premier League at first attempt, was looking like he would finish midtable after some stunning results throughout the season - including an away win at Arsenal, Chelsea, Everton & indeed absolute routs at home to Aston Villa and Sunderland. After getting Alan Pardew in as his replacement - it's fair to say that Pards has done as well as he can, and the fans are taking a liking to the man. He respects the club, the fans, and indeed what has been a dream job for him to get - so very soon after leaving Southampton. With Andy Carroll's departure, the fans were once again complaining of the way the hierarchy; more notably Mike Ashley & Derek Llambias are running this club.
 
 It doesn't seem to stop there however, as it is widely expected that our Player Of The Season Joey Barton will be ushered out the door as soon as possible, and has no chance of a new contract at St.James' Park.
 
@@ -37,5 +37,5 @@ Also - it might be worth noticing Joey Barton is 1/5 to join Liverpool FC. Sad.
 
 Comments welcome as always 🙂
 
- [1]: https://twitter.com/Joey7Barton "here"
- [2]: https://twitter.com/tynetime
+[1]: https://twitter.com/Joey7Barton "here"
+[2]: https://twitter.com/tynetime

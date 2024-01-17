@@ -9,7 +9,7 @@ categories:
   - Newcastle United News
 ---
 
-Before Newcastle United completed the free transfer of Demba Ba, they tried their utmost to lure Kevin Gameiro from FC Lorient. However, PSG showed an interest and ended up signing him. As we all know, the Parisian side were bought over by a rich tycoon and since have done a bit of a 'Man City' on their domestic league, and have bought up a lot of quality players. The likes of Pastore came first, and this summer, Napoli's Ezequiel Lavezzi joined the French side. Since then, Gameiro hasn't seen a lot of action and wants a move away from Paris with quite a few  clubs interested in the 25 year-old.
+Before Newcastle United completed the free transfer of Demba Ba, they tried their utmost to lure Kevin Gameiro from FC Lorient. However, PSG showed an interest and ended up signing him. As we all know, the Parisian side were bought over by a rich tycoon and since have done a bit of a 'Man City' on their domestic league, and have bought up a lot of quality players. The likes of Pastore came first, and this summer, Napoli's Ezequiel Lavezzi joined the French side. Since then, Gameiro hasn't seen a lot of action and wants a move away from Paris with quite a few clubs interested in the 25 year-old.
 
 Newcastle United had a £10m fee agreed for his services, and presented him with a very good contract, however, he opted to stay in France. Despite not featuring very much, he still nabbed 11 goals in 32 appearances which is an impressive feat and clearly has an eye for goal.
 

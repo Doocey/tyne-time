@@ -14,7 +14,7 @@ categories:
 
 #### Ben Arfa - His creativity and pace crucial for NUFC tomorrow at Carrow Road
 
-Norwich City will most definitely fancy their chances of gaining all three points in tomorrows battle at Carrow Road and rightly so. We're without Cheik Tioté, Danny Guthrie, Steven Taylor, Mike Williamson and more than likely Fabricio Coloccini as well. Four big losses in that injury list, indeed four members that probably would have started tomorrow. However, we will welcome James Perch  into the one of the defensive roles; whether Coloccini will make it is still unknown, but if unavailable, we might see Kádár or Santon fill the void.
+Norwich City will most definitely fancy their chances of gaining all three points in tomorrows battle at Carrow Road and rightly so. We're without Cheik Tioté, Danny Guthrie, Steven Taylor, Mike Williamson and more than likely Fabricio Coloccini as well. Four big losses in that injury list, indeed four members that probably would have started tomorrow. However, we will welcome James Perch into the one of the defensive roles; whether Coloccini will make it is still unknown, but if unavailable, we might see Kádár or Santon fill the void.
 
 Paul Lambert's team are quite a neat outfit. They pass the ball on the deck as much as possible from what I've seen of them this season. They'll give it everything tomorrow and can imagine, as mentioned in a previous article, that they'll whip the crosses in from either wings for Grant Holt who will give James Perch a tough time tomorrow for sure.
 

@@ -11,7 +11,7 @@ categories:
 
 ### Guthrie - Wants to continue his good form
 
-Some say Danny Guthrie was Kevin Keegan's only signing whilst in charge of Newcastle United. However, it was a very good signing indeed. Guthrie who left Liverpool because of Steven Gerrards' brilliance, he himself is starting to show similar characteristics of the Liverpool captain. Although not a regular, when we were in the Premier League, Guthrie played well  any time he came no or started. Most people will remember the three nil victory away to Tony Adam's Portsmouth, with Guthrie scoring the third, a curler into the top hand corner.
+Some say Danny Guthrie was Kevin Keegan's only signing whilst in charge of Newcastle United. However, it was a very good signing indeed. Guthrie who left Liverpool because of Steven Gerrards' brilliance, he himself is starting to show similar characteristics of the Liverpool captain. Although not a regular, when we were in the Premier League, Guthrie played well any time he came no or started. Most people will remember the three nil victory away to Tony Adam's Portsmouth, with Guthrie scoring the third, a curler into the top hand corner.
 
 This season the Liverpudlian (although born in Shrewsbury) has hit the Coca Cola Championship with a bang. Scoring in Newcastle's win over Huddersfield in the Carling Cup, he followed it up with a scorcher versus Leicester City which can been viewed on the right hand side of the page.
 

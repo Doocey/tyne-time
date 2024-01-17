@@ -15,7 +15,7 @@ categories:
 
 #### Jô - Would be an extremely good addition to Newcastle United this January
 
-It is very likely that Edin Džeko will join Manchester City this January in a €35m move come January as VfL Wolfsburg have lowered their asking initial asking price. Another ridiculous fee to pay for a striker who I can only guess would be delighted to join the club for its wages. Don't get me wrong, Edin is a fine talent and will score a lot of goals given the chance, but he isn't worth any  more than £17m in all honesty. However, we needn't worry about all this commotion because surprisingly, it could spell some good news for Newcastle United as a club.
+It is very likely that Edin Džeko will join Manchester City this January in a €35m move come January as VfL Wolfsburg have lowered their asking initial asking price. Another ridiculous fee to pay for a striker who I can only guess would be delighted to join the club for its wages. Don't get me wrong, Edin is a fine talent and will score a lot of goals given the chance, but he isn't worth any more than £17m in all honesty. However, we needn't worry about all this commotion because surprisingly, it could spell some good news for Newcastle United as a club.
 
 Firstly the arrival of Džeko will hopefully and more than likely end Manchester City's interest in our prized asset Andy Carroll. Mancini no doubt carried some interest in the commanding CF and it's more than known that if City had indeed failed with their final bid of around €35m for Džeko, then Andy Carroll was next on their list.
 

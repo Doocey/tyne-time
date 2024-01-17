@@ -14,7 +14,7 @@ categories:
 
 ![Tim Krul is a fantastic up and coming keeper for Newcastle United](https://www4.pictures.zimbio.com/gi/West+Bromwich+Albion+v+Newcastle+United+Z94tXGIyrVbm.jpg)
 
-There are reports emerging that Chris Hughton was in Scotland yesterday to watch John Ruddy play and keep tabs on the youngsters progress. The 23 year-old which is quite young for a keeper is on loan at Motherwell from Everton, with the hope he can finally over-take Time Howard between the sticks. If that's hard enough, it's a very long shot that he'll outdo either the  long-serving Steve Harper or indeed Time Krul and that's before I even mention Fraser Forster.
+There are reports emerging that Chris Hughton was in Scotland yesterday to watch John Ruddy play and keep tabs on the youngsters progress. The 23 year-old which is quite young for a keeper is on loan at Motherwell from Everton, with the hope he can finally over-take Time Howard between the sticks. If that's hard enough, it's a very long shot that he'll outdo either the long-serving Steve Harper or indeed Time Krul and that's before I even mention Fraser Forster.
 
 Apparently Hughton was watching Ruddy play but for all we know, it mightn't have been him at all. If you ask me, there's no need for any more goal-keepers on Tyneside now. The concern I have is that we might actually lost Tim Krul if Steve Harper can continue for another 3 years, and it looks as if he'll have no problem in doing so.
 

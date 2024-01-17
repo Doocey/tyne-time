@@ -11,7 +11,7 @@ categories:
 
 ![McMahon - Has a footballing brain unlike Mike Ashley](https://i.dailymail.co.uk/i/pix/2009/06/10/article-1192067-02324AE900000578-260_468x286.jpg)
 
-Steve McMahon today  has confirmed that the group he is leading, or supposedly, have not hit the asking price that Mike has wanted. Mr.Ashley put Newcastle up for sale at the price of £100m and he was quoted as saying, the first person to hit that figure would be the new owners of the club. However Derek Llambias has confirmed that 'two or more' groups have et that asking price, so why hasn't Mike accepted the first £100m bid like he said he would? We're totally in the dark but at least Steve McMahon is shedding some light on their takeover progress.
+Steve McMahon today has confirmed that the group he is leading, or supposedly, have not hit the asking price that Mike has wanted. Mr.Ashley put Newcastle up for sale at the price of £100m and he was quoted as saying, the first person to hit that figure would be the new owners of the club. However Derek Llambias has confirmed that 'two or more' groups have et that asking price, so why hasn't Mike accepted the first £100m bid like he said he would? We're totally in the dark but at least Steve McMahon is shedding some light on their takeover progress.
 
 Steve said :
 

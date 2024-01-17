@@ -12,7 +12,7 @@ categories:
 
 ![Chris Hughton should be looking abroad for new signings](https://static.guim.co.uk/sys-images/Sport/Pix/pictures/2009/10/27/1256667096967/Chris-Hughton-001.jpg)
 
-All the talk in the last few weeks has been about the likes of Matthew Kilgallon and Jermaine Beckford arriving on Tyneside. Today has been pretty quiet on the Toon front with the real focus on the snow, the other games in the Championship. We saw Cardiff City draw 1-1 at home to Ian Holloway's Blackpool & Scunthorpe put four past a Derby County side which  proved an equal match for us a week ago. Anyway, whilst all the commotion about where Beckford will be on the 1st of February, I think it'd be a wise decision for Chris Hughton to look abroad for new recruits as my headline suggests.
+All the talk in the last few weeks has been about the likes of Matthew Kilgallon and Jermaine Beckford arriving on Tyneside. Today has been pretty quiet on the Toon front with the real focus on the snow, the other games in the Championship. We saw Cardiff City draw 1-1 at home to Ian Holloway's Blackpool & Scunthorpe put four past a Derby County side which proved an equal match for us a week ago. Anyway, whilst all the commotion about where Beckford will be on the 1st of February, I think it'd be a wise decision for Chris Hughton to look abroad for new recruits as my headline suggests.
 
 There's no doubt England is home to many many great footballers, both present and up and coming, but the rest of Europe too offers a brilliant range of young footballing gems. The likes of Spain, Portugal, France and Russia all hold many a player that could do a very very good job for Newcastle United, or any English club for that matter.
 

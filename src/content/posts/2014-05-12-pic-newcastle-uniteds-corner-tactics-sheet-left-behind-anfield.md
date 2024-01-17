@@ -1,5 +1,5 @@
 ---
-title: 'Pic: Newcastle United’s corner tactics sheet left behind in Anfield'
+title: "Pic: Newcastle United’s corner tactics sheet left behind in Anfield"
 author: Kevin Doocey
 type: post
 date: 2014-05-12T20:41:04+00:00
@@ -11,7 +11,7 @@ categories:
 
 ![Alan Pardew oversees training at Benton](https://www.tynetime.com/wp-content/uploads/2014/05/Newcastle-Manager-Alan-Pardew.jpg "Pardew - Looks like he'll be Newcastle manager for the foreseeable future")
 
-It was somewhat frustrating to see Newcastle United concede two goals in the space of 10 ten minutes from almost identical dead-ball situations. Steven Gerrard who as we all know can most certainly cross a ball, delivered two pin-point beauties to the far post which Daniel Agger and indeed Daniel Sturridge made no mistake in sticking away. It marked a disappointing second half, indeed a 90 minutes which summed up our entire season: first half great, second half awful. However despite our lack of organisation from free-kicks, from my travels I found a picture of Newcastle United's corner tactics, and how Alan Pardew and his staff looked to set up his side when defending corner kicks. It makes for interesting reading, if only for the spelling mistakes that appear across the board quite  literally.
+It was somewhat frustrating to see Newcastle United concede two goals in the space of 10 ten minutes from almost identical dead-ball situations. Steven Gerrard who as we all know can most certainly cross a ball, delivered two pin-point beauties to the far post which Daniel Agger and indeed Daniel Sturridge made no mistake in sticking away. It marked a disappointing second half, indeed a 90 minutes which summed up our entire season: first half great, second half awful. However despite our lack of organisation from free-kicks, from my travels I found a picture of Newcastle United's corner tactics, and how Alan Pardew and his staff looked to set up his side when defending corner kicks. It makes for interesting reading, if only for the spelling mistakes that appear across the board quite literally.
 
 ![Newcastle United Corner Tactics](https://www.tynetime.com/wp-content/uploads/2014/05/Newcastle-United-Corner-Tactics.jpg)
 Tactics - Pretty self-explanatory.

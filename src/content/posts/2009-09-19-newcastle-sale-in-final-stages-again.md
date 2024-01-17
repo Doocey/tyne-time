@@ -13,7 +13,7 @@ categories:
 
 ### Ashley - Agreed fee with unnamed group
 
-We haven't heard much on the Newcastle United sale lately but today brings news that a fee has been agreed with a buyer. The club issued an official statement to the 'Journal' saying that the £100m had been met but the overdraft was still a stumbling block as well as the Kevin Keegan scenario. Although Barry Moat is being strongly linked with the role, and it's more than  likely he is the man involved, there are reported to be two other bidders interested in the club, but yet to make an official bid.
+We haven't heard much on the Newcastle United sale lately but today brings news that a fee has been agreed with a buyer. The club issued an official statement to the 'Journal' saying that the £100m had been met but the overdraft was still a stumbling block as well as the Kevin Keegan scenario. Although Barry Moat is being strongly linked with the role, and it's more than likely he is the man involved, there are reported to be two other bidders interested in the club, but yet to make an official bid.
 
 The club said :
 

@@ -14,7 +14,7 @@ categories:
 
 #### Obertan - Faces stern competition in fight for first team place at St.James' Park
 
-With Hatem Ben Arfa, Demba Ba and Papiss Cissé leading Newcastle United's attack in recent weeks it must make Gabriel Obertan's comeback from injury that bit harder. The winger signed from Manchester United for £3m played quite regularly at the start of the season, as Hatem gradually got back to full fitness. However, a few niggles and annoying injuries have kept Gabby out for a month or so, the sad thing being no one has really missed him. He is quite frustrating to watch at times, but  Alan Pardew and John Carver have faith in his ability, and that is enough for me to indicate that he can be molded into a a very good winger.
+With Hatem Ben Arfa, Demba Ba and Papiss Cissé leading Newcastle United's attack in recent weeks it must make Gabriel Obertan's comeback from injury that bit harder. The winger signed from Manchester United for £3m played quite regularly at the start of the season, as Hatem gradually got back to full fitness. However, a few niggles and annoying injuries have kept Gabby out for a month or so, the sad thing being no one has really missed him. He is quite frustrating to watch at times, but Alan Pardew and John Carver have faith in his ability, and that is enough for me to indicate that he can be molded into a a very good winger.
 
 Competition has never been harder for places in the NUFC starting 11 this season with an array of players on the bench ready to take the place of anyone under-performing. The likes of Danny Guthrie, Dan Gosling, Shola Ameobi, Mehdi Abeid, James Tavernier and Ryan Taylor all line the bench at the minute - finally we seem to have a little bit of depth to the squad.
 

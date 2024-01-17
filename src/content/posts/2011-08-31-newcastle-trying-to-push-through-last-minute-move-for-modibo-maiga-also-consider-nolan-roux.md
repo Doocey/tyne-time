@@ -1,5 +1,5 @@
 ---
-title: 'Newcastle trying to push through last minute move for Modibo Maiga & also consider Nolan Roux'
+title: "Newcastle trying to push through last minute move for Modibo Maiga & also consider Nolan Roux"
 author: Kevin Doocey
 type: post
 date: 2011-08-31T12:59:37+00:00
@@ -14,7 +14,7 @@ categories:
 
 #### Maiga - Desperate to join Alan Pardew's Newcastle United today
 
-Modibo Maiga has been desperate for a move to Newcastle United since the day they expressed their first interest in him. He has had quarrels with the board, refused to play; dropped from squads and all the likes - but still he remains a Sochaux player as we approach the final seven hours of the summer transfer window. Despite the signing of a much needed full-back in Davide Santon, NUFC still  haven't added a striker to their ranks to add to our collection already. This is the most worrying thing, we really do need a different type of striker to what we have at the club at the moment. Modibo Maiga was meant to be that striker. However, it's all too familiar to us trying to keep hold of our best striker if possible. You would think that their board is holding out for the best price possible but there's a slight problem: so are we.
+Modibo Maiga has been desperate for a move to Newcastle United since the day they expressed their first interest in him. He has had quarrels with the board, refused to play; dropped from squads and all the likes - but still he remains a Sochaux player as we approach the final seven hours of the summer transfer window. Despite the signing of a much needed full-back in Davide Santon, NUFC still haven't added a striker to their ranks to add to our collection already. This is the most worrying thing, we really do need a different type of striker to what we have at the club at the moment. Modibo Maiga was meant to be that striker. However, it's all too familiar to us trying to keep hold of our best striker if possible. You would think that their board is holding out for the best price possible but there's a slight problem: so are we.
 
 It's understood that we're about a couple million apart in our valuation of the Malian forward. Adding to the fact Sochaux would actually like to keep him on their books. Whilst Alan Pardew, Lee Charnley & Derek Llambias work tirelessly (or so we're led to believe) - another option is available should the Maiga move fall flat on it's feet. That option is another Ligue 1 player - by the name of Nolan Roux.
 
@@ -30,4 +30,4 @@ Also, be sure to follow us on our Twitter right [here][1]. All the latest transf
 
 Comments welcome as always 🙂
 
- [1]: https://twitter.com/tynetime
+[1]: https://twitter.com/tynetime

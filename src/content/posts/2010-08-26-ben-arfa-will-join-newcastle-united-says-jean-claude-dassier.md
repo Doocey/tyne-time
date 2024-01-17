@@ -14,7 +14,7 @@ categories:
 
 #### Ben Arfa - Will fly to Newcastle United to complete the loan move
 
-One thing's for sure - Jean Claude Dassier likes talking and talk he will. According to GOAL.com, who can often be well off the mark on transfer stories, Ben Arfa will finally complete his long forlorn move to Newcastle United in the next couple of days. Now, we're only telling you what's in the news, but I'd be fairly sure that the Frenchman will indeed make the trip to  St.James' to play in our Premier League campaign.
+One thing's for sure - Jean Claude Dassier likes talking and talk he will. According to GOAL.com, who can often be well off the mark on transfer stories, Ben Arfa will finally complete his long forlorn move to Newcastle United in the next couple of days. Now, we're only telling you what's in the news, but I'd be fairly sure that the Frenchman will indeed make the trip to St.James' to play in our Premier League campaign.
 
 The move is rumoured to be costing in the region of £1.5m with an option to buy the French international for £5m after twenty-five games. Being perfectly honest, if this guy can perform like he can then £5m could be prove to be a very very prudent buy by Chris Hughton and his team.
 

@@ -11,7 +11,7 @@ categories:
 
 ### Ashley - Deliberating whether to stay or to sell
 
-It's amazing the number of articles I've written and Mike Ashley has been the subject of, and quite frankly, annoying. The infamous 'owner' has today, if you are to believe the Chronicle, broken off talks with Geoff Sheard's American based investment group. The news comes after Newcastle victory against Doncaster and we can't say it's a surprise really. Mike Ashley's patience is  meant to have reached it's limit, (the irony) and he's pulled out of negotiations with the much talked about consortium led by the questionable Geoff Sheard.
+It's amazing the number of articles I've written and Mike Ashley has been the subject of, and quite frankly, annoying. The infamous 'owner' has today, if you are to believe the Chronicle, broken off talks with Geoff Sheard's American based investment group. The news comes after Newcastle victory against Doncaster and we can't say it's a surprise really. Mike Ashley's patience is meant to have reached it's limit, (the irony) and he's pulled out of negotiations with the much talked about consortium led by the questionable Geoff Sheard.
 
 I'm not quite sure how many times talks have broken down with possible new owners. We've had Iranians, Irish, English, Nigerian, South African, American and even possible bidders from Singapore, but yet, still no sign of Mike Ashley packing his bags at Newcastle.
 

@@ -12,7 +12,7 @@ categories:
 
 ![Robson - Gentleman and Geordie](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2009/7/31/1249052536184/Sir-Bobby-Robson-RIP-001.jpg)
 
-Indeed it's very true that the first 90 minutes of any football game are the most important, and that will be the case at Portman Road come half five too. This will be the first time in some time that we've visited Ipswich Town, one of Bobby Robson's many homes. Hopefully we can do Sir Bobby proud and grab all three points but Roy Keane's team will also be hoping to clinch a long  awaited win for the Tractor Boys. This game is really about the late Bobby Robson and it will be a tribute to the legend.
+Indeed it's very true that the first 90 minutes of any football game are the most important, and that will be the case at Portman Road come half five too. This will be the first time in some time that we've visited Ipswich Town, one of Bobby Robson's many homes. Hopefully we can do Sir Bobby proud and grab all three points but Roy Keane's team will also be hoping to clinch a long awaited win for the Tractor Boys. This game is really about the late Bobby Robson and it will be a tribute to the legend.
 
 We welcome back Fabricio Coloccini, and a couple others for the trip and I think that if we play as we have done, then it'll be an easy win for the traveling Toon Army.
 

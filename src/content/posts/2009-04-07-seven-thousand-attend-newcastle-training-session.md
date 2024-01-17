@@ -14,13 +14,13 @@ St.James' Park allowed local fans in today, to see Alan Shearer train the Newcas
 
 Shearer said today :
 
-_“I asked all of the lads who had been involved with the first team to go and play for the reserves.” “I asked them to put in a performance and they’ve all done that. All of them will have a part to play.”
+\_“I asked all of the lads who had been involved with the first team to go and play for the reserves.” “I asked them to put in a performance and they’ve all done that. All of them will have a part to play.”
 
 “The mood has been very good in training.” “It’s been very positive despite what happened on Saturday against Chelsea.” “Everybody has come in and worked very hard.”
 
- _“I asked Andy to go out and show me what he could do, and he’s done that.”
+\_“I asked Andy to go out and show me what he could do, and he’s done that.”
 
-“Like all of the lads who came from the first team, he showed a great appetite and a great attitude.”_
+“Like all of the lads who came from the first team, he showed a great appetite and a great attitude.”\_
 
 So who will start is still unknown but Big Andy might be in with a big shout for a starting spot versus the Potters.
 

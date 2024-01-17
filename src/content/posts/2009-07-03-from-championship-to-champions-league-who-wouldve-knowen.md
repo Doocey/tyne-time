@@ -11,7 +11,7 @@ categories:
 
 ![Owen - Feeling just a little bit guilty?](https://static.guim.co.uk/sys-images/Sport/Pix/pictures/2009/3/29/1238345338832/Michael-Owen-001.jpg)
 
-It's an ironic occurrence what's happening with Michael Owen today. Lil' Mo is  on the verge of completing a move to Manchester United. From The Coca Cola Championship although he hasn't played a game there yet, to challenging for the Champions League and indeed every other piece of silverware that's on offer this coming season. According to
+It's an ironic occurrence what's happening with Michael Owen today. Lil' Mo is on the verge of completing a move to Manchester United. From The Coca Cola Championship although he hasn't played a game there yet, to challenging for the Champions League and indeed every other piece of silverware that's on offer this coming season. According to
 
 Owen left United's training grounds (Manchester United's) earlier today and was undergoing a medical. It seems this medical is a more specific one for Owen as of his injury problems throughout the years and Alex Ferguson doesn't usually sign injury prone players.
 

@@ -11,7 +11,7 @@ categories:
 
 ### Coleman - Would love to disrupt Newcastle United's title hopes tomorrow
 
-With Cardiff and West Bromich Albion drawing 1-1 in Wales tonight and Nottingham Forest overcoming Sheffield United, it means a Newcastle United victory can see Chris Hughton's side go three points clear of their nearest rivals in Brom. With Newcastle playing tomorrow at home to Coventry City the three points will mean even more, should we be able to get them. In my  opinion , I think we will and we really should too, however, Coventry are now slouches of late and can boast quite a nice recent record, including a victory over Forest two weeks ago.
+With Cardiff and West Bromich Albion drawing 1-1 in Wales tonight and Nottingham Forest overcoming Sheffield United, it means a Newcastle United victory can see Chris Hughton's side go three points clear of their nearest rivals in Brom. With Newcastle playing tomorrow at home to Coventry City the three points will mean even more, should we be able to get them. In my opinion , I think we will and we really should too, however, Coventry are now slouches of late and can boast quite a nice recent record, including a victory over Forest two weeks ago.
 
 With Shola Ameobi ruled out for another fortnight, Leon Best, Andy Carroll and Peter Lovenkrands will all be determined to secure their 1st team spot and if Carroll & indeed Lovenkrands can keep their scoring form at home going, then they should have no problem being first team regulars.
 

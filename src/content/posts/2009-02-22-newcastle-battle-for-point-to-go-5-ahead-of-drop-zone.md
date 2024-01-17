@@ -6,8 +6,8 @@ date: 2009-02-22T20:11:46+00:00
 url: /2009/02/22/newcastle-battle-for-point-to-go-5-ahead-of-drop-zone/
 categories:
   - Newcastle United News
-
 ---
+
 ### Nolan - Deservedly sent off for an awful challenge
 
 On a day where the theme was of rivalry although not normally, tackles flew in, from Newcastle players to say the least. The above picture shows Nolan's tackle on Anichebe which rightly got him sent off after 44 minutes at St.James'. A terrible challenge from a player who is very important to Newcastle's survival this year. Unfortunately now, that will mean Nolan will miss three important games upcoming.

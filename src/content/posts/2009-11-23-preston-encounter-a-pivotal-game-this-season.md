@@ -10,7 +10,7 @@ categories:
 
 #### Chris Hughton - Newcastle United Manager
 
-Live on Sky Sports tonight is the meeting of Preston North End and Newcastle United, as if you didn't already know. Chris Hughton and the lads will attempt to reclaim top spot and in order to do that, they'll need to crack the tough challenge of Preston, in Deepdale. Although Preston lie in 12th position they've won 3 at home and 3 on the trot. Predictably, they're as tough at home as  they are away. Saying that, our away record isn't anything to be ashamed of, only losing out to Scunthorpe and Nottingham Forest and Blackpool on our travels & the majority of those teams are in quite decent positions in the Coca Cola Championship table.
+Live on Sky Sports tonight is the meeting of Preston North End and Newcastle United, as if you didn't already know. Chris Hughton and the lads will attempt to reclaim top spot and in order to do that, they'll need to crack the tough challenge of Preston, in Deepdale. Although Preston lie in 12th position they've won 3 at home and 3 on the trot. Predictably, they're as tough at home as they are away. Saying that, our away record isn't anything to be ashamed of, only losing out to Scunthorpe and Nottingham Forest and Blackpool on our travels & the majority of those teams are in quite decent positions in the Coca Cola Championship table.
 
 Ahead of this game, we're expected to have much the same team we put out at home to Peterborough. Jonas is expected back fit but 'Zurab The Lad' is still suspended, following his sending off at home to Doncaster.
 

@@ -13,7 +13,7 @@ categories:
 
 #### Ben Arfa - Stunning strike to save NUFC's blushes on a below par day for the Toon
 
-I must admit that I didn't see a whole lot of the first half of NUFC vs. Villa as I was busy watching an enthralling encounter between my native Mayo, and Dublin in the GAA. However, I did see Ciaran Clarke's opener and quite a few passages of NUFC's play which was below par to say the least. Clarke's header was a goal that should never have happened, Steven Taylor misjudged the ball in and was caught out. Credit to the Irishman though, he stuck it away well. Villa breaking the deadlock had been coming for quite some time, from what I watched; Darren  Bent wasn't too far away from sticking the Villans in front.
+I must admit that I didn't see a whole lot of the first half of NUFC vs. Villa as I was busy watching an enthralling encounter between my native Mayo, and Dublin in the GAA. However, I did see Ciaran Clarke's opener and quite a few passages of NUFC's play which was below par to say the least. Clarke's header was a goal that should never have happened, Steven Taylor misjudged the ball in and was caught out. Credit to the Irishman though, he stuck it away well. Villa breaking the deadlock had been coming for quite some time, from what I watched; Darren Bent wasn't too far away from sticking the Villans in front.
 
 I tuned into the second half just before 55&' and the thing I noticed most about our domination of play, was the shocking corner delivery. Cabaye, taking on the left, on most occasions couldn't beat the first man, while the delivery from the right was nearly always far too heavy and gave Steven Taylor, Demba Ba, or anyone else for that matter, very little chance of getting their head on it.
 

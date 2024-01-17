@@ -14,7 +14,7 @@ categories:
 
 #### Ashley - Willing to part with his highest ever sum since taking charge of NUFC
 
-Not many people might have realised, but our £11m bid deemed unacceptable by FC Twente, for their star man Luuk de Jong, happened to be the highest ever bid Mike Ashley has financed in his NUFC tenure thus far. When Ashley arrived on Tyneside, he immediately threw forward £10.3m to sign Fabricio Coloccini - a well spent ten million if you ask me. However, later he dished out £5m more to finance the signing of Xisco from Deportivo yet again, which probably turned out his worst ever signing. Since that deal never worked out and according to  the blueprint in place - little money was injected into our managers coffers in the last couple of years, until, we could afford to, via the Andy Carroll sale.
+Not many people might have realised, but our £11m bid deemed unacceptable by FC Twente, for their star man Luuk de Jong, happened to be the highest ever bid Mike Ashley has financed in his NUFC tenure thus far. When Ashley arrived on Tyneside, he immediately threw forward £10.3m to sign Fabricio Coloccini - a well spent ten million if you ask me. However, later he dished out £5m more to finance the signing of Xisco from Deportivo yet again, which probably turned out his worst ever signing. Since that deal never worked out and according to the blueprint in place - little money was injected into our managers coffers in the last couple of years, until, we could afford to, via the Andy Carroll sale.
 
 The £9m signing of Papiss Cissé signalled that Mike was willing to pay up for the right type of player, and slowly but surely, he was beginning to trust the men around him; Charnley, Carr, Pardew, Carver. Since Cissé has almost scored in every game since arriving, it is only human nature to happily give even more, in the hope for something as good, or even better.
 
@@ -34,4 +34,4 @@ AND, if you're not following us on Twitter or haven't liked us on [Facebook][1] 
 
 Comments welcome as always 🙂
 
- [1]: http://www.facebook.com/tynetime
+[1]: http://www.facebook.com/tynetime

@@ -1,5 +1,5 @@
 ---
-title: 'Joey Barton available for £1.5m – West Ham & Aston Villa line up bids.'
+title: "Joey Barton available for £1.5m – West Ham & Aston Villa line up bids."
 author: Kevin Doocey
 type: post
 date: 2010-12-21T15:28:05+00:00
@@ -15,7 +15,7 @@ categories:
 
 #### Barton - Newcastle have set an asking fee of £1.5m for the midfielder
 
-Everything that you hear from Newcastle United nowadays must be taken in with quite the opposite. Since Mike Ashley took over the club, things are gone bezerk to say the very least. As I said in my last article, we cannot really trust the owners of the club until they have handed over the keys to new owners and are on their way home - indeed the likelihood of that happening is quite low. Only  a couple of days ago, Alan Pardew reiterated that he was not going to sell any of his key players, and Joey Barton, the tenacious midfielder is definitely one of our key players this season, with nearly five assists, and a couple of important goals.
+Everything that you hear from Newcastle United nowadays must be taken in with quite the opposite. Since Mike Ashley took over the club, things are gone bezerk to say the very least. As I said in my last article, we cannot really trust the owners of the club until they have handed over the keys to new owners and are on their way home - indeed the likelihood of that happening is quite low. Only a couple of days ago, Alan Pardew reiterated that he was not going to sell any of his key players, and Joey Barton, the tenacious midfielder is definitely one of our key players this season, with nearly five assists, and a couple of important goals.
 
 Obviously Pardew's statement when he took over of going _'toe to toe with Mike Ashley'_ if he did not agree with his decisions, does not bode too well with the happenings today. Saying that, it doesn't come as a surprise whatsoever. We do expect a few players to leave, and none to come in to put it bluntly. We could well lose Andy Carroll this transfer window, despite Pardew resisting rumours that he will allow the Geordie lad to leave.
 

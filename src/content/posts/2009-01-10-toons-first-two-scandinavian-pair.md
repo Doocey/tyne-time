@@ -6,7 +6,6 @@ date: 2009-01-10T14:46:35+00:00
 url: /2009/01/10/toons-first-two-scandinavian-pair/
 categories:
   - Newcastle United News
-
 ---
 
 ![Peter Lovenkrands - Set for Toon arrival?](https://img.skysports.com/08/01/218x298/peterlovenkrands_628445.jpg)

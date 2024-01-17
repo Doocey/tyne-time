@@ -25,4 +25,4 @@ Windy weather to be chancing the airways for a quick break though&#8230;
 
 Stay up to date with by following myself [@KevinDoocey][1] on Twitter where this picture surfaced courtesy of @HanoiToon.
 
- [1]: https://twitter.com/kevindoocey
+[1]: https://twitter.com/kevindoocey

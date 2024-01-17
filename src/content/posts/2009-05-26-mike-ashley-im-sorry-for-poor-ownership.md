@@ -10,7 +10,7 @@ categories:
 
 ### Ashley - What a mess he's made
 
-Today Mike Ashley publicly apologized to the Newcastle faithful, staff and anyone merely associated with NUFC. IN a statement he continued to say how sorry he was and that it was his fault such a  catastrophe occurred, Newcastle's relegation. Most people won't accept this apology as actions speak louder than words however Shearer and Mr.Ashley were locked in a lengthy meeting today over Big Al's future and indeed the plan for the football club in Championship football.
+Today Mike Ashley publicly apologized to the Newcastle faithful, staff and anyone merely associated with NUFC. IN a statement he continued to say how sorry he was and that it was his fault such a catastrophe occurred, Newcastle's relegation. Most people won't accept this apology as actions speak louder than words however Shearer and Mr.Ashley were locked in a lengthy meeting today over Big Al's future and indeed the plan for the football club in Championship football.
 
 Rumours are suggesting Ashley is ready to sell up but the most likely option is, that he's wants Shearer as full time manager and they are planning in detail the next steps of the mighty football club. Speaking today Ashley said :
 

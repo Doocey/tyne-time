@@ -12,7 +12,7 @@ categories:
 
 ### Ryan - Has settled well on Tyneside
 
-You could nearly say that he's been one our players of the season so far. Chipping in with a couple of goals too, and no ordinary goals mind you. Ryan Taylor's latest was against Ipswich when he caught the keeper in an awkward position and caressed it into the top corner, and not a fluke as some may have suggested. He also hit the target with a stunning strike, with his left this time,  into the other top corner, in a two nil win against Crystal Palace earlier this year. However, he'll sit out the tie at St.James' Park between Newcastle and Queens Park Rangers.
+You could nearly say that he's been one our players of the season so far. Chipping in with a couple of goals too, and no ordinary goals mind you. Ryan Taylor's latest was against Ipswich when he caught the keeper in an awkward position and caressed it into the top corner, and not a fluke as some may have suggested. He also hit the target with a stunning strike, with his left this time, into the other top corner, in a two nil win against Crystal Palace earlier this year. However, he'll sit out the tie at St.James' Park between Newcastle and Queens Park Rangers.
 
 He'll be missed on the right, that's for sure, but I think that Danny Simpson will be switched to RB and perhaps Danny Guthrie placed on the right wing. Guthrie has also been impressive this season, as we expected him to be.
 

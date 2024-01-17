@@ -11,7 +11,7 @@ categories:
 
 ### Sir Bobby - An emotional ceremony in Durham Cathedral
 
-An emotional ceremony in Durham Cathedral some of the greats of English and European football pay their never ending respects to the late Sir Bobby Robson. In a gathering, in the fine Durham cathedral saw the Newcastle first team, alongside Chris Hughon, Alan Shearer, Paul Gascoigne, Peter Beardsley, Gary Lineker, and Fabio Capello all attend. It was an emotional event  for Gazza who was reduced to tears but most people within the sacred grounds couldn't help but feel they had a lost a great great man.
+An emotional ceremony in Durham Cathedral some of the greats of English and European football pay their never ending respects to the late Sir Bobby Robson. In a gathering, in the fine Durham cathedral saw the Newcastle first team, alongside Chris Hughon, Alan Shearer, Paul Gascoigne, Peter Beardsley, Gary Lineker, and Fabio Capello all attend. It was an emotional event for Gazza who was reduced to tears but most people within the sacred grounds couldn't help but feel they had a lost a great great man.
 
 Today Newcastle are away to Peterborough, Darren Ferguson's well organised team who got their first win of the Coca Cola Championship on Saturday, even after falling 2 nil behind.
 

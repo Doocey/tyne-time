@@ -17,11 +17,11 @@ Back in January 2013 when Newcastle United completed the signing of Mathieu Debu
 
 Weeks after the tournament I was sure that a really top club would make a move for Debuchy. He had all the attributes of a world-class full-back. Surging runs, aerial dominance, a credible delivery, and an engine that saw him motor up and down the wings for an entire 90 minutes.
 
-It took a few months before Newcastle fans got to see the real Debuchy, naturally enough. He needed time to adjust to the Premier League like many have in the past, and to be fair, he was thrown in at the deep-end with  Newcastle mired in a relegation battle (and Europe!) towards the end of the season.
+It took a few months before Newcastle fans got to see the real Debuchy, naturally enough. He needed time to adjust to the Premier League like many have in the past, and to be fair, he was thrown in at the deep-end with Newcastle mired in a relegation battle (and Europe!) towards the end of the season.
 
 Eventually he became one of the first names on the team-sheet alongside his best pal, Yohan Cabaye. Of course as many Arsenal & Newcastle fans will know - Arsene Wenger tried to bring Cabaye to the Emirates at the start of last season but ultimately failed due to his shoddy £10m valuation of the midfielder.
 
-Cabaye eventually left for the lights of Paris in a £19m move and this has played a _major part_ in Debuchy looked for a move away. Having played with Yohan at Lille, and indeed NUFC, you can be sure Debuch would have loved a move to PSG, but their interest faded towards the end of last season.
+Cabaye eventually left for the lights of Paris in a £19m move and this has played a *major part* in Debuchy looked for a move away. Having played with Yohan at Lille, and indeed NUFC, you can be sure Debuch would have loved a move to PSG, but their interest faded towards the end of last season.
 
 Fast-forward to July 2014 and Wenger is ready to make the French international one of a number of high-profile signings. The rumoured fee agreed with Newcastle has ranged from £7.9m - £11.1m with various media outlets, but I'd expect that there is an initial feel of £8m with future add-ons bringing the total amount up to £12m.
 

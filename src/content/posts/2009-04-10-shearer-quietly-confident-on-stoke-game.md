@@ -14,13 +14,13 @@ Alan Shearer today spoke to the local newspapers and talked about what he will i
 
 Shearer said :
 
- _“It’s just one or two little tweaks here and there, which I think the players have wanted to happen but, for whatever reason, haven’t happened.
+\_“It’s just one or two little tweaks here and there, which I think the players have wanted to happen but, for whatever reason, haven’t happened.
 
 “Punctuality’s a major thing for myself, and we all eat together.
 
 “The injured players are now in until late afternoon, and I hope that will have an effect in clearing the medical room.
 
-“Players don’t like to stay until late afternoon – do they?”_
+“Players don’t like to stay until late afternoon – do they?”\_
 
 He also mentioned Joey Barton and Mark Viduka, saying they will play an important role in the the end of the season. Viduka can hold up play and score an odd one whilst Barton will give it everything he has. Hopefully we'll be safe and that the duo of both Barton and Viduka can just play out the rest of the season without any concerns.
 

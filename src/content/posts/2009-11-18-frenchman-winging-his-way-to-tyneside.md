@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-It seems we might have found a winger for the rest of the season in Fabrice Pancrate. The Frenchman on trial at Newcastle for the last few days played in the reserves game at home to Hartlepool last night and showed some nice touches, perhaps even worthy of a permanent contract on Tyneside. The game's real hero was Phil Airey, the local lad scoring two goals in a 3-2  victory for Newcastle. However, Fabrice Pancrate and Peter Lovenkrands were in the spotlight for the 80 minutes they played more than anyone else.
+It seems we might have found a winger for the rest of the season in Fabrice Pancrate. The Frenchman on trial at Newcastle for the last few days played in the reserves game at home to Hartlepool last night and showed some nice touches, perhaps even worthy of a permanent contract on Tyneside. The game's real hero was Phil Airey, the local lad scoring two goals in a 3-2 victory for Newcastle. However, Fabrice Pancrate and Peter Lovenkrands were in the spotlight for the 80 minutes they played more than anyone else.
 
 Speaking about Pancrate's performance, Hughton said :
 

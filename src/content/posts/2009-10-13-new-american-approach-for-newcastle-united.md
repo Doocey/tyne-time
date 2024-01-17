@@ -11,7 +11,7 @@ categories:
 
 ### Ashley - In discussions or taking his time
 
-There are many reports surrounding Newcastle United this weather and the latest one is of an approach from the infamous Geoff Sheard, backed by an American consortium, to but NUFC. Star Foundation from the USA are said to be backing a new approach led with Geoff Sheard spearheading it, even though Sheard himself, failed with the buyout of Sheffield Wednesday  and indeed failed to back up his initial statements last month claiming he was all set to buy Newcastle with different American backing. However, he failed to produce proof of funds and his move played down.
+There are many reports surrounding Newcastle United this weather and the latest one is of an approach from the infamous Geoff Sheard, backed by an American consortium, to but NUFC. Star Foundation from the USA are said to be backing a new approach led with Geoff Sheard spearheading it, even though Sheard himself, failed with the buyout of Sheffield Wednesday and indeed failed to back up his initial statements last month claiming he was all set to buy Newcastle with different American backing. However, he failed to produce proof of funds and his move played down.
 
 Sheard today said :
 
@@ -20,7 +20,6 @@ Sheard today said :
 > “It’s all down to the solicitors now. There has been no contact with ourselves or Derek Llambias or Mike Ashley, just between legal teams.
 >
 > “We are not aware of any other significant interest from elsewhere.”
->
 
 So, if you're to believe what he says then you can expect Newcastle United to be under new owners in about a week, and it's not the first time we've heard this either. However, I thought Barry Moat was close to sealing the deal?
 

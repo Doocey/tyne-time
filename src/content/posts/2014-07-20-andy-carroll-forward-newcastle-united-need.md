@@ -1,6 +1,6 @@
 ---
 title: Andy Carroll is not the forward Newcastle United need
-description: 'Newcastle United are looking to add one more forward to their ranks however, it most definitely should not be ex-Magpie Andy Carroll.'
+description: "Newcastle United are looking to add one more forward to their ranks however, it most definitely should not be ex-Magpie Andy Carroll."
 author: Kevin Doocey
 type: post
 date: 2014-07-20T13:10:26+00:00
@@ -16,7 +16,7 @@ Newcastle United have made a blistering start to the summer transfer market with
 
 Many of us will remember the day Andy left for Liverpool in a staggering £35m move. Newcastle were left with a swollen bank account, but had to continue on their season with Leon Best and Peter Lovenkrands up front, aided by the occasional goal from Shola Ameobi. The team coped well without Carroll, but he was loss, no doubt.
 
-Fast-forward to 2014 and Newcastle are again being linked with a move for the England capped forward. The 25 year-old completed a £15m move to West Ham just a year ago and despite the large outlay from the London  outfit, injuries have plagued his career with the Hammers so far.
+Fast-forward to 2014 and Newcastle are again being linked with a move for the England capped forward. The 25 year-old completed a £15m move to West Ham just a year ago and despite the large outlay from the London outfit, injuries have plagued his career with the Hammers so far.
 
 Reports in the Mirror claim Alan Pardew wants to bring Carroll back to St. James' Park, and apparently Pardew is confident that the sides can strike a deal since West Ham have bolstered their forward ranks with the £12m capture of Enner Valencia from Pachua - a rumoured target of NUFC who had a cracking World Cup with his country Ecuador.
 

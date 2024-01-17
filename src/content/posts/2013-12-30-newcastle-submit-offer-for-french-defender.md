@@ -1,6 +1,6 @@
 ---
 title: Newcastle submit offer for French defender
-description: 'News emerging from France (where else?!) suggest that Newcastle United director of football Joe Kinnear may not actually be drinking whiskey and relaxing..'
+description: "News emerging from France (where else?!) suggest that Newcastle United director of football Joe Kinnear may not actually be drinking whiskey and relaxing.."
 author: Kevin Doocey
 type: post
 date: 2013-12-30T19:37:53+00:00
@@ -12,7 +12,7 @@ categories:
 
 ![Nathan Dekoké in action for Saint-Étienne](https://www.tynetime.com/wp-content/uploads/2013/12/Nathan-Dekoke.jpg "Dekoké - Newcastle want land young defender in January transfer window")
 
-News emerging from France (where else?!) suggest that Newcastle United director of football Joe Kinnear may not actually be drinking whiskey and relaxing beside the fire this Christmas period, rather instead, lining up moves for January targets. _France Football_ is carrying a story claiming NUFC have tabled an offer for young French defender Nathan Dekoké. The 17 year-old is currently on the books of Saint Étienne but his contract expires in the summer of 2014 meaning he is open to offers. According to the article Newcastle have offered him a deal and could be followed closely by Fulham who are also keeping tabs on his progress. The French club would be due compensation should Dekoké decide to accept an  offer from another club but the fee itself is likely to be minimal.
+News emerging from France (where else?!) suggest that Newcastle United director of football Joe Kinnear may not actually be drinking whiskey and relaxing beside the fire this Christmas period, rather instead, lining up moves for January targets. *France Football* is carrying a story claiming NUFC have tabled an offer for young French defender Nathan Dekoké. The 17 year-old is currently on the books of Saint Étienne but his contract expires in the summer of 2014 meaning he is open to offers. According to the article Newcastle have offered him a deal and could be followed closely by Fulham who are also keeping tabs on his progress. The French club would be due compensation should Dekoké decide to accept an offer from another club but the fee itself is likely to be minimal.
 
 While many Newcastle United fans will be looking to secure a deal for a striker in the coming window the noises coming from the club would indicate that Alan Pardew is planning for the future with the purchase of young players with potential to burn.
 
@@ -24,5 +24,5 @@ Regards Dekoké - if any of my readers know about him then please fill us in, in
 
 Also - you can follow me on Twitter [@KevinDoocey][1] and make sure to like [Tyne Time's Facebook][2].
 
- [1]: https://twitter.com/kevindoocey
- [2]: http://www.facebook.com/tynetime
+[1]: https://twitter.com/kevindoocey
+[2]: http://www.facebook.com/tynetime

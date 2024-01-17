@@ -1,5 +1,5 @@
 ---
-title: 'Carroll & Nolan binge after the Sunderland victory, where do the media get off?'
+title: "Carroll & Nolan binge after the Sunderland victory, where do the media get off?"
 author: Kevin Doocey
 type: post
 date: 2010-11-07T13:19:52+00:00
@@ -16,7 +16,7 @@ categories:
 
 #### Carroll - Staying in Nolan's house since his courting hearing a few weeks ago
 
-Well my latest article has been a long time coming and I apologise for that, however, I was intending on writing an article before the Tyne Wear derby about why on earth there was rumours of Chris Hughton being sacked, but when they won 5-1 it would've look a little suspect. Observing all the latest news about Newcastle in the latest few weeks has led me to inevitably write  this article, quite frankly because I can' believe what I'm seeing day in day out. What can we say about the Sunderland win? Incredible stuff to say the least. The team are a unit that I haven't saw in a long time in a Toon shirt. Tioté, Barton, two marvels in midfield, with Nolan leading the line and Carroll doing his fair share. Mind you, that's before we even mention Shola Ameobi and the part he has played in Tyne-Wear derbies over the years.
+Well my latest article has been a long time coming and I apologise for that, however, I was intending on writing an article before the Tyne Wear derby about why on earth there was rumours of Chris Hughton being sacked, but when they won 5-1 it would've look a little suspect. Observing all the latest news about Newcastle in the latest few weeks has led me to inevitably write this article, quite frankly because I can' believe what I'm seeing day in day out. What can we say about the Sunderland win? Incredible stuff to say the least. The team are a unit that I haven't saw in a long time in a Toon shirt. Tioté, Barton, two marvels in midfield, with Nolan leading the line and Carroll doing his fair share. Mind you, that's before we even mention Shola Ameobi and the part he has played in Tyne-Wear derbies over the years.
 
 However, people of course like reading good news, but to sell papers, you need some interesting headlines - something that captures the peoples imagination. Perhaps, it's the most important thing in good journalism. Hence the emerging articles about Newcastle United over the last two weeks or so. From rumours of Chris Hughton being sacked, which is utterly ridiculous with the Tyne-Wear thrashing aside. And now, today, we've an article about how Andy Carroll and Kevin Nolan went on a 14-hour binge, and then Carroll proceed to have an orgy with a brunette & a blonde back at captains house.
 

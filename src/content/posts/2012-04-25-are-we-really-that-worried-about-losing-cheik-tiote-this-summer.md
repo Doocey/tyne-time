@@ -12,7 +12,7 @@ categories:
 
 #### Tioté - Still has a huge amount to learn about the Premier League
 
-Like any other year, it comes as no surprise to us that the media are trying to cause unrest at Newcastle United, particularly the southern crew. Constantly our players are linked with moves away from St.James' Park, and it has come to a stage where Alan Pardew even admits that there is nothing he can do if bigger clubs come calling. Unfortunately, this isn't what the papers want to hear. They want to hear guarantees from NUFC that big players _won't_ leave, so in the eventual case  of them departing for another club - they can bring it right back to our manager or board.
+Like any other year, it comes as no surprise to us that the media are trying to cause unrest at Newcastle United, particularly the southern crew. Constantly our players are linked with moves away from St.James' Park, and it has come to a stage where Alan Pardew even admits that there is nothing he can do if bigger clubs come calling. Unfortunately, this isn't what the papers want to hear. They want to hear guarantees from NUFC that big players _won't_ leave, so in the eventual case of them departing for another club - they can bring it right back to our manager or board.
 
 It's annoying, but our 'unknown' signings that many 'pundits' and figures in the media thought would be part of a struggling Newcastle United team, have been proven very wrong. Pardew and the team haven't granted any of the media any satisfaction in what they've done this season - so they've had to come up with another attempt at unsettling the squad. That attempt would be linking Alan Pardew with the current England job alongside Demba Ba & Tioté departure rumours.
 

@@ -15,7 +15,7 @@ categories:
 
 I think we all remember Fabricio Coloccini's first season in the Premier League. Lack of pace, and prone to many a blunder. Some of us asked ourselves if he was really worth the £10.5m Kevin Keegan paid over, if in fact he was Kevin's choice at all.
 
-Following relegation, Coloccini did not leave and it seemed as if no one was going to take a gamble on the Argentinian international after what was nothing  short of a disastrous first season in English football. Thankfully he did indeed stay on Tyneside, because he is for me at least, the best CB we have, and possible the best centre-half we have had in quite some time.
+Following relegation, Coloccini did not leave and it seemed as if no one was going to take a gamble on the Argentinian international after what was nothing short of a disastrous first season in English football. Thankfully he did indeed stay on Tyneside, because he is for me at least, the best CB we have, and possible the best centre-half we have had in quite some time.
 
 I highlighted his performance in our 1-1 draw away to Sunderland as one of the best I've ever seen from a CB in a Newcastle shirt in the last 5 or 6 years. He was composed, and as far as I remember did not put one foot wrong, quite literally.
 

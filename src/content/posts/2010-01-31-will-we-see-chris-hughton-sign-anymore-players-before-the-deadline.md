@@ -12,7 +12,7 @@ categories:
 
 ### Hughton - Disappointed over missing out on Moses and rightly so
 
-News is rife that Wigan Athletic has completed the signing of promising English talent Victor Moses from Crystal Palace for a fee of £2.5m. The Nigerian born was heavily linked with a move for Moses, however the Magpies were unwilling to match the administrators asking price of £2.5m which could turn out to be a great bargain in the future. Every Toon fan across the globe is  disappointed to be beaten by Wigan and Mike Ashley more than anyone we'd expect, especially when his enemy in Dave Whelan. What's worse for the Newcastle owner, is that BBC will be airing a 'Watchdog' like program, investigating Mike Ashley's factories in Laos that produce the ultra cheap Donnay and Lonsdale sportswear.
+News is rife that Wigan Athletic has completed the signing of promising English talent Victor Moses from Crystal Palace for a fee of £2.5m. The Nigerian born was heavily linked with a move for Moses, however the Magpies were unwilling to match the administrators asking price of £2.5m which could turn out to be a great bargain in the future. Every Toon fan across the globe is disappointed to be beaten by Wigan and Mike Ashley more than anyone we'd expect, especially when his enemy in Dave Whelan. What's worse for the Newcastle owner, is that BBC will be airing a 'Watchdog' like program, investigating Mike Ashley's factories in Laos that produce the ultra cheap Donnay and Lonsdale sportswear.
 
 I for one would've loved to have seen Victor Moses pull on the Black & White of Newcastle United but it seems as if the idea of joining Wigan and using them as a stepping stone to bigger clubs and great things, have played a huge incentive in getting Moses to the DW Stadium.
 

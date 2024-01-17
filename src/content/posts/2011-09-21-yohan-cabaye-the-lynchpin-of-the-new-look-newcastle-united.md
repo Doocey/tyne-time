@@ -15,7 +15,7 @@ categories:
 
 #### Cabaye - Class act and another shrewd piece of business by Newcastle United
 
-We may well look back at Saturday the 17th of September as the day Yohan Cabaye announced his arrival in the Premier League. The Frenchman played arguably his best ninety minutes in a Black and White shirt since his arrival and generally was sublime on the ball. It's just a pity that he didn't get his deserved goal on the day, the crossbar and a magnificent Shay Given save  denying him two possible goals. For me and I'm sure a lot others; he was the best man on the pitch that day and started showing glimpses of the quality he possesses, indeed quality that helped Lille win the Ligue 1 last season.
+We may well look back at Saturday the 17th of September as the day Yohan Cabaye announced his arrival in the Premier League. The Frenchman played arguably his best ninety minutes in a Black and White shirt since his arrival and generally was sublime on the ball. It's just a pity that he didn't get his deserved goal on the day, the crossbar and a magnificent Shay Given save denying him two possible goals. For me and I'm sure a lot others; he was the best man on the pitch that day and started showing glimpses of the quality he possesses, indeed quality that helped Lille win the Ligue 1 last season.
 
 Last night we didn't have Yohan on the pitch but another Tyneside favourite; Hatem Ben Arfa. The Frenchman was making his comeback following an ankle injuring whilst on tour in America. It was a breath of fresh air to see Hatem back playing football and showing his beaming technical ability - something we paid £5m for, while he was recovering from a broken leg. A gamble? Mike, Derek or Alan didn't think so.
 

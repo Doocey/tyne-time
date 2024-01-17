@@ -14,7 +14,7 @@ categories:
 
 #### N'Zogbia - Seems like he wants to return to St. James' Park again
 
-I must admit; I wasn't really that disappointed to see Charles N'Zogbia depart Newcastle United on January 3 years ago and in fact, was excited at the prospect of capturing Ryan Taylor. Taylor, who just couldn't stop scoring against Newcastle each season had indeed nabbed a very important goal in that very season, a spectacular free-kick if I remember correctly. Anyway, things changed massively  and we were relegated to the then Coca Cola Championship, and N'Zogbia began playing out of his skin ever since he joined the Latics. However, in the summer of 2011; there are strong rumours that we could very well be on the verge of completing the resigning of the Frenchman, for a fee of double figures.
+I must admit; I wasn't really that disappointed to see Charles N'Zogbia depart Newcastle United on January 3 years ago and in fact, was excited at the prospect of capturing Ryan Taylor. Taylor, who just couldn't stop scoring against Newcastle each season had indeed nabbed a very important goal in that very season, a spectacular free-kick if I remember correctly. Anyway, things changed massively and we were relegated to the then Coca Cola Championship, and N'Zogbia began playing out of his skin ever since he joined the Latics. However, in the summer of 2011; there are strong rumours that we could very well be on the verge of completing the resigning of the Frenchman, for a fee of double figures.
 
 I'm a big fan of Charles - he has pace, ability and scores a considerable amount of goals. In all reality, with no offence to Wigan Athletic fans: N'Zogbia single-handedly kept them in the Premier League this season. His last minute winner at home to West Ham was probably the most important goal ever scored for Wigan, and it proved to be a very very important 3 points. Three points that saved their season.
 
@@ -36,4 +36,4 @@ Realistically speaking, we have more chance of landing N'Zogbia - if we're luck 
 
 Comments welcome as always 🙂
 
- [1]: https://www.tynetime.com/2011/06/09/newcastle-united-set-for-most-exciting-summer-transfer-window-in-years/
+[1]: https://www.tynetime.com/2011/06/09/newcastle-united-set-for-most-exciting-summer-transfer-window-in-years/

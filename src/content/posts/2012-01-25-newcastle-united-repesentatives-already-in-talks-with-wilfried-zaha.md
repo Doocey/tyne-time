@@ -13,7 +13,7 @@ categories:
 
 #### Zaha - Future could be decided by end of January after Palace's cup exit
 
-With just under a week to go in the January transfer window, Newcastle United are looking to add another player or two to the squad. A defenders arrival is imminent at St.James' Park, indeed a deal is expected to be sorted out within the next three days all going well. However, the Newcastle hierarchy has been alerted by Wilfried Zaha's availability. The future of the exciting forward was set  to be talked about and decided upon whenever Crystal Palace were eliminated from the League Cup, and yesterday, in the most heartbreaking fashion - Dougie Freedman's team crashed out via penalties.
+With just under a week to go in the January transfer window, Newcastle United are looking to add another player or two to the squad. A defenders arrival is imminent at St.James' Park, indeed a deal is expected to be sorted out within the next three days all going well. However, the Newcastle hierarchy has been alerted by Wilfried Zaha's availability. The future of the exciting forward was set to be talked about and decided upon whenever Crystal Palace were eliminated from the League Cup, and yesterday, in the most heartbreaking fashion - Dougie Freedman's team crashed out via penalties.
 
 The Chronicle Live are reporting that Newcastle United are already in talks with Zaha's representatives about thrashing out a deal, or finding out what it would take to lure the forward to Newcastle however, we'll face immense competition for this guys signature - you can be sure of that.
 

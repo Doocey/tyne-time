@@ -14,7 +14,7 @@ categories:
 
 #### Tioté - Will be crucial tonight if he can keep his discipline for the 90 minutes
 
-Tonight's game is a game people have relished for many many years. Newcastle United and Manchester United locking horns always seems like quite a big game, a game between two big sides when reality there is one far superior side lining out on most occasions and it hasn't been us for quite a while. However, a home tie against the Red Devils always brings excitement and we are sure to have  a full house at St.James' Park tonight. The encouraging thing is that we have a stronger midfield that Alex Ferguson's side tonight. Michael Carrick and Ryan Giggs could feature in centre-mid this evening, but there could be a few changes in their line-up before kick-off.
+Tonight's game is a game people have relished for many many years. Newcastle United and Manchester United locking horns always seems like quite a big game, a game between two big sides when reality there is one far superior side lining out on most occasions and it hasn't been us for quite a while. However, a home tie against the Red Devils always brings excitement and we are sure to have a full house at St.James' Park tonight. The encouraging thing is that we have a stronger midfield that Alex Ferguson's side tonight. Michael Carrick and Ryan Giggs could feature in centre-mid this evening, but there could be a few changes in their line-up before kick-off.
 
 Either way, I believe, and confidently believe that we have more than them in the centre of the park, and will hopefully show that tonight.
 

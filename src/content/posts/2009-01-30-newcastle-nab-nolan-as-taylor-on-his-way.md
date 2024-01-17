@@ -6,8 +6,8 @@ date: 2009-01-30T17:34:41+00:00
 url: /2009/01/30/newcastle-nab-nolan-as-taylor-on-his-way/
 categories:
   - Newcastle United News
-
 ---
+
 ## Taylor - Set for Newcastle move
 
 Unexpectedly Newcastle are moving quickly in the final few days of the window and have completed the signing of Kevin Nolan from Bolton for a fee in the region of £4m. That deal itself took less than 24 hours to complete and may have triggered something in the recruitment team to work even quicker. With N'Zogbia leaving Sky Sports have confirmed that Ryan Taylor is heading to Newcastle, and no. not to score another freekick against us! Taylor is set to sign to the Magpies and I'm delighted with this 😀

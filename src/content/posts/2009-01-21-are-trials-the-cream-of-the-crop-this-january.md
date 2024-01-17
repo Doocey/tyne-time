@@ -6,7 +6,6 @@ date: 2009-01-21T22:01:32+00:00
 url: /2009/01/21/are-trials-the-cream-of-the-crop-this-january/
 categories:
   - Newcastle United News
-
 ---
 
 ![Madouni - Possible arrival on Tyneside?](https://www.leverkusen.com/whoiswho/m/MadouniA.jpg)

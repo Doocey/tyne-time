@@ -1,5 +1,5 @@
 ---
-title: 'Fans Special: Get your Papiss Cissé wallpaper for free!'
+title: "Fans Special: Get your Papiss Cissé wallpaper for free!"
 author: Kevin Doocey
 type: post
 date: 2012-04-08T15:02:31+00:00
@@ -12,7 +12,7 @@ categories:
 
 ### Cissé - Scored a brace for the third game in a row including a stunning second
 
-It is hard not to sit back and relish Papiss Cisse's goal scoring form for Newcastle United at the minute - what ever club you support in the Premier League, bar the obvious. Arriving from Germany for £9m - a little more than a quarter of Andy Carroll's fee - he has already notched nine goals in eight games. For strikers landing in the Premier League from abroad, it is accepted that some  take half a season to adjust to the pace of the division, and the physicality of the game. It certainly looks like Papiss settled the minute his plane touched down at Newcastle International Airport. A stunning goal on his debut against Aston Villa set the tone, quickly followed up by one at home to Wolves & Norwich. Immediately after, another six goals arrived in three matches - 2 against Liverpool, 2 away to West Brom and on Friday gone: a brace in Wales, against Swansea. It really doesn't get much better for someone hoping to fill the famous #9 jersey at St.James' Park.
+It is hard not to sit back and relish Papiss Cisse's goal scoring form for Newcastle United at the minute - what ever club you support in the Premier League, bar the obvious. Arriving from Germany for £9m - a little more than a quarter of Andy Carroll's fee - he has already notched nine goals in eight games. For strikers landing in the Premier League from abroad, it is accepted that some take half a season to adjust to the pace of the division, and the physicality of the game. It certainly looks like Papiss settled the minute his plane touched down at Newcastle International Airport. A stunning goal on his debut against Aston Villa set the tone, quickly followed up by one at home to Wolves & Norwich. Immediately after, another six goals arrived in three matches - 2 against Liverpool, 2 away to West Brom and on Friday gone: a brace in Wales, against Swansea. It really doesn't get much better for someone hoping to fill the famous #9 jersey at St.James' Park.
 
 In fact, his form is so good we've decided to make a wallpaper to acknowledge it!
 
@@ -36,4 +36,4 @@ It's an interest read, honest! 😀 Feedback, comments more than welcome too.
 
 Comments welcomed as always 🙂
 
- [1]: https://twitter.com/ "tyne time twitter"
+[1]: https://twitter.com/ "tyne time twitter"

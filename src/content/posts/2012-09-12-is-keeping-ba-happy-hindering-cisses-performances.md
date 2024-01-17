@@ -1,5 +1,4 @@
 ---
-
 title: "Is keeping Ba happy hindering Cissé’s performances?"
 description: "Tyne Time examines whether Alan Pardew's determination to please Demba Ba is hindering the chances of once free scoring Papiss Cisse."
 author: Kevin Doocey
@@ -17,7 +16,7 @@ categories:
 
 #### Cissé - All eyes on Papiss after a phenomenal first half season in the EPL
 
-No one could quite believe their eyes from January onwards last season as Newcastle United's latest addition - Papiss Cissé - began scoring the most ridiculous of goals the Premier League is likely to see for some time. He notched up double figures in Black and White despite only arriving at the end of the season and almost all his goals oozed utter class. A born finisher. A natural goalscorer. There's isn't much Papiss doesn't have in his locker - he just really is a ridiculously good forward. But we knew this when he played with Freiburg  anyway, he just couldn't stop scoring. The best thing about it all is the fact he cost about a _quarter_ of what we sold Andy Carroll for. Not bad business, eh?
+No one could quite believe their eyes from January onwards last season as Newcastle United's latest addition - Papiss Cissé - began scoring the most ridiculous of goals the Premier League is likely to see for some time. He notched up double figures in Black and White despite only arriving at the end of the season and almost all his goals oozed utter class. A born finisher. A natural goalscorer. There's isn't much Papiss doesn't have in his locker - he just really is a ridiculously good forward. But we knew this when he played with Freiburg anyway, he just couldn't stop scoring. The best thing about it all is the fact he cost about a *quarter* of what we sold Andy Carroll for. Not bad business, eh?
 
 The start of the 2012/13 season was always going to spring some questions. Cissé has been relatively quiet so far, but of course he is only getting back to where he wants to be following the Ramadan. A few days ago Cissé scored quite a wonderful headed effort in a game between Cheick Tioté's Ivory Coast and Senegal - indeed a second leg that NUFC's eyes will be watching very closely.
 

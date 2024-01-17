@@ -14,10 +14,9 @@ categories:
 
 ![Chris Hughton will have money to spend in the summer](https://static.guim.co.uk/sys-images/Sport/Pix/pictures/2010/4/6/1270570811893/Chris-Hughton-001.jpg "Hughton - Will have money to spend come the summer to spend on new players")
 
-The vibes coming from the hierarchy of Newcastle United are very encouraging ones indeed of late, and Mike Ashley is seemingly doing the impossible, in becoming a slightly better owner. For now anyway. A season in the Coca Cola Championship has given us time to think about things on Tyneside and the goings on at the club while at the same time, perched on top of the  table, ready for regaining our Premier League status. With our spot in the top flight already sorted, it's really time to be looking at new players to bring in because we without a shadow of a doubt, need to strengthen our squad for the upcoming Premier League campaign.
+The vibes coming from the hierarchy of Newcastle United are very encouraging ones indeed of late, and Mike Ashley is seemingly doing the impossible, in becoming a slightly better owner. For now anyway. A season in the Coca Cola Championship has given us time to think about things on Tyneside and the goings on at the club while at the same time, perched on top of the table, ready for regaining our Premier League status. With our spot in the top flight already sorted, it's really time to be looking at new players to bring in because we without a shadow of a doubt, need to strengthen our squad for the upcoming Premier League campaign.
 
 **Tyne Time**, on the button as usual has compiled a quick list of 3 players that we think would fit the bill at Newcastle as we look to make the most of our upcoming Premier League season.
-
 
 1. Jamie O'Hara
 

@@ -11,8 +11,8 @@ categories:
 
 ![Bafetimbi Gomis celebrates after scoring for Lyon](https://www.tynetime.com/wp-content/uploads/2013/12/Bafetimbi-Gomis-Newcastle-United-2014.jpg "Gomis - Has confirmed that he plans on leaving Lyon in the summer")
 
-In a recent interview with a dominant French paper long-term Newcastle United target Bafetimbi Gomis confirmed that he plans on leaving his current club on a free transfer in June of 2014. Graham Carr, the scouting team and Joe Kinnear all hoped to conclude a deal for the French international in September but meddling agents and seemingly extradordinate hidden fees meant the proposed £6m move fell through despite Gomis' desire to move to St. James' Park. The 28 year-old has already netted seven times this season in Ligue 1 & I must say that I've watched quite a bit of Lyon this season (mainly because of outstanding talent that is Clément Grenier) which had led me to the conclusion that Gomis is not particularly  suited to Newcastle United.
-  
+In a recent interview with a dominant French paper long-term Newcastle United target Bafetimbi Gomis confirmed that he plans on leaving his current club on a free transfer in June of 2014. Graham Carr, the scouting team and Joe Kinnear all hoped to conclude a deal for the French international in September but meddling agents and seemingly extradordinate hidden fees meant the proposed £6m move fell through despite Gomis' desire to move to St. James' Park. The 28 year-old has already netted seven times this season in Ligue 1 & I must say that I've watched quite a bit of Lyon this season (mainly because of outstanding talent that is Clément Grenier) which had led me to the conclusion that Gomis is not particularly suited to Newcastle United.
+
 His style is quite laborious and powerful - perhaps the very reasons that Newcastle wanted him this season, who knows.
 
 The reality of the situation is if Alan Pardew and club want Gomis in January to bolster their forward line, they can have the Frenchman for a nominal fee of about or less than €1m - a ballpark figure that equates to the rest of his contract at the Ligue 1 side.

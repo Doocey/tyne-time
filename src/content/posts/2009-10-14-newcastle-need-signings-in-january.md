@@ -11,7 +11,7 @@ categories:
 
 ### Hughton - Rumoured to have nothing to spend in January
 
-Lee Ryder has today posted an article claiming that Chris Hughton will have no transfer funds to spend this January. Hughton, who has led Newcastle to the top of the Coca Cola Championship table and virtually sorted NUFC out on the pitch, was hoping to strengthen in the coming transfer window. However, news is emerging that Ashley, who saved a handsome penny in the  Keegan scenario, is unwilling to hand over a few million to the every loyal Chris Hughton.
+Lee Ryder has today posted an article claiming that Chris Hughton will have no transfer funds to spend this January. Hughton, who has led Newcastle to the top of the Coca Cola Championship table and virtually sorted NUFC out on the pitch, was hoping to strengthen in the coming transfer window. However, news is emerging that Ashley, who saved a handsome penny in the Keegan scenario, is unwilling to hand over a few million to the every loyal Chris Hughton.
 
 As my headline suggests, we need new faces. Injuries have already set in and we're not that far into the new season. At least three new players are needed, a defender or two, and certainly a midfielder.
 

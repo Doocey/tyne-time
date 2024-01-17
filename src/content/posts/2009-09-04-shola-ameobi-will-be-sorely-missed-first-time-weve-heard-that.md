@@ -21,6 +21,6 @@ Luckily for us, we've a good youth setup, or did at least. The likes of Haris Vu
 
 Toon fans saw the first real action from Donaldson and Vuckic as substitutes against Leicester and although they didn't have much time to impress, their confidence has risen to new levels. It's good to see Hughton introducing young talent in games, unlike the infamous Joe Kinnear, who never fielded anyone that he didn't like the look of, Hughton is willing to give most a try. Even Xisco has been given a chance, albeit in Spain.
 
-It's quite ironic that we're relying on Ameobi to produce the goals considering __some__ **most** Toon fans would've loved to have seen him sign for someone else. He had loan moves with various clubs, most notably Stoke City, I bet Tony Pulis wouldn't mind having him upfront now :0
+It's quite ironic that we're relying on Ameobi to produce the goals considering **some** **most** Toon fans would've loved to have seen him sign for someone else. He had loan moves with various clubs, most notably Stoke City, I bet Tony Pulis wouldn't mind having him upfront now :0
 
 Comments welcome

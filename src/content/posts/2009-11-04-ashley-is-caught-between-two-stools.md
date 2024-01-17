@@ -10,7 +10,7 @@ categories:
 
 ### Ashley - All his eggs in one basket at Newcastle
 
-If Newcastle United are not promoted come May, which is a very strong possibility, then Mike Ashley is in serious serious bother. After taking the club off the market for a second time, he now is hoping that we are brought straight back to the Premier League at first attempt, guided by Chris Hughton. To back up his hopes he's promised Chris that'll he'll back him both as manager and  in the transfer window. There are reports today that Hughton is already drawing up a list of possible arrivals and that Rosenborg midfielder Per Ciljan Skjelbred is top of it.
+If Newcastle United are not promoted come May, which is a very strong possibility, then Mike Ashley is in serious serious bother. After taking the club off the market for a second time, he now is hoping that we are brought straight back to the Premier League at first attempt, guided by Chris Hughton. To back up his hopes he's promised Chris that'll he'll back him both as manager and in the transfer window. There are reports today that Hughton is already drawing up a list of possible arrivals and that Rosenborg midfielder Per Ciljan Skjelbred is top of it.
 
 However, what happens if Newcastle don't make the automatic promotion spots of lose out in the play-offs should they manage to get there? Mike isn't interested in a long term future at Newcastle but if they do manage to get promoted Ashley will look to exploit all avenues of revenue.
 

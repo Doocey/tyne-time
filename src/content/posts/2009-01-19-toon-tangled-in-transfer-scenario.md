@@ -6,7 +6,6 @@ date: 2009-01-19T22:01:33+00:00
 url: /2009/01/19/toon-tangled-in-transfer-scenario/
 categories:
   - Newcastle United News
-
 ---
 
 ![Kinnear - Does he actually have £10m to spend?](https://newsimg.bbc.co.uk/media/images/45341000/jpg/_45341298_kinnear512x288.jpg)

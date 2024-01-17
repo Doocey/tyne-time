@@ -1,5 +1,5 @@
 ---
-title: 'Hull & Newcastle set to battle it out for Killer'
+title: "Hull & Newcastle set to battle it out for Killer"
 author: Kevin Doocey
 type: post
 date: 2009-12-03T22:08:24+00:00
@@ -11,7 +11,7 @@ categories:
 
 ### Kilgallon - Hull have moved in alongside Newcastle for the CB
 
-Well it seems my latest article caused quite a lot of controversy and perhaps it was just a little too harsh on Birmingham City. They're doing well in the Premier League and Toon old boys Stephen Carr & Lee Bowyer seem to be enjoying their football at St.Andrews. Long may it last but I still believe that they'll be fighting it out for survival come April/ May, then again, that's only my  opinion. Anyway, today's brings news that Matthew Kilgallon is now being looked at by Phil Brown. Hull City, who have enjoyed quite a positive spell of late seem to have belief that they can win games and put it up against anyone, even in the transfer market.
+Well it seems my latest article caused quite a lot of controversy and perhaps it was just a little too harsh on Birmingham City. They're doing well in the Premier League and Toon old boys Stephen Carr & Lee Bowyer seem to be enjoying their football at St.Andrews. Long may it last but I still believe that they'll be fighting it out for survival come April/ May, then again, that's only my opinion. Anyway, today's brings news that Matthew Kilgallon is now being looked at by Phil Brown. Hull City, who have enjoyed quite a positive spell of late seem to have belief that they can win games and put it up against anyone, even in the transfer market.
 
 Hull's offer will probably be more substantial that Newcastle's and it's being rumoured that Peter Halmosi could also be offered as part of the deal. If the offer is accepted then it will be hard to 'The Killer' to turn down a move to the Premier League.
 

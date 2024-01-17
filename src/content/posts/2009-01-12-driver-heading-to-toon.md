@@ -6,11 +6,9 @@ date: 2009-01-12T19:54:13+00:00
 url: /2009/01/12/driver-heading-to-toon/
 categories:
   - Newcastle United News
-
 ---
 
 ## Andrew Driver - Latest player linked to Newcastle
-
 
 New reports today suggest Newcastle are making a move for Andrew Driver of Hearts, the speculation is widespread throughout Scotland and some Hearts' fans have already resigned to losing the Englishman. Born in Oldham, Driver moved to Scotland and his footballing skills did not go unnoticed as the Jambos signed the young lad up.
 

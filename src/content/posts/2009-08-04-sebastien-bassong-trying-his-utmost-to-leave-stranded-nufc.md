@@ -3,7 +3,7 @@ title: Sebastien Bassong trying his utmost to leave stranded NUFC
 author: Kevin Doocey
 type: post
 date: 2009-08-04T13:12:29+00:00
-excerpt: 'As the rumours get the hopes up on Tyneside we are let down again , this time the Chronicle are claiming that the club will more than likely '
+excerpt: "As the rumours get the hopes up on Tyneside we are let down again , this time the Chronicle are claiming that the club will more than likely "
 url: /2009/08/04/sebastien-bassong-trying-his-utmost-to-leave-stranded-nufc/
 categories:
   - Newcastle United News

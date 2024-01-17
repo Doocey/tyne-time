@@ -14,7 +14,7 @@ categories:
 
 ![Gosling - Officially a Newcastle United player since yesterday](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2010/7/7/1278525531183/Dan-Gosling-of-Everton-006.jpg)
 
-The dislike of Dennis Wise for many Newcastle United fans stems from Kevin Keegan's departure, James Milner's move to Aston Villa, the signing of the Uruguayan Gonzalez, Xisco's arrival on Tyneside and many other incidents at the club. He did spot Bassong and a few other promising young players but will never be warmly welcomed back to St.James' Park if he arrives  some time in the future. we passed down the chance to sign Bastian 
+The dislike of Dennis Wise for many Newcastle United fans stems from Kevin Keegan's departure, James Milner's move to Aston Villa, the signing of the Uruguayan Gonzalez, Xisco's arrival on Tyneside and many other incidents at the club. He did spot Bassong and a few other promising young players but will never be warmly welcomed back to St.James' Park if he arrives some time in the future. we passed down the chance to sign Bastian
 
 _Schweinsteiger_ who reportedly was keen for a switch to Newcastle United, Wise again having something to do with this.
 
@@ -30,7 +30,7 @@ Although we'll be waiting a while for Gosling to play, we're willing to wait and
 >
 > _“It has been a while now, but I just have to work hard and get back that way.”_
 >
->  _“I’m delighted to be here – I feel I’ve moved to a massive club.”_
+> _“I’m delighted to be here – I feel I’ve moved to a massive club.”_
 
 When he does come back, we'd love to see him in the Tyne-Wear derby and hopefully score a stunning goal like he did for Everton in the FA Cup 4th Round a couple of years ago. 😀
 

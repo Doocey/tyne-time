@@ -10,7 +10,7 @@ categories:
 
 ### Jonas - Should be back just in time for the Argentina - Mexico Last 16 encounter
 
-The FIFA World Cup in South Africa is shaping up nicely with England just about managing to qualify and setup an exciting tie against Germany. Many people have tipped England to win the World Cup, but I can't honestly see this happening. Instead on reporting on every little trace of a rumour that blows around Tyneside, we here at Tyne Time thought we'd take a look  at the World Cup and see how our own very Jonas Gutierrez is getting on. So far, in what's been an on and off tournament, we've managed to make quite a few bob on the World Cup and that's always a good thing. However, some Three Lions fans seem a bit sick up of the competition so far and have gone as far as emailing Tyne Time of their boredom!
+The FIFA World Cup in South Africa is shaping up nicely with England just about managing to qualify and setup an exciting tie against Germany. Many people have tipped England to win the World Cup, but I can't honestly see this happening. Instead on reporting on every little trace of a rumour that blows around Tyneside, we here at Tyne Time thought we'd take a look at the World Cup and see how our own very Jonas Gutierrez is getting on. So far, in what's been an on and off tournament, we've managed to make quite a few bob on the World Cup and that's always a good thing. However, some Three Lions fans seem a bit sick up of the competition so far and have gone as far as emailing Tyne Time of their boredom!
 
 Now is probably the best time to get your bets on, and bettingexpert.com, as we've said many a time now, are one of the leading sites in finding you the best value bets and indeed sign-up offers.
 

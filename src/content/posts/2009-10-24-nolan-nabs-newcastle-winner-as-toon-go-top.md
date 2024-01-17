@@ -12,7 +12,7 @@ categories:
 
 ### Nolan - Great strike to win it
 
-A win is a win, sure enough, but there was nothing spectacular about Newcastle triumphing today, far from it. A 90th minute strike today sealed our first victory in some time and it came none sweeter than a right footed pelter into the bottom corner. The most important thing today is that we did indeed claim all three points, and we need to do the same for the majority of our home  games. An 18th minute goal from Doncaster had us on the back foot and it looked as if we were not going to get anything from the game at all, especially when Andy Carroll, and Jonas Gutierrez contended with each other for 'miss of the season'.
+A win is a win, sure enough, but there was nothing spectacular about Newcastle triumphing today, far from it. A 90th minute strike today sealed our first victory in some time and it came none sweeter than a right footed pelter into the bottom corner. The most important thing today is that we did indeed claim all three points, and we need to do the same for the majority of our home games. An 18th minute goal from Doncaster had us on the back foot and it looked as if we were not going to get anything from the game at all, especially when Andy Carroll, and Jonas Gutierrez contended with each other for 'miss of the season'.
 
 Andy, who's confidence would no doubt be in tatters after missing from about 6 yards, made up with a scorcher of a volley on his left. When that goal went in, you'd expect an onslaught from us, but the only thing that really happened was Ryan Taylor to give away a penalty.
 

@@ -14,7 +14,7 @@ categories:
 
 #### Krul - One of the top performing keepers in the Premier League this season
 
-I'll never forget the first time I saw Tim Krul in 'real' action for the senior team - away to Palermo in what was then the UEFA Cup. We were leading 0-1 courtesy of Albert Luque in one of his few games for Newcastle United. The pressure began to increase and the shots started pouring in on the young Dutchman between the sticks, however, after a string of quality saves, NUFC held out for a  valuable three points. Although with a back four including Titus Bramble and Peter Ramage, there's no wonder that the 18 year-old keeper had plenty of work on his plate. Fastforward to 2012, Krul is Newcastle United's #1 and hoping to start for The Netherlands at the EURO's. With him between the sticks and in his current form alongside RVP, Holland may well be a good contender for the tournament.
+I'll never forget the first time I saw Tim Krul in 'real' action for the senior team - away to Palermo in what was then the UEFA Cup. We were leading 0-1 courtesy of Albert Luque in one of his few games for Newcastle United. The pressure began to increase and the shots started pouring in on the young Dutchman between the sticks, however, after a string of quality saves, NUFC held out for a valuable three points. Although with a back four including Titus Bramble and Peter Ramage, there's no wonder that the 18 year-old keeper had plenty of work on his plate. Fastforward to 2012, Krul is Newcastle United's #1 and hoping to start for The Netherlands at the EURO's. With him between the sticks and in his current form alongside RVP, Holland may well be a good contender for the tournament.
 
 A decision was made in the summer of 2011 on who would be our first choice keeper for the Premier League campaign and youth was chosen ahead of the aging yet loyal, Steve Harper. Alan Pardew hasn't looked back since.
 
@@ -38,4 +38,4 @@ What do you lot think? Would Tim switch allegiances that quickly?
 
 Comments welcome as always 🙂
 
- [1]: http://www.theguardian.com/football/2012/apr/16/football-transfer-rumours
+[1]: http://www.theguardian.com/football/2012/apr/16/football-transfer-rumours

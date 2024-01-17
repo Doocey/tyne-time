@@ -10,7 +10,7 @@ categories:
 
 ![Ashley - How can he let this scenario keep going and say nothing?](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2009/1/6/1231281550034/Mike-Ashley-001.jpg)
 
-It's been over a month now since we suffered the worst (you would think) and got relegated. However now, since the club was put up for sale there are  as far as we know 3 consortia in talks with Seymour Pierce and are still going through the books at Newcastle. That's all in well but we're expecting the players back for pre-season in a matter of days, with none of them knowing their futures. For the few players that do want to stay, Martins, Nolan, Duff etc, may be forced to change their mind if they see the shambles still continues. Talking today a source close to Shearer said that there was no planned meeting for Friday (Today)
+It's been over a month now since we suffered the worst (you would think) and got relegated. However now, since the club was put up for sale there are as far as we know 3 consortia in talks with Seymour Pierce and are still going through the books at Newcastle. That's all in well but we're expecting the players back for pre-season in a matter of days, with none of them knowing their futures. For the few players that do want to stay, Martins, Nolan, Duff etc, may be forced to change their mind if they see the shambles still continues. Talking today a source close to Shearer said that there was no planned meeting for Friday (Today)
 
 The source said :
 

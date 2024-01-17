@@ -13,7 +13,7 @@ categories:
 
 #### de Jong - Wants to play his football in the Premier League
 
-While Newcastle United are trying their hardest to bring Luuk de Jong to St.James' Park, they have told FC Twente's negotiators that if they are too greedy over their forward, then the North-East outfit won't think twice about pulling out of any deal. Derek Llambias, alongside Lee Charnley are present in Holland and are hoping to take a trip down to France to talk to their other main target Mathieu Debuchy (if he isn't holidaying already!). The general consensus in the Newcastle camp is that they will have one player in their bag when they land back on Tyneside  in the coming days.
+While Newcastle United are trying their hardest to bring Luuk de Jong to St.James' Park, they have told FC Twente's negotiators that if they are too greedy over their forward, then the North-East outfit won't think twice about pulling out of any deal. Derek Llambias, alongside Lee Charnley are present in Holland and are hoping to take a trip down to France to talk to their other main target Mathieu Debuchy (if he isn't holidaying already!). The general consensus in the Newcastle camp is that they will have one player in their bag when they land back on Tyneside in the coming days.
 
 Steve McClaren - who seems to succeed everywhere outside England - claims that it would take a huge fee to see Luuk leave, and that he isn't terribly worried about the rumours surrounding his men. It seems that McClaren is very much adopting an Alan Pardew approach to matters and to be fair, you can't blame him for doing so.
 

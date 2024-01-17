@@ -65,4 +65,4 @@ But the deal is a shambles they say..
 
 Comments welcome, as ever. 🙂
 
- [1]: http://www.telegraph.co.uk/sport/football/teams/newcastle-united/9596416/Newcastle-Uniteds-Wonga-sponsorship-speaks-volumes-about-football-and-Mike-Ashley.html
+[1]: http://www.telegraph.co.uk/sport/football/teams/newcastle-united/9596416/Newcastle-Uniteds-Wonga-sponsorship-speaks-volumes-about-football-and-Mike-Ashley.html

@@ -6,8 +6,8 @@ date: 2009-01-24T15:11:04+00:00
 url: /2009/01/24/gokhan-zan-offered-to-the-magpies/
 categories:
   - Newcastle United News
-
 ---
+
 ## Zan - Offered to Newcastle
 
 Turkish international Gökhan Zan has been offered to Newcastle United according to reports in Turkey. Zan who is an international for Turkey and quite highly regarded in his homeland has been rumoured to have been on his way to Everton last summer but is seems that he has been offered to the Toon, and another Premier League club, so that a permanent deal can be done in the. Besiktas who were heavily linked with Geremi may look for a swap deal in the summer but it all depends on how this lads fares out, should the loan deal go through.

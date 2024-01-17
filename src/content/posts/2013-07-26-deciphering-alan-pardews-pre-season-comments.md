@@ -13,7 +13,7 @@ categories:
 
 ![Alan Pardew and his European beard](https://www.tynetime.com/wp-content/uploads/2013/05/alan-pardew-beard.jpg "Pardew - Pre-season work should bear fruits in Premier League opening")
 
-Newcastle United's Portuguese pre-season tour seems to have went pretty well in terms of preparation for the upcoming season if a whole host of Northern journalists are to be believed. Fitness levels are extremely high - a result of **four** hour long training sessions led by Alan Pardew in relative heat, while there seems to be a stern and focused mentality. Such results offer immense encouragement to Newcastle United fans who have grown tired of countless transfer rumours, and little end product, as of yet. Shola Ameobi scored Newcastle United's two goals in their outings against both Rio Ave and Pacos Ferreira. Make of that what you will folks. However, comments from our manager about last season sparked me into writing this very  article as they quite frankly left me _astounded_.
+Newcastle United's Portuguese pre-season tour seems to have went pretty well in terms of preparation for the upcoming season if a whole host of Northern journalists are to be believed. Fitness levels are extremely high - a result of **four** hour long training sessions led by Alan Pardew in relative heat, while there seems to be a stern and focused mentality. Such results offer immense encouragement to Newcastle United fans who have grown tired of countless transfer rumours, and little end product, as of yet. Shola Ameobi scored Newcastle United's two goals in their outings against both Rio Ave and Pacos Ferreira. Make of that what you will folks. However, comments from our manager about last season sparked me into writing this very article as they quite frankly left me *astounded*.
 
 The best thing about our 2011/12 Premier League in which we finished fifth, was the sheer confidence amongst both the playing staff and the supporters ahead of any tie. Whether it was Manchester United away, or Stoke City at home - fans felt prepared and assured in the knowledge that tactically we had a plan to oust our opposition.
 
@@ -21,7 +21,7 @@ The best thing about our 2011/12 Premier League in which we finished fifth, was 
 
 The famous formation that saw the side scores buckets of goals and scare oppositions into submission disappeared. A winning formula was shelved. Instead, we played a long-ball game that skipped our midfield and caged any creativity from midfield that Cabaye offered.
 
-Speaking to the ever opinionated George Caulkin at _The Times_ Pardew looked back at the previous season and shed his thoughts on his own failings. Here are some tidbits of what he said:_
+Speaking to the ever opinionated George Caulkin at *The Times* Pardew looked back at the previous season and shed his thoughts on his own failings. Here are some tidbits of what he said:\_
 
 > 'Maybe I tightened us up in terms of expressing ourselves,' - going on to suggest he spent too much time on tactics
 >

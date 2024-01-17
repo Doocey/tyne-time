@@ -12,7 +12,7 @@ categories:
 
 ### Bullard - Off to Celtic apparently in the next few days after Toon snub
 
-In my rare free time, I've been keeping an eye on the latest Newcastle United news and the players that we have been linked with in the last few weeks. From Hamit Altintop to Jimmy Bullard, Kris Boyd to Dedryck Boyata. The rumour mill is alive and healthy that's for sure. The one that really sticks out though is the possible signing of Nedum Onuoha from Manchester City. The  pacy right-back or centre back is being linked with a move away from Mancini's side after failing to break the first eleven. To be honest, I think he'd be a great signing - but it ain't gonna happen.
+In my rare free time, I've been keeping an eye on the latest Newcastle United news and the players that we have been linked with in the last few weeks. From Hamit Altintop to Jimmy Bullard, Kris Boyd to Dedryck Boyata. The rumour mill is alive and healthy that's for sure. The one that really sticks out though is the possible signing of Nedum Onuoha from Manchester City. The pacy right-back or centre back is being linked with a move away from Mancini's side after failing to break the first eleven. To be honest, I think he'd be a great signing - but it ain't gonna happen.
 
 Realistically, we have very little - if any money to spend thus summer. I believe that we won't be spending this summer at all and will rely on some loans and perhaps some prudent free-transfers.
 

@@ -6,8 +6,8 @@ date: 2009-03-31T22:01:16+00:00
 url: /2009/03/31/shearer-to-become-new-newcastle-united-boss/
 categories:
   - Newcastle United News
-
 ---
+
 ### Shearer - Widely reported to be taking control of Newcastle
 
 It's an April fool , I'm loving it for one. Alan Shearer is becoming the Newcastle boss for the rest of the season. It has been widely reported on Sky Sports News, with North East correspondent David Craig issuing the news first. He himself has said it would be highly unlikely but what a prospect it is for Shearer to become the Newcastle boss!

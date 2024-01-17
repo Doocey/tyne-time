@@ -8,8 +8,8 @@ excerpt: "It makes for sad reading when I see a number of Newcastle United fans 
 url: /2014/04/18/newcastle-united-v-swansea-city-will-magpies-manage/
 categories:
   - Newcastle United News
-
 ---
+
 ![Papiss Cissé celebrates after scoring his second goal against Swansea City](https://www.tynetime.com/wp-content/uploads/2014/04/Papiss-Cisse-Swansea-City.jpg "Cissé - Scored one of the most memorable NUFC away goals I've seen (his second)")
 
 It makes for sad reading when I see a number of Newcastle United fans hoping that their team loses Saturday’s encounter with Swansea City in order to increase the pressure on manager Alan Pardew, with the hope of making his position increasingly untenable. The reality is, if Pardew can keep his job after ‘headbutting’ a Premier League footballer, then a dismal run of form while in the top half of the table is unlikely to have Mike Ashley drawing up contingency plans. It's an incredibly frustrating time to be a Newcastle United fan, but thankfully a break from constant heartache is around the corner in the shape of the summer period. So on that note, let us have a look forward to our tie against the struggling Swans

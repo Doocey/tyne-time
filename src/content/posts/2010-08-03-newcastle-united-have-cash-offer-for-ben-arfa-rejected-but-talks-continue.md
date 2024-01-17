@@ -10,7 +10,7 @@ categories:
   - Newcastle United News
 ---
 
-Newcastle United's interest in Hatem Ben Arfa has been well reported in the media in the last week or so, and today it's said that we've had an initial bid rejected for the Frenchman from Marseille. The left-winger has found himself on the wrong side of his manager and the club are looking to let the lad go, on loan or perhaps for a fee. The French paper 'La Provence' has  reported today that a bid from Newcastle United has indeed been rejected, but the French side have offered him again to Newcastle, for a bit more.
+Newcastle United's interest in Hatem Ben Arfa has been well reported in the media in the last week or so, and today it's said that we've had an initial bid rejected for the Frenchman from Marseille. The left-winger has found himself on the wrong side of his manager and the club are looking to let the lad go, on loan or perhaps for a fee. The French paper 'La Provence' has reported today that a bid from Newcastle United has indeed been rejected, but the French side have offered him again to Newcastle, for a bit more.
 
 This, if believed, shows we are indeed serious about buying a winger, have the money to do so, and that we're moving fast on our targets. If we did manage to get Ben Arfa, it would be a major coup for any newly promoted team, and he's exactly what we need - a winger.
 

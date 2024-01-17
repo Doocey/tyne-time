@@ -24,6 +24,5 @@ He said :
 > “He deserves his Manager of the Month Award. We all respect him. A lot of the players would love him to get the job.”
 >
 > Well if most of the players would love him to get the job then I say appoint him and clear the uncertainty around Newcastle. It seems Alan Shearer's hopes of managing Newcastle this year will not materialise and neither may the sale of the club to Barry Moat. Things are never simple at Newcastle United. Howay The Lads!
->
 
 Comments welcome 🙂

@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-Although we are known for signing rather under-performing wingers, reports are surfacing today that Chris is looking to trial former PSG live wire Fabrice Pancrete. Most of you saying who I'm sure. However, Pancrete has been around for some while now and has played in many of the main European leagues, except for The Premier League. Pancrete is a winger by trade and  although I must say I haven't seen him play, his reports are quite good. Saying that, if he was that good, surely he wouldn't be a free agent searching for a new club?
+Although we are known for signing rather under-performing wingers, reports are surfacing today that Chris is looking to trial former PSG live wire Fabrice Pancrete. Most of you saying who I'm sure. However, Pancrete has been around for some while now and has played in many of the main European leagues, except for The Premier League. Pancrete is a winger by trade and although I must say I haven't seen him play, his reports are quite good. Saying that, if he was that good, surely he wouldn't be a free agent searching for a new club?
 
 He's 6'1 and 29 years of age. He's played for Louhans-Cuiseaux, Guingamp, Le Mans, Paris Saint-Germain,  Real Betis (loan), Sochaux (loan) and had trials with Sheffield United. If you don't call him well travelled then I don't know what to call him!
 

@@ -6,8 +6,8 @@ date: 2009-03-06T19:04:46+00:00
 url: /2009/03/06/guthrie-duff-viduka-xisco-and-owen-could-well-make-the-hull-game/
 categories:
   - Newcastle United News
-
 ---
+
 ### Guthrie - Missing in midfield for some time now
 
 Good news today as it is emerging that Xisco, Duff, Viduka, Owen and Guthrie could all return for the vital clash against Hull, a fortnight tomorrow. It is still unknown whether Beye will make the trip as he is recovering from one of Lee Cattermole's many terrible challenges this season. Barton, Beye, Digard,and more recently Scott Parker? Perhaps just a little too common in his poor tackling?

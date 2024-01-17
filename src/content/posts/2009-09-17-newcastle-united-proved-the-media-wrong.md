@@ -11,7 +11,7 @@ categories:
 
 ### Players - Showing no signs of instability and uncertainty
 
-The following days after Newcastle's relegation from the Premier League, there wasn't much news. The media, were giving us a little time to remorse amongst ourselves until they got their chance to take constant digs at NUFC throughout the summer. We were used to new headlines in the papers each day of 'Toon walkout' or 'Toon exodus' but look at us now, we've barely  missed any of our players that have left. Maybe Sebastien Bassong and Habib Beye but Nile Ranger and Andy Carroll are filling Obafemi Martins' void nicely.
+The following days after Newcastle's relegation from the Premier League, there wasn't much news. The media, were giving us a little time to remorse amongst ourselves until they got their chance to take constant digs at NUFC throughout the summer. We were used to new headlines in the papers each day of 'Toon walkout' or 'Toon exodus' but look at us now, we've barely missed any of our players that have left. Maybe Sebastien Bassong and Habib Beye but Nile Ranger and Andy Carroll are filling Obafemi Martins' void nicely.
 
 The funny thing is, Newcastle have performed brilliantly, up until yesterday in their search for an immediate return to the Premier League. We couldn't have asked for a better start to the Coca Cola Championship literally, not losing a game until yesterday, at the hands of Blackpool.
 
