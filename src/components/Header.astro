@@ -1,0 +1,75 @@
+---
+import HeaderLink from "./HeaderLink.astro";
+---
+
+<header>
+  <nav>
+    <a href="/"
+      ><img
+        src="/images/tyne-time-logo.svg"
+        alt="Tyne Time - A Newcastle United Blog"
+        width="200"
+        height="61"
+        title="NUFC Blog"
+      /></a
+    >
+    <div class="internal-links">
+      <HeaderLink href="/">Home</HeaderLink>
+      <HeaderLink href="/about/">About</HeaderLink>
+      <HeaderLink href="/contact/">Contact</HeaderLink>
+      <HeaderLink href="/advertise/">Advertise</HeaderLink>
+    </div>
+  </nav>
+</header>
+
+<style>
+  header {
+    padding: 1em;
+    background: black;
+    margin: 0 auto;
+    border-bottom: 1px solid white;
+  }
+  h2 {
+    margin: 0;
+    font-size: 1em;
+  }
+
+  h2 a,
+  h2 a.active {
+    text-decoration: none;
+  }
+  nav {
+    display: flex;
+    align-items: center;
+    justify-content: space-between;
+    color: white;
+    line-height: 1;
+    font-family:
+      avenir next,
+      avenir,
+      sans-serif;
+    max-width: 1300px;
+    margin: 0 auto;
+  }
+  @media (max-width: 700px) {
+    nav {
+      gap: 15px;
+      flex-direction: column;
+    }
+  }
+  .social-links,
+  .social-links a {
+    display: flex;
+  }
+  .internal-links a {
+    padding: 0.5em;
+    color: white;
+    text-decoration: none;
+  }
+  .internal-links a.active {
+    text-decoration: underline;
+    text-decoration-color: rgba(235, 235, 235, 0.5);
+    text-underline-offset: 8px;
+    padding-bottom: 10px;
+  }
+</style>
