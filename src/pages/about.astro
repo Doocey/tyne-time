@@ -1,0 +1,39 @@
+---
+import BaseLayout from "../layouts/BaseLayout.astro";
+import Hero from "../components/Hero.astro";
+
+const title = "About";
+const description =
+  "How the NUFC blog was founded, the journey since its birth in 2009 and everything else about me - Kevin Doocey.";
+const image = "/images/sir-bobby-robson-newcastle.jpg";
+---
+
+<BaseLayout title={title} description={description} image={image}>
+  <Hero title={title} backgroundImage={image} slot="hero" />
+
+  <p>Welcome to <strong>Tyne Time</strong>!</p>
+
+  <p>
+    My name is Kevin Doocey I'm a life-long fan of the (sometimes!) mighty
+    Newcastle United. Since 2008 I've written occasional opinion pieces on
+    events surrounding the brilliant club that is NUFC. The aim has been to
+    bring you a neat and simple interface in which to browse, free from spam,
+    pop-up adverts and other cyberspace annoyances.
+  </p>
+
+  <p>
+    Whoever manages Newcastle, plays for Newcastle or does anything for
+    Newcastle, we'll be right behind them. Support the lads and I'm sure they'll
+    return the favour.
+  </p>
+
+  <p><strong>Howay The Lads! ⚫️⚪️</strong></p>
+
+  <p>Enjoy, <br />Doocey</p>
+
+  <p>
+    You can follow me on Twitter <a href="https://twitter.com/kevindoocey/"
+      >@KevinDoocey</a
+    >.
+  </p>
+</BaseLayout>
