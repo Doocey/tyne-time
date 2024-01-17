@@ -1,5 +1,25 @@
 ---
+import { HOMEPAGE_HERO_TITLE } from "../consts";
+import { getCollection } from "astro:content";
+
 import BaseLayout from "../layouts/BaseLayout.astro";
+import Hero from "../components/Hero.astro";
+import HomepageCallout from "../components/HomepageCallout.astro";
+import PostCard from "../components/PostCard.astro";
+
+const posts = (await getCollection("posts")).reverse();
 ---
 
-<BaseLayout title="Tyne Time" description="The latest and greatest." />
+<BaseLayout
+  title="Tyne Time — Newcastle United blog with news and opinion on matters at St. James' Park"
+  description="The latest Newcastle United news, reports, rumours, and opinions surrounding events at St. James' Park."
+  image="/images/tyne-time-nufc-blog.svg"
+>
+  <Hero
+    title={HOMEPAGE_HERO_TITLE}
+    backgroundImage="/images/tyne-time-nufc-blog.svg"
+    slot="hero"
+  />
+  <HomepageCallout />
+  {posts && posts.slice(0, 9).map((post) => <PostCard post={post} />)}
+</BaseLayout>
