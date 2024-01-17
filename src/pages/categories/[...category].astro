@@ -1,0 +1,44 @@
+---
+import { getCollection } from "astro:content";
+import BaseLayout from "../../layouts/BaseLayout.astro";
+import { slugify, unslugify } from "../../utils/slugify";
+
+export async function getStaticPaths() {
+  const posts = await getCollection("posts");
+
+  const categories = [
+    ...new Set(posts.map((post) => post.data.categories).flat()),
+  ];
+
+  return categories.map((category) => {
+    const filteredPosts = posts.filter((post) => {
+      return post.data.categories.includes(category);
+    });
+
+    const slugifiedCategories = slugify(category);
+
+    return {
+      params: { category: slugifiedCategories },
+      props: { posts: filteredPosts },
+    };
+  });
+}
+
+const { category } = Astro.params;
+const { posts } = Astro.props;
+---
+
+<BaseLayout title={unslugify(category)}>
+  <h2>
+    Posts filed under: {unslugify(category)}
+  </h2>
+  <ol>
+    {
+      posts?.map((post) => (
+        <a href={post.data.url}>
+          <li>{post.data.title}</li>
+        </a>
+      ))
+    }
+  </ol>
+</BaseLayout>
