@@ -26,4 +26,4 @@ For anyone interested in reading the article on the website, [here][1] it is.
 
 Your thoughts?
 
- [1]: http://www.lequipe.fr/Football/Actualites/Maiga-n-ira-pas-a-newcastle/250268 "here"
+[1]: http://www.lequipe.fr/Football/Actualites/Maiga-n-ira-pas-a-newcastle/250268 "here"

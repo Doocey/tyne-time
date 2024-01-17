@@ -13,8 +13,7 @@ categories:
 
 ![Chris Hughton won't be bullied into heightening price for Beckford](https://static.guim.co.uk/sys-images/Sport/Pix/pictures/2009/8/23/1251027575740/Chris-Hughton-Newcastle-U-001.jpg)
 
-
-Chris Hughton has today again reiterated his stance on Jermaine Beckford's transfer scenario. Hughton has made it no secret that he's after the 6'2 striker but insists that he'll neither heighten his price, or be forced to do so. It's believed that Newcastle have issued Leeds with an ultimatum, a bid of just about £2m, a take it or leave it offer for the Elland Road outfit. There's no doubt that  Beckford wants to join Newcastle and has even issued a transfer request to speed up his move away from Leeds if possible. Yesterday it was reported that Wigan & Wolves had joined the chase for the FA Cup hero but there hasn't been any developments on their side as of yet.
+Chris Hughton has today again reiterated his stance on Jermaine Beckford's transfer scenario. Hughton has made it no secret that he's after the 6'2 striker but insists that he'll neither heighten his price, or be forced to do so. It's believed that Newcastle have issued Leeds with an ultimatum, a bid of just about £2m, a take it or leave it offer for the Elland Road outfit. There's no doubt that Beckford wants to join Newcastle and has even issued a transfer request to speed up his move away from Leeds if possible. Yesterday it was reported that Wigan & Wolves had joined the chase for the FA Cup hero but there hasn't been any developments on their side as of yet.
 
 If Hughton's third bid is indeed rejected then he says he will look elsewhere, and we're glad. The likes of Nicky Maynard, Peter Whittingham, Billy Sharp, <span style="text-decoration: line-through;">Brett Ormerod</span> and many others spring to mind.
 

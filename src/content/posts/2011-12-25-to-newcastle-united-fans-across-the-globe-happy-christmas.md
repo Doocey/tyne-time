@@ -1,5 +1,5 @@
 ---
-title: 'To Newcastle United fans across the globe: Happy Christmas'
+title: "To Newcastle United fans across the globe: Happy Christmas"
 author: Kevin Doocey
 type: post
 date: 2011-12-25T13:35:47+00:00
@@ -23,6 +23,6 @@ I personally would like to wish Newcastle United fans across the world, from Eng
 
 Put the feet up, and get ready for Boxing Day where we'll be looking to get back on track 😀
 
-Doocey 
+Doocey
 
 [![Santa Hat](https://www.tynetime.com/wp-content/uploads/2011/12/santa_hat-150x150.png "santa_hat")](https://www.tynetime.com/wp-content/uploads/2011/12/santa_hat.png)

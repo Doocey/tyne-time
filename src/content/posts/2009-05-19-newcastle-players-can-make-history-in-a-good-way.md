@@ -10,7 +10,7 @@ categories:
 
 ### Taylor - Expect a rampant performance from him vs Villa
 
-When Newcastle have come down to the last day of the Premier League witht the hope they can better another teams performance for safety, it really makes you wonder. If Hull and Sunderland win on the last day of the Premier League it doesn't matter if we win or how much we score. We will be relegated if Sunderland beat Chelsea and Hull overcome an U-18 Manchester United team. Who would've thought  when Newcastle drew 1-1 at Old Trafford at the start of the season, that they'd be deciding their footballing fate on the final day of the Premier League campaign? Alan Shearer has rallied his players today, claiming that the players can become heroes on Monday at 9 am.
+When Newcastle have come down to the last day of the Premier League witht the hope they can better another teams performance for safety, it really makes you wonder. If Hull and Sunderland win on the last day of the Premier League it doesn't matter if we win or how much we score. We will be relegated if Sunderland beat Chelsea and Hull overcome an U-18 Manchester United team. Who would've thought when Newcastle drew 1-1 at Old Trafford at the start of the season, that they'd be deciding their footballing fate on the final day of the Premier League campaign? Alan Shearer has rallied his players today, claiming that the players can become heroes on Monday at 9 am.
 
 Shearer said :
 

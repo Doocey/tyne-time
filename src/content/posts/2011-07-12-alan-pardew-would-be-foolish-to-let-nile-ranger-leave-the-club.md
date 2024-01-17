@@ -13,7 +13,7 @@ categories:
 
 #### Ranger - Has a lot of potential and can become a top player at St.James' Park
 
-He has a lot to learn the young man; how to conduct himself and eventually realise he is living the dream of many young boys. Playing for Newcastle United is an honour for any player. Nile Ranger is a 20 year old forward who has bags of potential; indeed potential to be as good as anything we've produced in quite a while - including Andy Carroll. A lot of people seems to think he would be better off far  away from St.James' Park but there is a number of fans that see his potential; the hassle he causes for CB's when he comes on.
+He has a lot to learn the young man; how to conduct himself and eventually realise he is living the dream of many young boys. Playing for Newcastle United is an honour for any player. Nile Ranger is a 20 year old forward who has bags of potential; indeed potential to be as good as anything we've produced in quite a while - including Andy Carroll. A lot of people seems to think he would be better off far away from St.James' Park but there is a number of fans that see his potential; the hassle he causes for CB's when he comes on.
 
 Of course many people point out his miss against West Ham in our five nil beating of them, a terrible miss agreed but I've seen worse - a lot worse. Those same people fail to mention or remember his performances against Liverpool, Chelsea and Arsenal in particular. All our goals against Arsenal came when Nile Ranger was brought on as substitute - and nearly assisted Kevin Nolan for the winner at the death.
 

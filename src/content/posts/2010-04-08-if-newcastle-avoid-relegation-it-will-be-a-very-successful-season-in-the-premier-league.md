@@ -12,7 +12,7 @@ categories:
 
 ![Chris Hughton will face a big challenge keeping Newcastle in the Premier League](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2009/10/22/1256233158532/Chris-Hughton-001.jpg)
 
-In the last few days, since Newcastle United were officially announced as a Premier League team, the question is being thrown about already, as to where the Magpies will finish come May 2011. A few pundits I've seen already are confident they'll see Newcastle lie in and around the 12-15th spot, but I can't help but think that's very far fetched. Saying that, who thought Alex  McLeish's Birmingham City would be where they are at the start of the season? They're lying very comfortable indeed and are an extremely hard team to beat, as we'll see next season.
+In the last few days, since Newcastle United were officially announced as a Premier League team, the question is being thrown about already, as to where the Magpies will finish come May 2011. A few pundits I've seen already are confident they'll see Newcastle lie in and around the 12-15th spot, but I can't help but think that's very far fetched. Saying that, who thought Alex McLeish's Birmingham City would be where they are at the start of the season? They're lying very comfortable indeed and are an extremely hard team to beat, as we'll see next season.
 
 If Newcastle can avoid relegation then I'll be delighted as that is the aim for their season. Let's not be thinking about mid-table spot's or even possibly the final spot for the Europa League. This simply won't happen.
 

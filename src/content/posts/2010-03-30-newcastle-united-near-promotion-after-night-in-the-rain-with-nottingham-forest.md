@@ -11,7 +11,7 @@ categories:
 
 ![Jose Enrique scores for the Toon](https://i.telegraph.co.uk/telegraph/multimedia/archive/01606/jose_enrique2_1606294c.jpg "Enrique scored a very nice goal to top off a tight affair at St.James' Park")
 
-The descending rain at St.James' Park last night could not dampen spirits around Newcastle as the Magpies look very certain for an immediate return to the Premier League. In what was a tight and physical affair, Nottingham put the lads to the test in every department and on another day could've nabbed a couple of goals. Indeed goals from Shola Ameobi who replaced the injured  Andy Carroll and our Spanish left-back José Enrique secured a very important three points for Chris Hughton's side.
+The descending rain at St.James' Park last night could not dampen spirits around Newcastle as the Magpies look very certain for an immediate return to the Premier League. In what was a tight and physical affair, Nottingham put the lads to the test in every department and on another day could've nabbed a couple of goals. Indeed goals from Shola Ameobi who replaced the injured Andy Carroll and our Spanish left-back José Enrique secured a very important three points for Chris Hughton's side.
 
 Our next game, away to Peterborough could see us automatically promoted should Forest fail to gain all three points at Bristol City. However, we needn't worry about other teams and their results now, because we are definitely guaranteed a Premier League spot if we win two more games.
 

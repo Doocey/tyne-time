@@ -12,7 +12,7 @@ categories:
 
 ![Moat - Attention has been taken off him](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2009/8/24/1251109113926/Mike-Ashley-and-Barry-Moa-001.jpg)
 
-We're led to believe that Tuesday is the day of reckoning for Barry Moat and Newcastle United. Indeed it would bring Mike Ashley's 'deadlines' well into double figures without any end result in either of them. We're sick of the constant rumours of who is taking us over and who isn't, we just want new owners, and now, it seems that Barry Moat is well and truly the last  contender for the club after the supposed American group failed to produce proof of funds, sound familiar?
+We're led to believe that Tuesday is the day of reckoning for Barry Moat and Newcastle United. Indeed it would bring Mike Ashley's 'deadlines' well into double figures without any end result in either of them. We're sick of the constant rumours of who is taking us over and who isn't, we just want new owners, and now, it seems that Barry Moat is well and truly the last contender for the club after the supposed American group failed to produce proof of funds, sound familiar?
 
 Luckily the attention isn't all on the the takeover saga as the lads have baffled the media with their recent results. Laying aloft the Coca Cola Championship table, recent results suggest, as I've said many times before, that with a new owner and a stable future, Newcastle United can regain their Premier League status.
 

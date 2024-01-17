@@ -12,7 +12,7 @@ categories:
 
 ### Gutierrez - A clearly delighted Toon supporter shows his delight at Jonas's mask!
 
-We spoke about Newcastle's free-scoring form at St.James' Park this season and it continued again today with Barnsley the victims. 6 goals scored and five of them in the second half, including a rare goal from former Real Zaragoza winger Jonas Gutierrez, and what a goal it was. Cutting in from the left wing, he ghosted past two Barnsley markers before floating it into the top  corner off the backside of the crossbar. A great goal and a great celebration, finally the Spiderman mask revealed in very suiting conditions indeed.
+We spoke about Newcastle's free-scoring form at St.James' Park this season and it continued again today with Barnsley the victims. 6 goals scored and five of them in the second half, including a rare goal from former Real Zaragoza winger Jonas Gutierrez, and what a goal it was. Cutting in from the left wing, he ghosted past two Barnsley markers before floating it into the top corner off the backside of the crossbar. A great goal and a great celebration, finally the Spiderman mask revealed in very suiting conditions indeed.
 
 Danny Guthrie had another brilliant game today and if you read Tyne Time regularly, you'll know that I'm a big fan of him and indeed predict big things in his career. His performance today and indeed his two goals will only strengthen the opinion amongst Newcastle United fans.
 

@@ -15,7 +15,7 @@ categories:
 
 #### Debuchy - On a long list of players in France that NUFC are interested
 
-After already luring the likes of Ben Arfa, Cabaye, Marveaux and Mehdi Abeid from France, Graham Carr in already working on new transfer targets as the season draws to a close. In a recent interview, Alan Pardew confirmed that work was already under way for next season, as Newcastle United hope to build on what has been quite honestly, a phenomenal second season in the Premier League since our return from the Championship. We currently lay 4th, 3 points ahead of Spurs  and a game in hand over Arsenal, while trailing them by only 3 points. Seemingly, we are following a similar suit to this time last season where I'm sure we were running the rule over Yohan, Demba and even Davide.
+After already luring the likes of Ben Arfa, Cabaye, Marveaux and Mehdi Abeid from France, Graham Carr in already working on new transfer targets as the season draws to a close. In a recent interview, Alan Pardew confirmed that work was already under way for next season, as Newcastle United hope to build on what has been quite honestly, a phenomenal second season in the Premier League since our return from the Championship. We currently lay 4th, 3 points ahead of Spurs and a game in hand over Arsenal, while trailing them by only 3 points. Seemingly, we are following a similar suit to this time last season where I'm sure we were running the rule over Yohan, Demba and even Davide.
 
 When asked on whether there were plans being made for the next campaign, Pardew replied:
 

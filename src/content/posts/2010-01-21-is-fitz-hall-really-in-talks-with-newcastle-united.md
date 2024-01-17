@@ -12,7 +12,7 @@ categories:
 
 ### Hall - Was linked last year but whether he's on the radar now we don't know
 
-The news today is that Fitz Hall is having talks with Newcastle United FC & if these reports are to be believed, the talks aren't going too well. A little reading around brought me to this issue and I'm not really sure if there's any truth in it. Fitz Hall was linked last year and came close to a move if sources are to be believed, however it was wage demands that scuppered any  possible switch to St.James' Park. We do have the profile of giving players bigger wages if they move but the circle has gone full turn now, with us only being able to match a players wages, if we can.
+The news today is that Fitz Hall is having talks with Newcastle United FC & if these reports are to be believed, the talks aren't going too well. A little reading around brought me to this issue and I'm not really sure if there's any truth in it. Fitz Hall was linked last year and came close to a move if sources are to be believed, however it was wage demands that scuppered any possible switch to St.James' Park. We do have the profile of giving players bigger wages if they move but the circle has gone full turn now, with us only being able to match a players wages, if we can.
 
 Danny Simpson is meant to have signed a £10,000k a week contract and if true, it's a very small wage-pack compared to the likes of Shola Ameobi, Joey Barton and so on.
 

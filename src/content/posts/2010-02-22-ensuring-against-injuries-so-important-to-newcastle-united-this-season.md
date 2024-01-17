@@ -11,7 +11,7 @@ categories:
 
 ### Lovenkrands - Limped off against Preston N.E but not out for too long we hope
 
-Some people say it was the injuries that sent Newcastle United down to the Coca Cola Championship last year but this time around, we're hoping it's the lack of injuries that send us back up to the Premier League. The amount of injuries we had at one stage of the season couldn't be counted on two hands and that's never a good sign. Luckily this year, although we're in probably a more  physically demanding league, we've avoided major injuries, although Shola Ameobi & Steven Taylor have been absent a considerable amount of time.
+Some people say it was the injuries that sent Newcastle United down to the Coca Cola Championship last year but this time around, we're hoping it's the lack of injuries that send us back up to the Premier League. The amount of injuries we had at one stage of the season couldn't be counted on two hands and that's never a good sign. Luckily this year, although we're in probably a more physically demanding league, we've avoided major injuries, although Shola Ameobi & Steven Taylor have been absent a considerable amount of time.
 
 Currently, we have Steven Taylor, Wayne Routledge, Peter Lovenkrands, Jose Enrique, Joey Barton and Shola Ameobi sidelined, but a few of them will be expected back for the Watford encounter, or the game after, at home to Barnsley.
 

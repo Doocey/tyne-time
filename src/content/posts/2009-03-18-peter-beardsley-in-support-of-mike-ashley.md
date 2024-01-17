@@ -6,8 +6,8 @@ date: 2009-03-18T21:41:46+00:00
 url: /2009/03/18/peter-beardsley-in-support-of-mike-ashley/
 categories:
   - Newcastle United News
-
 ---
+
 ![Beardsley - Believes Mike Ashley has great plans for Newcastle](https://static.guim.co.uk/sys-images/Sport/Pix/pictures/2008/12/28/1230464241510/beardsley-001.jpg)
 
 Speaking today about Newcastle, the legend Peter Beardsley said he is in favour of Mike Ashley and his plans for the football club. Beardsley who is heavily involved at Newcastle, attending the training ground has said following talks to Mike Ashley that Ashley himself has the best of the club at heart and plans for a turn in fortunes providing we stay in the Premier League. We like the sound of this very much indeed or me at least but our Premier League safety is the key issue at the minute. Speaking to a paper today Peter said :

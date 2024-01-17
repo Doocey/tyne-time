@@ -12,7 +12,7 @@ categories:
 
 ![Joey Barton will have to work his way into the team](https://static.guim.co.uk/sys-images/Football/Clubs/Club%20Home/2009/5/6/1241611185462/Joey-Barton-001.jpg)
 
-Ok, maybe it could be better. Perhaps lying in the top half of the Premier League table would be a better scenario but our current one isn't far off. There's major relief and indeed contentment around Tyneside as it seems we're on our way back up to the Premier League following relegation from it last year. Don't get me wrong, there's still 10 games or so left, but surely we can't throw away a  12 point lead from the automatic promotion spots away? It just won't happen this time!
+Ok, maybe it could be better. Perhaps lying in the top half of the Premier League table would be a better scenario but our current one isn't far off. There's major relief and indeed contentment around Tyneside as it seems we're on our way back up to the Premier League following relegation from it last year. Don't get me wrong, there's still 10 games or so left, but surely we can't throw away a 12 point lead from the automatic promotion spots away? It just won't happen this time!
 
 Speaking about Joey Barton's return, Hughton today said:
 

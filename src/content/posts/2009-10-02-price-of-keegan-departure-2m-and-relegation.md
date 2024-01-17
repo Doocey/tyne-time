@@ -12,7 +12,7 @@ categories:
 
 ### Kevin - Insistent on suing Mike Ashley
 
-It's a sad day to see a former Newcastle footballer and manager, win a court case against his 'beloved' club. However, you have to look at Mike Ashley's side of the story. Perhaps he deserved it, maybe there's no question about it, but surely you think that Keegan wouldn't go to such lengths just to be able to say he was right. Today Mike Ashley was ordered to pay £2m in compensation  to Kevin and perhaps even more, dependent on future developments. The good news is though, this chapter is now closed and a new one can open.
+It's a sad day to see a former Newcastle footballer and manager, win a court case against his 'beloved' club. However, you have to look at Mike Ashley's side of the story. Perhaps he deserved it, maybe there's no question about it, but surely you think that Keegan wouldn't go to such lengths just to be able to say he was right. Today Mike Ashley was ordered to pay £2m in compensation to Kevin and perhaps even more, dependent on future developments. The good news is though, this chapter is now closed and a new one can open.
 
 Ny headline may be a little harsh but I believe it's the truth. Kevin Keegan resignation from Newcastle United was the day they started on that slippery slope which in the end, led to relegation.
 

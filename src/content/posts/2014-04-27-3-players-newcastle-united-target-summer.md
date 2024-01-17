@@ -1,6 +1,6 @@
 ---
 title: 3 players Newcastle United should target this summer
-description: 'With a fascinating Premier League season coming to a close, Tyne Time takes a look at potential summer targets as Newcastle United look to start recruitment'
+description: "With a fascinating Premier League season coming to a close, Tyne Time takes a look at potential summer targets as Newcastle United look to start recruitment"
 author: Kevin Doocey
 type: post
 date: 2014-04-27T19:27:25+00:00
@@ -12,7 +12,7 @@ categories:
 
 ![St. James' Park Stadium, Newcastle.](https://www.tynetime.com/wp-content/uploads/2014/04/SJP-Newcastle-United.jpg "Special - What player wouldn't want to play in the splendid St. James' Park, right?")
 
-As both the Premier League title race and relegation fight at the bottom of the table both take another turn towards a fascinating finish, it throws up even more interesting propositions for clubs already safe and indeed ultimately with nothing to play for. At this stage in the season, all professional, well run clubs will be already eyeing up potential summer transfer targets ahead of the 2014/15 campaign, and glances will have been cast towards squads currently in the bottom three. Cardiff City, Fulham and indeed Norwich City all make up the dreaded places after an enthralling weekend of action in the league. Sunderland recorded a solid 4-0 victory over the struggling Welsh outfit in what will likely prove a victory that will have saved SAFC's EPL status. With that said, let's have a look at what  players NUFC could be eyeing up from the trio of sides in the drop zone.
+As both the Premier League title race and relegation fight at the bottom of the table both take another turn towards a fascinating finish, it throws up even more interesting propositions for clubs already safe and indeed ultimately with nothing to play for. At this stage in the season, all professional, well run clubs will be already eyeing up potential summer transfer targets ahead of the 2014/15 campaign, and glances will have been cast towards squads currently in the bottom three. Cardiff City, Fulham and indeed Norwich City all make up the dreaded places after an enthralling weekend of action in the league. Sunderland recorded a solid 4-0 victory over the struggling Welsh outfit in what will likely prove a victory that will have saved SAFC's EPL status. With that said, let's have a look at what players NUFC could be eyeing up from the trio of sides in the drop zone.
 
 I have narrowed a potentially large list down to three main candidates in my book, with each of them covering outfield positions. Here goes..
 
@@ -44,7 +44,7 @@ When Olympiakos announced that Mitroglou was to depart Greek shores for the hust
 
 His career with Fulham has never really materialised and he has only managed **two** appearances since his move with injuries preventing him from making an impact. However, don't be fooled by his lack of action at Craven Cottage, this guy is a good finisher. Aerially he is a threat as he proved for Olympiakos on many occasions, and his positional sense is what it should be for a striker. The Cottagers are unlikely to get their £12m back for him, but since we are in desperate need of a goalscoring striker at St. James' Park - he is worth a look at should they drop to the Championship in the coming weeks.
 
-_
+\_
 
 So, those three are just an example of what kind of players could be on offer in the summer. Newcastle are rumoured to be eyeing early business this coming transfer window, so I'd like to think at least one of the above are on the wishlist, although Caulker is the more likely candidate providing Cardiff are willing to negotiate.
 

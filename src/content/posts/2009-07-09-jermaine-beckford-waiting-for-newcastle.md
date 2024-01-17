@@ -11,7 +11,7 @@ categories:
 
 ![Beckford - Wants to join Newcastle](https://i.telegraph.co.uk/telegraph/multimedia/archive/01410/jermaine_beckford_1410027c.jpg)
 
-It's a pleasant surprise to see  players wanting to join out club at this time, even though we're in the worst possible scenario, no owner, no manager and players that want to leave. On the other hand there's on man that wants to come and that's Jermaine Beckford from Leeds United. Jermaine is quite a decent striker and stands at over 6ft.  Leeds have transfer listed him and he wants to leave. It's understood other bids have been made for him but he's rejected other club, in the hope he'll join Newcastle United. Firstly though we need new owners and it seems that Jermaine is willing to wait until they have arrived.
+It's a pleasant surprise to see players wanting to join out club at this time, even though we're in the worst possible scenario, no owner, no manager and players that want to leave. On the other hand there's on man that wants to come and that's Jermaine Beckford from Leeds United. Jermaine is quite a decent striker and stands at over 6ft.  Leeds have transfer listed him and he wants to leave. It's understood other bids have been made for him but he's rejected other club, in the hope he'll join Newcastle United. Firstly though we need new owners and it seems that Jermaine is willing to wait until they have arrived.
 
 His agent said :
 

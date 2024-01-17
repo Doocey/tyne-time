@@ -15,7 +15,7 @@ categories:
 
 #### Ireland - Can be a quality player under Alan Pardew at Newcastle United
 
-It wasn't that long ago when the we all watched Stephen Ireland become Manchester City's Player Of The Season - less than two years ago in fact. The Cork-born midfielder excelled under Mark Hughes whilst Manchester City manager but since then the big spending Italian Roberto Mancini took the reigns and made it clear very quickly that he didn't see a future for Ireland. After  spending time nowhere near the City team Ireland eventually secured a move away from Eastlands: ending up at Villa Park.
+It wasn't that long ago when the we all watched Stephen Ireland become Manchester City's Player Of The Season - less than two years ago in fact. The Cork-born midfielder excelled under Mark Hughes whilst Manchester City manager but since then the big spending Italian Roberto Mancini took the reigns and made it clear very quickly that he didn't see a future for Ireland. After spending time nowhere near the City team Ireland eventually secured a move away from Eastlands: ending up at Villa Park.
 
 As you know Martin O'Neill resigned and a forever bewildered Gérard Houllier took over. Ireland has failed to motivate himself or indeed allowed the Villa coaching staff to do so and was loaned to Newcastle United in the final few minutes of the January transfer window quite anonymously with Andy Carroll's move the main headlines.
 

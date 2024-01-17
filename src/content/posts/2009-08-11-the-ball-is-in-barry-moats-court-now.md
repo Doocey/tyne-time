@@ -13,7 +13,7 @@ categories:
 
 ### Moat - Needs to deposit funds by Friday
 
-It seems that the decision is with Barry Moat whether to buy the club at this stage. It's understood that Mike Ashley is willing to accept the offer from Moat but he wants a deposit by Friday in an unspecified bank account. If  Moat can do this then he will complete the takeover and we will be finally be Ashley free. Whether Moat can agree to this is another thing, Ashley will then take Newcastle United off the market and appoint either David O'Leary or Joe Kinnear to the managerial role. We certainly hope it's the first option and that Moat deposits the monies and completes the long awaited takeover, however, I think there's another twist in tale yet.
+It seems that the decision is with Barry Moat whether to buy the club at this stage. It's understood that Mike Ashley is willing to accept the offer from Moat but he wants a deposit by Friday in an unspecified bank account. If Moat can do this then he will complete the takeover and we will be finally be Ashley free. Whether Moat can agree to this is another thing, Ashley will then take Newcastle United off the market and appoint either David O'Leary or Joe Kinnear to the managerial role. We certainly hope it's the first option and that Moat deposits the monies and completes the long awaited takeover, however, I think there's another twist in tale yet.
 
 Alan Shearer is still waiting in the wings for the job and a source close to Alan said :
 

@@ -11,7 +11,7 @@ categories:
 
 ![Ashley - So quiet youd forget hes the owner](https://blaxguttierez.files.wordpress.com/2009/06/mike-ashley-001.jpg)
 
-It seems the Iranian businessman who was hell bent on buying Newcastle United, and bringing Kevin Keegan back as manager is gone with the wind. Although we  doubted him from the very first second we heard of it, it's still quite odd that there's been nothing about him, in any of the tabloids or elsewhere, about his stance on the sale. First of all, we couldn't find out  whether he was a real person or not but
+It seems the Iranian businessman who was hell bent on buying Newcastle United, and bringing Kevin Keegan back as manager is gone with the wind. Although we  doubted him from the very first second we heard of it, it's still quite odd that there's been nothing about him, in any of the tabloids or elsewhere, about his stance on the sale. First of all, we couldn't find out whether he was a real person or not but
 
 **Tyne Time** revealed the day after, that he was indeed a real human being, but whether he was interested in NUFC was another thing.
 

@@ -10,7 +10,7 @@ categories:
 
 ### Jonas - Netted his first/last Newcastle United goal
 
-Newcastle triumphed  victorious over a lacklustre Darlington side tonight winning by a solid 5 goals. Goals scored by Shola Ameobi, Kevin Nolan, Jonas Gutierrez, Damien Duff, Andy Carroll and local lad Steve Taylor were enough to see off Dean Windass's solo efforts. It's a good win but the ownership is still yet to be sorted. Maybe this game and indeed the win will show the new potential owners that Newcastle have the ability. Maybe? We'll still have to wait as another week passes by.
+Newcastle triumphed victorious over a lacklustre Darlington side tonight winning by a solid 5 goals. Goals scored by Shola Ameobi, Kevin Nolan, Jonas Gutierrez, Damien Duff, Andy Carroll and local lad Steve Taylor were enough to see off Dean Windass's solo efforts. It's a good win but the ownership is still yet to be sorted. Maybe this game and indeed the win will show the new potential owners that Newcastle have the ability. Maybe? We'll still have to wait as another week passes by.
 
 FT Darlington [2 - 7] Newcastle U.
 

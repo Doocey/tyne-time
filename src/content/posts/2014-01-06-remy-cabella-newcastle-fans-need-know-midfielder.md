@@ -12,7 +12,7 @@ categories:
 
 ![Rémy Cabella in action for Montpellier](https://www.tynetime.com/wp-content/uploads/2014/01/Remy-Cabella-Newcastle.jpg "Cabella - Talented French footballer that would suit the Premier League")
 
-Having crashed out the FA Cup in abysmal fashion it seems quite convenient for the Newcastle hierarchy to leak out news of potential January transfer signings. Of course when you fall out the cup so early at home to a struggling Welsh side you want to draw the attention away from it as quickly as possible so why not throw the media some news about the possibility of as many as four new signings in January? Whatever way you look at it, a ploy or not - Newcastle are serious about bringing in at least one new face this month and **Rémy Cabella** seems their primary target. The French midfielder is poised to leave Montpellier in 2014 and although their president Louis Nicollin wants the talented 23 year-old to hold-out until  June, Newcastle would ideally look to seal a deal in the next 25 days.
+Having crashed out the FA Cup in abysmal fashion it seems quite convenient for the Newcastle hierarchy to leak out news of potential January transfer signings. Of course when you fall out the cup so early at home to a struggling Welsh side you want to draw the attention away from it as quickly as possible so why not throw the media some news about the possibility of as many as four new signings in January? Whatever way you look at it, a ploy or not - Newcastle are serious about bringing in at least one new face this month and **Rémy Cabella** seems their primary target. The French midfielder is poised to leave Montpellier in 2014 and although their president Louis Nicollin wants the talented 23 year-old to hold-out until June, Newcastle would ideally look to seal a deal in the next 25 days.
 
 Just today their eccentric owner Nicollin spoke to the media about the interest surrounding their star player Cabella:
 
@@ -48,5 +48,5 @@ If we could sort out a deal for Cabella and the other Rémy - Loic then that wou
 
 Comments welcome as always, and make sure to like our [Facebook page][1] plus you can follow me on Twitter [@KevinDoocey][2] if you feel so inclined.
 
- [1]: http://www.facebook.com/tynetime "tyne time facebook"
- [2]: https://twitter.com/kevindoocey "kevin doocey twitter"
+[1]: http://www.facebook.com/tynetime "tyne time facebook"
+[2]: https://twitter.com/kevindoocey "kevin doocey twitter"

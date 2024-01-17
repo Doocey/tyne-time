@@ -10,7 +10,7 @@ categories:
 
 ![Keegan - Thats what he thinks of Newcastles situation](https://i.telegraph.co.uk/telegraph/multimedia/archive/01207/kevin_keegan_1207778c.jpg)
 
-There are reports today that Kevin Keegan who apparently in talks with Southampton, is monitoring Newcastle's situation. Keegan who was Newcastle boss this time last year was forced  to resign and from then on, Newcastle fell and eventually our fall was broken with what is, the Championship. We know that Keegan wouldn't take Newcastle for a final time but then again you never know with 'The Messiah'. Southampton are reportedly trying to seal the contract though and we'd expect him to end up there.
+There are reports today that Kevin Keegan who apparently in talks with Southampton, is monitoring Newcastle's situation. Keegan who was Newcastle boss this time last year was forced to resign and from then on, Newcastle fell and eventually our fall was broken with what is, the Championship. We know that Keegan wouldn't take Newcastle for a final time but then again you never know with 'The Messiah'. Southampton are reportedly trying to seal the contract though and we'd expect him to end up there.
 
 A source close to Kevin said :
 

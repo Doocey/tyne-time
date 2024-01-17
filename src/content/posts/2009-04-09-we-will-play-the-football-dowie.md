@@ -32,7 +32,7 @@ Shearer has also made it clear that this fight is about the club and not about h
 
 > “We’ve always been very good friends and had discussions.
 
->“He’s got a very good sense of humour – he’s very dry.’’
+> “He’s got a very good sense of humour – he’s very dry.’’
 
 Let's hope we do play the football and get the three points.
 

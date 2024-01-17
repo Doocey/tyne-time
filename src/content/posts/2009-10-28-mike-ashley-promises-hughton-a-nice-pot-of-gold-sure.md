@@ -12,7 +12,7 @@ categories:
 
 ### Hughton - No grudge against him getting the job
 
-The worst insult that a Newcastle United fan could get is not only destroying their beloved club, but trying to destroy their stadium name. Yesterday, on top of the devastating news that Mike Ashley had taken Newcastle United off the market, he also said that they were open to any offers for the naming rights of the stadium. This, is probably the cheekiest, and most arrogant  move he has taken to date, and you really have to question yourself if he's that stupid or being an outright (Insert your own word here). Today Ashley confirmed that there will be funds available to Chris, and that he's pumping £20m into the club by the end of this week.
+The worst insult that a Newcastle United fan could get is not only destroying their beloved club, but trying to destroy their stadium name. Yesterday, on top of the devastating news that Mike Ashley had taken Newcastle United off the market, he also said that they were open to any offers for the naming rights of the stadium. This, is probably the cheekiest, and most arrogant move he has taken to date, and you really have to question yourself if he's that stupid or being an outright (Insert your own word here). Today Ashley confirmed that there will be funds available to Chris, and that he's pumping £20m into the club by the end of this week.
 
 We've gone nearly half a year without one single buyer actually taking control of the club and we've even had a team in place to sell it. It's quite a disgrace when we can't find one buyer, sure the clubs isn't an attractive investment but surely there's someone out there who actually wants to get involved in a club, besides Barry Moat.
 

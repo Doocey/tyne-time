@@ -11,7 +11,7 @@ categories:
 
 ### Away strip - Not going to sell that well
 
-A mere three people  queued outside Newcastle United's official store in order to get their new banana away kit. The new release from Newcastle has been met with plenty of jokes from the papers but you can't blame them really. The only thing it signifies for me, is, it's the same colour shirt Newcastle wore when promoted from Division 2 many years ago. Either that or someone's really having a laugh, does Derek Llambias have anything to do with this? I hoped they'd change the kit to a normal colour like navy or something but no, they're going full steam ahead with their submarine shirt.
+A mere three people queued outside Newcastle United's official store in order to get their new banana away kit. The new release from Newcastle has been met with plenty of jokes from the papers but you can't blame them really. The only thing it signifies for me, is, it's the same colour shirt Newcastle wore when promoted from Division 2 many years ago. Either that or someone's really having a laugh, does Derek Llambias have anything to do with this? I hoped they'd change the kit to a normal colour like navy or something but no, they're going full steam ahead with their submarine shirt.
 
 The people that did queue gave their opinions but still didn't put them off buying it.
 

@@ -1,6 +1,6 @@
 ---
 title: Newcastle 'closing in' on Daryl Janmaat as Debuchy successor
-description: 'According to reports, Newcastle United are close to sealing a deal for Dutch right-back Daryl Janmaat as an inevitable replacement for Mathieu Debuchy.'
+description: "According to reports, Newcastle United are close to sealing a deal for Dutch right-back Daryl Janmaat as an inevitable replacement for Mathieu Debuchy."
 author: Kevin Doocey
 type: post
 date: 2014-07-03T16:23:17+00:00
@@ -16,7 +16,7 @@ It seems almost inevitable that Mathieu Debuchy was going to leave Newcastle Uni
 
 Janmaat is also at the 2014 World Cup preparing for a quarter-final of his own with the Netherlands, and despite rumoured interest from Manchester United, there are a number of reports emerging from his motherland that Newcastle are close to sealing a deal with Feyenoord for the right-back.
 
-The Dutch head-coach, Louis van Gaal, who is set to take over at Manchester United when the World Cup ends has naturally been  linked with a large amount of his WC squad so it is no surprise that some sections of the media claimed that Janmaat was high up his shopping list.
+The Dutch head-coach, Louis van Gaal, who is set to take over at Manchester United when the World Cup ends has naturally been linked with a large amount of his WC squad so it is no surprise that some sections of the media claimed that Janmaat was high up his shopping list.
 
 According to [Alfredo Pedulla](https://twitter.com/AlfredoPedulla "Alfredo Pedulla Twitter") - a verified Twitter sports journalist, he has released an 'exclusive' claiming that Newcastle have stolen a march on Napoli in the pursuit of Janmaat and that a deal has been agreed. This accompanies a number of other releases from some of the Dutch media.
 

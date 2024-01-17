@@ -1,5 +1,5 @@
 ---
-title: 'Nolan & Smith wouldn’t bother joining Brum'
+title: "Nolan & Smith wouldn’t bother joining Brum"
 author: Kevin Doocey
 type: post
 date: 2009-12-02T16:02:12+00:00
@@ -11,7 +11,7 @@ categories:
 
 ### Smith - Neither of the lads would leave Tyneside this January
 
-Although the headline might sound a little disrespectful to Birmingham, I don't mean it that way. However, both of the lads have said that they don't want a move away from Newcastle and for me, that's that. Smith and Nolan both joined for decent fees and haven't lived up to their price tag. Even though Nolan & Smith have looked pretty comfortable this season so far, you'd  expect that as they're playing a division below their usual standard.
+Although the headline might sound a little disrespectful to Birmingham, I don't mean it that way. However, both of the lads have said that they don't want a move away from Newcastle and for me, that's that. Smith and Nolan both joined for decent fees and haven't lived up to their price tag. Even though Nolan & Smith have looked pretty comfortable this season so far, you'd expect that as they're playing a division below their usual standard.
 
 Birmingham  may be a Premier League team and fair play to them, but not for long I don't think. They've been in very good form of late and are securing important wins like at Wolves, Sunderland and so on. Saying that, I think it'll be quite tight in May and  Brum may well be shoved into the bottom three.
 

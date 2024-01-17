@@ -13,7 +13,7 @@ categories:
 
 ### Kilgallon - Newcastle still reportedly in the hunt despite statement
 
-Although Matthew Kilgallon indicated that he will stay on at Sheffield United for the remainder of the season, there are still rumours out there that he could well still arrive at St. James' Park. As he's in his last few months of his contract at Bramall Lane, Kilgallon will seek a move in the summer for free, and to a Premier League club if he can. However, Chris Hughton is still  interested in the former Leeds defender and it's not outside the realms of possibility that Kilgallon could pull on a Black and White jersey in the month of January.
+Although Matthew Kilgallon indicated that he will stay on at Sheffield United for the remainder of the season, there are still rumours out there that he could well still arrive at St. James' Park. As he's in his last few months of his contract at Bramall Lane, Kilgallon will seek a move in the summer for free, and to a Premier League club if he can. However, Chris Hughton is still interested in the former Leeds defender and it's not outside the realms of possibility that Kilgallon could pull on a Black and White jersey in the month of January.
 
 On the other hand, our supposed failure to grasp Kilgallon has meant that according to the Evening Chronicle, Leon Cort will be sought after for defensive cover behind Fabricio Coloccini and Steven Taylor. Whether it's true or not, I really don't know.
 

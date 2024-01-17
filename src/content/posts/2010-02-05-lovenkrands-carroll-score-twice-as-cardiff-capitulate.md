@@ -1,5 +1,5 @@
 ---
-title: 'Lovenkrands & Carroll score twice as Cardiff capitulate'
+title: "Lovenkrands & Carroll score twice as Cardiff capitulate"
 author: Kevin Doocey
 type: post
 date: 2010-02-05T22:51:09+00:00
@@ -13,7 +13,7 @@ categories:
 
 ### Lovenkrands - Came off the bench to score twice including a beauty on his left
 
-First of all, I was very wrong in my predictions about tonights game. Very wrong indeed. In what was a totally one sided affair from the very first whistle, Newcastle United fired 5 goals past Dave Jones side. An early opener from Andy Carroll followed by an unfortunate turn of events which saw Gyepes put the ball into his own net, with Andy Carroll again to thank. Only a few  minutes later Carroll has grabbed his official second, a great cross from Danny Simpson onto the head of Carroll who fired home.
+First of all, I was very wrong in my predictions about tonights game. Very wrong indeed. In what was a totally one sided affair from the very first whistle, Newcastle United fired 5 goals past Dave Jones side. An early opener from Andy Carroll followed by an unfortunate turn of events which saw Gyepes put the ball into his own net, with Andy Carroll again to thank. Only a few minutes later Carroll has grabbed his official second, a great cross from Danny Simpson onto the head of Carroll who fired home.
 
 Three to nothing within 15 minutes., a marvelous feat for a side who hadn't scored 5, in the last three matches. Débutante, Leon Best was in Carroll's shadow for most of the game but did get his name on the sheet, with a yellow card.
 

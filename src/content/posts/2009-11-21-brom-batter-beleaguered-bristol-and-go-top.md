@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-With Newcastle not playing until Monday, West Brom today had the chance to return to the top of the Coca Cola Championship table and that they did, comprehensively. A four one thrashing at home to Bristol City clearly shortened the odds for West Brom's promotion but we're still only in an early stage of the season, with di Matteo reiterating that. On Monday we'll go to  Preston which I believe is live on Sky Sports and hopefully we'll be back on top of the table come 10pm.
+With Newcastle not playing until Monday, West Brom today had the chance to return to the top of the Coca Cola Championship table and that they did, comprehensively. A four one thrashing at home to Bristol City clearly shortened the odds for West Brom's promotion but we're still only in an early stage of the season, with di Matteo reiterating that. On Monday we'll go to Preston which I believe is live on Sky Sports and hopefully we'll be back on top of the table come 10pm.
 
 Speaking after the victory, Roberto said :
 

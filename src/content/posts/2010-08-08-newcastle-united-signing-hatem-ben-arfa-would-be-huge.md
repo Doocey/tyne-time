@@ -14,7 +14,7 @@ categories:
 
 #### Ben Arfa - Could add so much to Newcastle United's midfield this season
 
-We all know, or should do that Hatem Ben Arfa hasn't been outstanding at Marseille since he moved there and his attitude has been a major stumbling block for both the club and himself. In the last week or so, we've been strenuously linked with the Frenchman, and even with my sheer disgust of French footballers of the modern setup, I would sincerely love  to see the Tunisian born Ben Arfa wear Black and White this season.
+We all know, or should do that Hatem Ben Arfa hasn't been outstanding at Marseille since he moved there and his attitude has been a major stumbling block for both the club and himself. In the last week or so, we've been strenuously linked with the Frenchman, and even with my sheer disgust of French footballers of the modern setup, I would sincerely love to see the Tunisian born Ben Arfa wear Black and White this season.
 
 When Ben Arfa is motivated and in solemn mood, he can be a really great winger. However, more often than not, his bad attitude has got in the way of performances and he's had a number of bust-up's with fellow team-mates including Djbril Cisse. (who?!)
 

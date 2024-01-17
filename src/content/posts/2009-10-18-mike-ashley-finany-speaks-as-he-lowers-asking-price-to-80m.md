@@ -12,7 +12,7 @@ categories:
 
 ### Ashley - Lowers asking price to £80m
 
-There is some quite astonishing news today that Newcastle United owner Mike Ashley has first of all, spoken to the media for the first time in months and indeed that he has lowered his asking price of the club to £80m. Speaking today to the Sunday Times he claims that he's done his very best to sell the club and that Barry Moat has been on his case for the last two years. We are led to  believe that he has lowered the asking price now, in order for Barry to complete the takeover.
+There is some quite astonishing news today that Newcastle United owner Mike Ashley has first of all, spoken to the media for the first time in months and indeed that he has lowered his asking price of the club to £80m. Speaking today to the Sunday Times he claims that he's done his very best to sell the club and that Barry Moat has been on his case for the last two years. We are led to believe that he has lowered the asking price now, in order for Barry to complete the takeover.
 
 He said :
 

@@ -11,7 +11,7 @@ categories:
 
 ### Lovenkrands - Scoring a fair few goals for the Toon and long may it continue
 
-As I said a yesterday Newcastle United were in rich scoring form at home, and had accumulated 9 goals in their last 2 games on Tyneside. Using my fantastic mathematical brain(!) I've calculated that, the average amount of goals scored in our last two encounters is 4.5, with Wayne Routledge's goal counting as the extra half :D. It doesn't take a genius to see that we are pelting them in at  home of late and against decent sides, Cardiff City and indeed Coventry City. However, I'm sure you've all noticed that we are failing to score freely away from home, if even scoring at all.
+As I said a yesterday Newcastle United were in rich scoring form at home, and had accumulated 9 goals in their last 2 games on Tyneside. Using my fantastic mathematical brain(!) I've calculated that, the average amount of goals scored in our last two encounters is 4.5, with Wayne Routledge's goal counting as the extra half :D. It doesn't take a genius to see that we are pelting them in at home of late and against decent sides, Cardiff City and indeed Coventry City. However, I'm sure you've all noticed that we are failing to score freely away from home, if even scoring at all.
 
 In fact, we've only scored one in our last 3 games away from home, at Leicester City, Derby County and indeed Swansea City. All decent sides mind you but still, there's  huge difference between our scoring form at home and away. Although you'd expect that, not to the extent that's occurring.
 

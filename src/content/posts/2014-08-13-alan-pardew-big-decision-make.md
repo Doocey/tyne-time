@@ -33,7 +33,7 @@ We do know however, that Lee Charnley are co. are most certainly on the look-out
 
 Attempts will be made to lure Rémy between now and the close of the window, and should that fail, perhaps the club will look at Plan D whoever that involves.
 
-If, _if_, the plan does not come together then I think the focus will fall on _rejuvenating Papiss Cissé_. Many will pray that it does not come to this, but I'm probably one of a few that believe he can regain his form in the current setup.
+If, *if*, the plan does not come together then I think the focus will fall on _rejuvenating Papiss Cissé_. Many will pray that it does not come to this, but I'm probably one of a few that believe he can regain his form in the current setup.
 
 Time will tell, but time is running out to secure a top forward.
 

@@ -6,8 +6,8 @@ date: 2009-01-05T21:45:40+00:00
 url: /2009/01/05/toon-transfer-trauma/
 categories:
   - Newcastle United News
-
 ---
+
 We hear of it from tabloids don't we?
 
 Kinnear hasn't been given any money to spend and he's going to lose his job and quess what? We're in a relegation battle although we are 14th?

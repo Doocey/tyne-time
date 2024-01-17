@@ -14,11 +14,11 @@ Peter Lovenkrands took a little knock it seemed against Chelsea yesterday. The c
 
 Alan Shearer:
 
-_'He got a very, very nasty knock on his back and he was actually struggling to breathe.</p>
+\_'He got a very, very nasty knock on his back and he was actually struggling to breathe.</p>
 
 'They had to put the breathing apparatus on when he got into the dressing room.
 
-'Thankfully, he went off to hospital and they have now stabilised him and hopefully, he will be okay.'_
+'Thankfully, he went off to hospital and they have now stabilised him and hopefully, he will be okay.'\_
 
 It's no lie to saying the Dane has probably one of our better January signings with goals against West Brom and Manchester United. Mind you he nearly netted a winner v Sunderland on his debut. Let's hope he can keep up the good work and score a few goals in this extremely tight run in.
 

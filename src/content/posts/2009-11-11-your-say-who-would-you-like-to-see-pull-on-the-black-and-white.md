@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-I'm sure you all have players that you'd love to see play at Newcastle and now since Mike Ashley is staying and will supposedly 'back Chris in the market' then we might expect some new players to arrive, or certainly hope so. One of the players that Chris has to decide on in the very near future is Marlon Harewood. The bulky striker has been on loan from Villa since September  and has failed to produce anything special so far. Saying that, he hasn't had a proper run at things and booing from the home fans made his job even harder. However, he recent performance/effort v Peterborough saw him earn a warm reception amongst the Geordie faithful.
+I'm sure you all have players that you'd love to see play at Newcastle and now since Mike Ashley is staying and will supposedly 'back Chris in the market' then we might expect some new players to arrive, or certainly hope so. One of the players that Chris has to decide on in the very near future is Marlon Harewood. The bulky striker has been on loan from Villa since September and has failed to produce anything special so far. Saying that, he hasn't had a proper run at things and booing from the home fans made his job even harder. However, he recent performance/effort v Peterborough saw him earn a warm reception amongst the Geordie faithful.
 
 If I'm to name one player I would love to see strut his stuff for Newcastle, then it would be Per Ciljan Skjelbred. The Rosenborg midfielder is a Toon fan at heart and has reportedly been interested in a move to Newcastle for a few years now.
 

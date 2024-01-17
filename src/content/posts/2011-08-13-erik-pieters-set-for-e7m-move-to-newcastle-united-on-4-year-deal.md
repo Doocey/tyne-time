@@ -14,7 +14,7 @@ categories:
 
 #### Pieters - Eager to join Newcastle with Pardew also desperate to replace Enrique
 
-It's being reported across a few media outlets that Newcastle United have reached an agreement with Erik Pieters of PSV and the Dutchman is set to arrive on Tyneside on a four year deal. Pieters, who is being sought after by Alan Pardew to replace the departed Jose Enrique is believed to have met the release clause in Pieters contract which is rumoured to have been about £6m. We are in desperate  need of a new left-back following Enrique's move away, but just one arrival for that position isn't very encouraging.
+It's being reported across a few media outlets that Newcastle United have reached an agreement with Erik Pieters of PSV and the Dutchman is set to arrive on Tyneside on a four year deal. Pieters, who is being sought after by Alan Pardew to replace the departed Jose Enrique is believed to have met the release clause in Pieters contract which is rumoured to have been about £6m. We are in desperate need of a new left-back following Enrique's move away, but just one arrival for that position isn't very encouraging.
 
 We need a couple of LB's in the squad not just one, because as we all know - injuries usually strike NUFC at the worst possible time.
 

@@ -1,5 +1,5 @@
 ---
-title: 'Newcastle United eye Nacim Boukhelifa & Oriol Romeu signings'
+title: "Newcastle United eye Nacim Boukhelifa & Oriol Romeu signings"
 author: Kevin Doocey
 type: post
 date: 2010-09-06T18:08:44+00:00

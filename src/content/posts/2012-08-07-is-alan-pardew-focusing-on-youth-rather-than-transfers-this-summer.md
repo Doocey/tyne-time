@@ -13,7 +13,7 @@ categories:
 
 Abeid - Expect to see a lot of this guy in the coming Premier League season
 
-In the last couple of days, Alan Pardew reiterated his desire to bring in 'two or three' new players to club before the window slams shut in September. With three weeks left to tie up any deals, it seems NUFC are still hoping that Mathieu Debuchy will be starting at right back in the new season. Despite the fact Lille have decided that he'll stay, unfortunately as we know, the player usually gets what he wants. In this case, I hope Debuchy does manage to force a move away to Lille to join Newcastle United, but Graham Carr and his team did not expect the  chase to go on this long, or indeed prove so difficult.
+In the last couple of days, Alan Pardew reiterated his desire to bring in 'two or three' new players to club before the window slams shut in September. With three weeks left to tie up any deals, it seems NUFC are still hoping that Mathieu Debuchy will be starting at right back in the new season. Despite the fact Lille have decided that he'll stay, unfortunately as we know, the player usually gets what he wants. In this case, I hope Debuchy does manage to force a move away to Lille to join Newcastle United, but Graham Carr and his team did not expect the chase to go on this long, or indeed prove so difficult.
 
 What I have gathered from the latest interviews with Pardew, and anyone associated with NUFC is that there is a huge focus on youth at the club and they hope this season will the season where a lot of our prospects beat their fruits.
 

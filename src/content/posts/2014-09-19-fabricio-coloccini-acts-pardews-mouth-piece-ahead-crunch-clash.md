@@ -31,7 +31,7 @@ Those five sentences are an insult to Newcastle fans, in particular, the loyal s
 
 No effort, no interest, no desire, no passion. It was a ridiculous performance from a squad that looked like they wanted rid of their manager. Regardless, it was a crime against the supporters who travelled hundreds of miles to watch absolute drivel for 90 minutes.
 
-However, what really took the biscuit was the fact our _captain_ **Fabricio Coloccini** made a dart towards the tunnel when the full-time whistle sounded, barely acknowledging the travelling support. This is the man who is pleading for fans to come out and be the 12th man against Hull City. Is this guy for real?
+However, what really took the biscuit was the fact our *captain* **Fabricio Coloccini** made a dart towards the tunnel when the full-time whistle sounded, barely acknowledging the travelling support. This is the man who is pleading for fans to come out and be the 12th man against Hull City. Is this guy for real?
 
 It angered me even reading it, and as many of you will know, I am an Irish Newcastle fan, so I do not have the pleasure of following my side around England throughout the year. Saying that, I would be absolutely insulted reading those comments from Colo, bearing in mind his demeanour at the end of the game vs. Southampton last week.
 

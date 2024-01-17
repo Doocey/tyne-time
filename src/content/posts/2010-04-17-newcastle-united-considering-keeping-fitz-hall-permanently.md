@@ -15,7 +15,7 @@ categories:
 
 ![Fitz Hall could sign permanently at St.James' Park this Summer](https://static.guim.co.uk/sys-images/Sport/Pix/pictures/2010/1/29/1264762943666/Fitz-Hall-001.jpg)
 
-There are reports flying about the place in the last couple of days that Fitz Hall could be arriving on Tyneside on a permanent basis once the transfer window reopens. The defender, on-loan from Queens Park Rangers has seen a turbulent time at Loftus Road and indeed has seen the club dig their way through more than 3 managers this season. Their current manager in Neil Warnock  could well have very different plans for the back four he wants next season and indeed Hall may not be included in them.
+There are reports flying about the place in the last couple of days that Fitz Hall could be arriving on Tyneside on a permanent basis once the transfer window reopens. The defender, on-loan from Queens Park Rangers has seen a turbulent time at Loftus Road and indeed has seen the club dig their way through more than 3 managers this season. Their current manager in Neil Warnock could well have very different plans for the back four he wants next season and indeed Hall may not be included in them.
 
 Officially a Premier League team now, I'm not quite sure what we'd be buying Fitz Hall for. Once very highly touted, he's getting on and we're not too badly stuck for defenders now. The likes of Mike Williamson, Fabricio Coloccini, Danny Simpson, Ryan Taylor, Tamas Kadar, Jose Enrique, and Steven Taylor are all on the look-out for a first team spot come August.
 

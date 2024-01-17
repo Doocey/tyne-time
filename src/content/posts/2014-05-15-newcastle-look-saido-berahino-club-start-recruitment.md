@@ -1,6 +1,6 @@
 ---
 title: Newcastle look to Saido Berahino as club start recruitment
-description: 'According to reports, Newcastle United are ready to act swiftly in the summer transfer window with West Brom youngster Saido Berahino high up the wishlist.'
+description: "According to reports, Newcastle United are ready to act swiftly in the summer transfer window with West Brom youngster Saido Berahino high up the wishlist."
 author: Kevin Doocey
 type: post
 date: 2014-05-15T16:16:09+00:00
@@ -11,7 +11,7 @@ categories:
 
 ![Saido Berahino in action for West Brom](https://www.tynetime.com/wp-content/uploads/2014/05/Saido-Berahino-West-Brom.jpg "Berahino - An exciting prospect that Newcastle want to bring to St. James' Park")
 
-In a quite depressing statement released by Newcastle United officials at a recent Fans forum, the club confirmed in no uncertain terms that manager Alan Pardew will be staying on as head coach, much to the disappointment of 99% of NUFC fans, and indeed myself. I am not going to dwell on the points made at the forum, but we haven't been told anything new. The club want stability in the Premier League, no real involvement in any of the Cups, and will continue to remain fixated on acquiring the 'right' type of player to suit the recruitment procedure. There has been much talk about the proposed transfer budget that Alan Pardew will have to play with this summer, with Luke Edwards of the Telegraph claiming a figure of £60m at first, before amended his article to state that a considerable kitty is available. On that note, many of the respected local media have reported that Newcastle are making fast move to secure their targets  before the start of the World Cup.
+In a quite depressing statement released by Newcastle United officials at a recent Fans forum, the club confirmed in no uncertain terms that manager Alan Pardew will be staying on as head coach, much to the disappointment of 99% of NUFC fans, and indeed myself. I am not going to dwell on the points made at the forum, but we haven't been told anything new. The club want stability in the Premier League, no real involvement in any of the Cups, and will continue to remain fixated on acquiring the 'right' type of player to suit the recruitment procedure. There has been much talk about the proposed transfer budget that Alan Pardew will have to play with this summer, with Luke Edwards of the Telegraph claiming a figure of £60m at first, before amended his article to state that a considerable kitty is available. On that note, many of the respected local media have reported that Newcastle are making fast move to secure their targets before the start of the World Cup.
 
 One of these targets is a certain **Saido Berahino** of  West Bromwich Albion. The 20 year-old Englishman burst onto the scene at the start of the season and drew much acclaim for his early performances, in particular, his showing against Manchester United at Old Trafford where the Midlands cub - alike ourselves - recorded a memorable victory at the expense of David Moyes' men.
 

@@ -1,5 +1,5 @@
 ---
-title: 'Tyne Time Competition : Win a World Cup 2010 Jersey'
+title: "Tyne Time Competition : Win a World Cup 2010 Jersey"
 author: Kevin Doocey
 type: post
 date: 2010-08-04T18:13:20+00:00

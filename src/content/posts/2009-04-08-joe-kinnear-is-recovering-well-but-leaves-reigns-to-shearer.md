@@ -14,13 +14,13 @@ Good news that Joe is recovering well from his heart operation and that he is re
 
 Llambias said :
 
-__'Joe had his tests on Monday and the doctors were pleased with him.”__
+**'Joe had his tests on Monday and the doctors were pleased with him.”**
 
-__“He’s lost two stone in weight and has passed all his tests with flying colors.”__
+**“He’s lost two stone in weight and has passed all his tests with flying colors.”**
 
-__“He’s on the mend – in two months time he should be fully fit.”__
+**“He’s on the mend – in two months time he should be fully fit.”**
 
-As Ed Harrison said on the NUFC Blog 
+As Ed Harrison said on the NUFC Blog
 
 Anybody who is willing to do that for the Newcastle United club will always have a special place in our heart!' We said Ed.
 

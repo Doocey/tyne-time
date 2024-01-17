@@ -11,7 +11,7 @@ categories:
 
 ### Hughton - Doing a very professional job at Newcastle United this season
 
-As expected for some, we're top of the Coca Cola Championship and so far so good for Newcastle United. In less that 12 months after we plummeted into the Coca Cola Championship without a whimper, we've seen a fair few 'big' players leave the clubs and leave behind them, their big wages. Michael Owen, Obafemi Martins, Mark Viduka, Habib Beye, Damien Duff and many more  left, as Newcastle United prepared for their first season in the lower tier of English football, in 16 years. With Mike Ashley 'trying' to find a buyer for the beleaguered club, we missed out on summer transfer targets and installing Alan Shearer as manager.
+As expected for some, we're top of the Coca Cola Championship and so far so good for Newcastle United. In less that 12 months after we plummeted into the Coca Cola Championship without a whimper, we've seen a fair few 'big' players leave the clubs and leave behind them, their big wages. Michael Owen, Obafemi Martins, Mark Viduka, Habib Beye, Damien Duff and many more left, as Newcastle United prepared for their first season in the lower tier of English football, in 16 years. With Mike Ashley 'trying' to find a buyer for the beleaguered club, we missed out on summer transfer targets and installing Alan Shearer as manager.
 
 In the midst of all this, Chris Hughton, who had been employed by Newcastle to be Kevin Keegan's assistant manager, kept the team training and introduced some discipline into what were then, a confused bunch of lads with no one knowing if they'd be at the club for much longer.
 

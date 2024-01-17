@@ -11,7 +11,7 @@ categories:
 
 ![Alan Pardew looks on from the sidelines](https://www.tynetime.com/wp-content/uploads/2013/11/Alan-Pardew-Sideline.jpg "Pardew - Deployed the correct tactics against Chelsea last Saturday")
 
-Tactical awareness is not something most Newcastle supporters will attribute to Alan Pardew and rightly so. Some of the decisions the 52 year-old has made over the course of the last two seasons have left the majority - including myself - bemused. Regressive tactics, alongside some bizarre comments about his side's style of play would pose the question whether Pardew is completely out of his depth in the Newcastle United hot-seat. Such an accusation would be a tad harsh on the ex-Hammers boss who guided the Magpies to a quite unbelievable 5th place finish in the league two seasons ago, a season which saw the men in Black and White play some the best football at St. James' Park in many, many years. Fast  -forward to 2013, and Newcastle travel to White Hart Lane after disposing of title-chasing Chelsea on Tyneside last weekend. The victory over Mourinho's men consumed passion, determination, and to be completely honest:
+Tactical awareness is not something most Newcastle supporters will attribute to Alan Pardew and rightly so. Some of the decisions the 52 year-old has made over the course of the last two seasons have left the majority - including myself - bemused. Regressive tactics, alongside some bizarre comments about his side's style of play would pose the question whether Pardew is completely out of his depth in the Newcastle United hot-seat. Such an accusation would be a tad harsh on the ex-Hammers boss who guided the Magpies to a quite unbelievable 5th place finish in the league two seasons ago, a season which saw the men in Black and White play some the best football at St. James' Park in many, many years. Fast -forward to 2013, and Newcastle travel to White Hart Lane after disposing of title-chasing Chelsea on Tyneside last weekend. The victory over Mourinho's men consumed passion, determination, and to be completely honest:
 
 **tactical astuteness**.
 
@@ -29,7 +29,7 @@ Last season he tried to play it safe by locking away creativity and opting to de
 
 Now, in the year of 2013, Pardew has the chance to show us that he really is an attacking styled manager who harbours the intentions of playing an attractive style of football.
 
-With no European campaign to hamper us and only the FA Cup on the side - there is no reason why NUFC would revert to drab tactics that the players are not natural to, nor _do they want to play__._
+With no European campaign to hamper us and only the FA Cup on the side - there is no reason why NUFC would revert to drab tactics that the players are not natural to, nor *do they want to play\_\_.*
 
 Yohan Cabaye, Cheick Tioté, Vurnon Anita, Hatem Ben Arfa, Loic Rémy, and Fabricio Coloccini are all footballers who are suited to a positive style of play as we witnessed in 2011/12. Now, I fully expect Pardew to keep with Tioté against Spurs on Sunday for his sheer physicality, but as the weeks progress hopefully we'll see an _adventurous side_ to our manager, in other words, tactics which encourage creativity.
 

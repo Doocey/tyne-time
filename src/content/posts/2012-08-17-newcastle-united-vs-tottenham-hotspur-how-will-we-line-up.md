@@ -1,5 +1,5 @@
 ---
-title: 'Newcastle United vs. Tottenham Hotspur: How will we line-up?'
+title: "Newcastle United vs. Tottenham Hotspur: How will we line-up?"
 author: Kevin Doocey
 type: post
 date: 2012-08-17T21:10:04+00:00
@@ -13,7 +13,7 @@ categories:
 
 #### Ameobi - Likely to lead the line against Andre Villas Boas' men tomorrow evening
 
-The time has finally come. After months of gruelling pre-season Newcastle United finally get their 2012/13 Premier League campaign underway against a new-look Tottenham Hotspur, at half five, Saturday evening. Thankfully, the season starts at home in Newcastle, and against a side that Alan Pardew's men will be looking to get one over on, following an embarrassing display in London in the return fixture last season; a game which Spurs won, 5-0. However, the task of gaining all three points won't be any easy feat, and it's likely that it'll be quite a  cagey encounter with either side unlikely to go all gung-ho - certainly in the early stages of the game.
+The time has finally come. After months of gruelling pre-season Newcastle United finally get their 2012/13 Premier League campaign underway against a new-look Tottenham Hotspur, at half five, Saturday evening. Thankfully, the season starts at home in Newcastle, and against a side that Alan Pardew's men will be looking to get one over on, following an embarrassing display in London in the return fixture last season; a game which Spurs won, 5-0. However, the task of gaining all three points won't be any easy feat, and it's likely that it'll be quite a cagey encounter with either side unlikely to go all gung-ho - certainly in the early stages of the game.
 
 NUFC enter the game with Papiss Cissé, Demba Ba, Yohan Cabaye all doubtful to gain fitness in time for KO. Hatem Ben Arfa is also struggling and is the most likely candidate to sit the game out.
 
@@ -43,4 +43,4 @@ Ameobi a couple of minutes from time to even things up at 1-1 would suit me fine
 
 Comments welcome as always. Who do you think will start in midfield, or up front for us at 17.30?
 
- [1]: https://www.tynetime.com/wp-content/uploads/2012/08/NUFC-Line-Up-Spurs.jpg
+[1]: https://www.tynetime.com/wp-content/uploads/2012/08/NUFC-Line-Up-Spurs.jpg

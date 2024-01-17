@@ -12,7 +12,7 @@ categories:
 
 ### Jonas - Eager to do well with Argentina in South Africa this month
 
-Indeed Jonas Gutierrez is so concentrated on this upcoming World Cup that he forgot to pack normal everyday clothes! Packing just football gear and a tracksuit, Jonas forgot to put some normal clothes in what seemingly was a very small suitcase. However, he claims that it's his ultimate focus for Argentina at the World Cup this year that inevitably resulted in him arriving  in South Africa with no normal clothes to wear. Unfortunately there was no betting market for such an event to happen, however bettingexpert.com have pretty every other football related market covered.
+Indeed Jonas Gutierrez is so concentrated on this upcoming World Cup that he forgot to pack normal everyday clothes! Packing just football gear and a tracksuit, Jonas forgot to put some normal clothes in what seemingly was a very small suitcase. However, he claims that it's his ultimate focus for Argentina at the World Cup this year that inevitably resulted in him arriving in South Africa with no normal clothes to wear. Unfortunately there was no betting market for such an event to happen, however bettingexpert.com have pretty every other football related market covered.
 
 Argentina are Tyne Time's team to watch this summer alongside Mexico, who we think will do quite well and it happens to be Mexico who start proceedings against the hosts South Africa tomorrow.
 

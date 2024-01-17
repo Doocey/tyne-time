@@ -11,7 +11,7 @@ categories:
 
 ![Ashley - Far from a laughing matter](https://static.guim.co.uk/sys-images/Football/Clubs/Club_Home/2009/8/18/1250597290170/Barry-Moat-Mike-Ashley-001.jpg)
 
-It's good to see Newcastle United top of the table as we enter a new month but it's also very sad to still see Mike Ashley in control of the club and making no progress or any good decisions at all. Chris Hughton who was recruited as an assistant to Kevin Keegan (remember him?) is now first team manager, for now at least. However, 15 weeks since Newcastle were put on  the market for a second time in two years, we are still ownerless and looking for new owners. The Barry Moat saga has carried on too long and continues to churn up stories every second day but the truth seems, as if he won't be our saviour.
+It's good to see Newcastle United top of the table as we enter a new month but it's also very sad to still see Mike Ashley in control of the club and making no progress or any good decisions at all. Chris Hughton who was recruited as an assistant to Kevin Keegan (remember him?) is now first team manager, for now at least. However, 15 weeks since Newcastle were put on the market for a second time in two years, we are still ownerless and looking for new owners. The Barry Moat saga has carried on too long and continues to churn up stories every second day but the truth seems, as if he won't be our saviour.
 
 Regardless of our position in the league, we need a decision made and very quickly. We've been preaching this for nearly five months now but the only decisions that have been made by the hierarchy is what players should be let go, and for how much.
 

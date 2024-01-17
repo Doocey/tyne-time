@@ -11,7 +11,7 @@ categories:
 
 ![Jay Rodriguez celebrates opening the scoring for Southampton against Newcastle United](https://www.tynetime.com/wp-content/uploads/2014/03/Jay-Rodriguez-Southampton-Newcastle.jpg "Rodriguez - Ripped Newcastle United's non-existent defence to shreds today")
 
-There may have been only a solitary point separating Newcastle United and Southampton in favour of the North East outfit before today, but when the final whistle sounded at a packed out St. Mary's Stadium - there might as well have been a division between the sides, as the difference in quality on display was truly visible. Southampton have earned the plaudits for their style of football this season, and as [I alluded to in my preview](https://www.tynetime.com/2014/03/28/southampton-v-newcastle-united-will-line/ "nufc preview") on Friday evening, Newcastle needed to be on song in order to avoid another away defeat. I suggested that we couldn't allow Southampton to start quickly, or force us deep into our own half so early on, but dear me, that was exactly what happened. Whatever about us falling into Southampton's trap, the response was even more disheartening for  the 2100 loyal Newcastle United fans that made the long journey down to Hampshire.
+There may have been only a solitary point separating Newcastle United and Southampton in favour of the North East outfit before today, but when the final whistle sounded at a packed out St. Mary's Stadium - there might as well have been a division between the sides, as the difference in quality on display was truly visible. Southampton have earned the plaudits for their style of football this season, and as [I alluded to in my preview](https://www.tynetime.com/2014/03/28/southampton-v-newcastle-united-will-line/ "nufc preview") on Friday evening, Newcastle needed to be on song in order to avoid another away defeat. I suggested that we couldn't allow Southampton to start quickly, or force us deep into our own half so early on, but dear me, that was exactly what happened. Whatever about us falling into Southampton's trap, the response was even more disheartening for the 2100 loyal Newcastle United fans that made the long journey down to Hampshire.
 
 **Tactics:**
 
@@ -35,7 +35,7 @@ The decision to constantly play a high-line and attempt to play a pacy Southampt
 
 Unfortunately the only thing I learned was that the majority of the squad is already on holidays. Fair enough Southampton were pretty excellent in their own right but we made life easy for them. The fast start that I warned against materialised, and by right, the Saints should have been at least 3-0 up at half-time.
 
-We offered no offensive threat whatsoever with just _two shots on target_ for the entire game. The only positive to take from today's tie was the performance of **Rob Elliot** in the Newcastle goal. The Irishman - playing his first game of the season - looked unbeatable until first half injury time, and despite that he continued to pull off some fine reaction saves in the second period.
+We offered no offensive threat whatsoever with just *two shots on target* for the entire game. The only positive to take from today's tie was the performance of **Rob Elliot** in the Newcastle goal. The Irishman - playing his first game of the season - looked unbeatable until first half injury time, and despite that he continued to pull off some fine reaction saves in the second period.
 
 Despondent, disappointing, disgraceful and downright dire — that is how I sum up Newcastle's display against Mauricio Pochettino's men today.
 

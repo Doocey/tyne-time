@@ -1,6 +1,6 @@
 ---
 title: Alan Pardew must go before NUFC regret losing this maestro
-description: 'Not too long ago Hatem Ben Arfa was a firm favourite of Newcastle manager Alan Pardew, yet 12 months on and the Frenchman could be forced out of Tyneside..'
+description: "Not too long ago Hatem Ben Arfa was a firm favourite of Newcastle manager Alan Pardew, yet 12 months on and the Frenchman could be forced out of Tyneside.."
 author: Kevin Doocey
 type: post
 date: 2014-05-05T15:25:28+00:00
@@ -11,7 +11,7 @@ categories:
 
 ![Hatem Ben Arfa is congratulated by Newcastle manager Alan Pardew](https://www.tynetime.com/wp-content/uploads/2014/05/Hatem-Ben-Arfa-Alan-Pardew.jpg "Benny - Should not be forced out of Newcastle to cater for Alan Pardew's needs")
 
-It is true what they say: players have too much power in the modern game. Extravagant wages, greedy agents, and a sense of invincibility are aspects that one can attribute to many Premier League stars of the 21st century. Often one sees a manager sacked because a number of his players do not feel he is the correct manager for the club. David Moyes' recent departure from Manchester United was just one example of the majority of his squad failing to pull their weight throughout he season in order to have the Scot fired from his post. It's a sad state of football nowadays, but then again, there are always exceptions. The debacle between Newcastle manager and our French forward Hatem Ben Arfa is a prime example of where there needs to be a reasonable compromise for the greater of this magnificent football club. After a dire second half of a season  in which Ben Arfa rarely featured, Newcastle limped to a 3-0 victory against bottom of the table Cardiff City to mark their first victory since March 22nd.
+It is true what they say: players have too much power in the modern game. Extravagant wages, greedy agents, and a sense of invincibility are aspects that one can attribute to many Premier League stars of the 21st century. Often one sees a manager sacked because a number of his players do not feel he is the correct manager for the club. David Moyes' recent departure from Manchester United was just one example of the majority of his squad failing to pull their weight throughout he season in order to have the Scot fired from his post. It's a sad state of football nowadays, but then again, there are always exceptions. The debacle between Newcastle manager and our French forward Hatem Ben Arfa is a prime example of where there needs to be a reasonable compromise for the greater of this magnificent football club. After a dire second half of a season in which Ben Arfa rarely featured, Newcastle limped to a 3-0 victory against bottom of the table Cardiff City to mark their first victory since March 22nd.
 
 Although I could only watch from a TV screen, the atmosphere at St. James' Park on Saturday was as toxic as I have ever seen. Countless banners, vociferous chants from a passionate faithful, and the walk-out which saw thousands leave the stadium long before full-time in protest at the current regime. The situation could be summed up in one powerful image, that of Alan Pardew being afraid to leave his bench as to not aggravate the crowd even further.
 

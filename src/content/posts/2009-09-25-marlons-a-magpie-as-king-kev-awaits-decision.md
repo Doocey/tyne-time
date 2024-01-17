@@ -13,7 +13,7 @@ categories:
 
 ### Harewood - Enjoying his first training session
 
-It could only happen at Newcastle, where their local cult hero, leaves the club, not for the first time, and then, turn around and tries to sue the clubs owner. As yo probably guessed it's Kevin Keegan I'm talking about and his little affair with Mike Ashley. Today, the case closed are the tribunal resigned in order to make their decision. Whether Keegan will win his case is still unknown but  he must be pretty confident when he's brought the millionaire to the courts over 'an unfair dismissal'.
+It could only happen at Newcastle, where their local cult hero, leaves the club, not for the first time, and then, turn around and tries to sue the clubs owner. As yo probably guessed it's Kevin Keegan I'm talking about and his little affair with Mike Ashley. Today, the case closed are the tribunal resigned in order to make their decision. Whether Keegan will win his case is still unknown but he must be pretty confident when he's brought the millionaire to the courts over 'an unfair dismissal'.
 
 The club said :
 

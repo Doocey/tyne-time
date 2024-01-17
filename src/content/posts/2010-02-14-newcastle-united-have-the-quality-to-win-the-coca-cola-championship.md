@@ -11,7 +11,7 @@ categories:
 
 ![Newcastle United](https://i.telegraph.co.uk/telegraph/multimedia/archive/01470/kevin-nolan_1470069c.jpg "Newcastle - Have the ability to shrug off the competition in the league")
 
-Although we're not playing well of late and far from our best form, I know for a fact that Newcastle United can win this Coca Cola Championship. In what's been a pretty quiet day for the Toon, I've decided to voice my often accurate and professional opinion on Newcastle United's promotion hopes this season, and the many questions that are being thrown at us Magpies in the last  couple weeks or so 😀
+Although we're not playing well of late and far from our best form, I know for a fact that Newcastle United can win this Coca Cola Championship. In what's been a pretty quiet day for the Toon, I've decided to voice my often accurate and professional opinion on Newcastle United's promotion hopes this season, and the many questions that are being thrown at us Magpies in the last couple weeks or so 😀
 
 A lucky point against Swansea City yesterday for sure but a precious one all the same. To say we're slipping and losing our grasp on the Coca Cola Championship trophy is absolute nonsense. 1 loss away to Derby was our first in 15 and that alone is quite an honorable record.
 

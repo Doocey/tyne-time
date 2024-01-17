@@ -10,7 +10,7 @@ categories:
 
 ### McMahon - Does Profitable have the funds to back up their interest?
 
-After declaring their interest in Newcastle United Football Club Profitable are yet to make an official bid for the club and reports are suggesting that there is no funds to back up their interest. This is what Newcastle could do without, but we're still pretty confident  they'll make a bid for the club very soon. Newcastle need to be sold very quickly of else if could become a terrible terrible affair. We could go worse than Leeds, how could we let that happen? Steve McMahon, who is reportedly leading the line in his quest of NUFC is a former footballer and we knows he's serious about buying NUFC.
+After declaring their interest in Newcastle United Football Club Profitable are yet to make an official bid for the club and reports are suggesting that there is no funds to back up their interest. This is what Newcastle could do without, but we're still pretty confident they'll make a bid for the club very soon. Newcastle need to be sold very quickly of else if could become a terrible terrible affair. We could go worse than Leeds, how could we let that happen? Steve McMahon, who is reportedly leading the line in his quest of NUFC is a former footballer and we knows he's serious about buying NUFC.
 
 They said :
 

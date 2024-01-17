@@ -6,8 +6,8 @@ date: 2009-01-31T13:05:36+00:00
 url: /2009/01/31/derby-day-looms/
 categories:
   - Newcastle United News
-
 ---
+
 ![Derby - Decisive match](https://i.dailymail.co.uk/i/pix/2008/04_04/OwenCele_650x448.jpg)
 
 Here we are again, a day away from playing our biggest rivals. After a poor result last time round at the Stadium of Light the Black Cats got the better of us, but since then have slumped in form like ourselves. We lay 3 points behind Sunderland and how suiting it would be for us to take all three points in this game. played at St.James' Park this is our time to make a big step to saving our season. A win here would boost morale incredibly and we would go on to West Brom with some much needed confidence. Ashley has said he will attend the game. this is a risky move that could turn nasty if we don't get all 3 points.

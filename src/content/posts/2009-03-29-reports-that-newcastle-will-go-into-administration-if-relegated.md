@@ -6,8 +6,8 @@ date: 2009-03-29T14:48:02+00:00
 url: /2009/03/29/reports-that-newcastle-will-go-into-administration-if-relegated/
 categories:
   - Newcastle United News
-
 ---
+
 ![Ashley - Has saved NUFC from administration during Shepherds era](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2008/05/07/mort360.jpg)
 
 More news now that the crappy tabloid love to write, to try unsettle the Newcastle players and board again. it is reported that should Newcastle be relegated come May, then the mighty NUFC will go into administration and face severe trouble in maintaining the club. We shouldn't take much from this as more than likely it is more of the brown stuff but then again Newcastle fans will be reading it and starting to worry. As much as you dislike Mike Ashley some credit is due. Freddy Shepard, who nearly always did guarantee a big name signing every year nearly plunged Newcastle into an early administration.

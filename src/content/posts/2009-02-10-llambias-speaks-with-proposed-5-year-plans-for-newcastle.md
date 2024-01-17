@@ -6,13 +6,13 @@ date: 2009-02-10T17:12:40+00:00
 url: /2009/02/10/llambias-speaks-with-proposed-5-year-plans-for-newcastle/
 categories:
   - Newcastle United News
-
 ---
+
 ### Llambias - Resolving the many questions
 
 Derek Llambias finally spoke today with the Chronicle and came out with some interesting fact and plans for Newcastle. After reading this you may have changed or opinion have it might have strengthened. Some things he says make sense and other comments he makes are very enticing although we need something to back that up. Here is what he say regarding Mike's purchase of Newcastle at the start :
 
-_“Historically, with Sports Direct, Mike stayed under the radar for 20 years until he floated his company.</p>
+\_“Historically, with Sports Direct, Mike stayed under the radar for 20 years until he floated his company.</p>
 
 “Then all of a sudden people realised there was a £2.5billion company there.
 
@@ -20,7 +20,7 @@ _“Historically, with Sports Direct, Mike stayed under the radar for 20 years u
 
 “But we do realise owning Newcastle United is a totally different forum.“When Chris Mort was here he was very proactive with the Press.
 
-_“When I came on the board, Mike and I discussed it and we basically wanted to keep a lower profile.
+\_“When I came on the board, Mike and I discussed it and we basically wanted to keep a lower profile.
 
 “Then within no time at all KK happened.
 
@@ -56,7 +56,7 @@ _“When I came on the board, Mike and I discussed it and we basically wanted to
 
 **But the most interesting of all** :
 
-_“In five years’ time I would hope we would be challenging for everything.
+\_“In five years’ time I would hope we would be challenging for everything.
 
 “We hope to be like an Aston Villa.
 
@@ -68,7 +68,7 @@ _“In five years’ time I would hope we would be challenging for everything.
 
 “We’re knocking down walls and rebuilding.”
 
- _“We are trying to get away from dating so that we don’t have huge amounts of money going out.</p>
+\_“We are trying to get away from dating so that we don’t have huge amounts of money going out.</p>
 
 “We are trying to pay up front.
 
@@ -86,7 +86,7 @@ _“In five years’ time I would hope we would be challenging for everything.
 
 “We aren’t a selling club, we’re a buying club.
 
-“We are out there in the market._
+“We are out there in the market.\_
 
 Makes for interesting reading.
 

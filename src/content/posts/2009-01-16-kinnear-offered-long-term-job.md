@@ -6,8 +6,8 @@ date: 2009-01-16T17:41:09+00:00
 url: /2009/01/16/kinnear-offered-long-term-job/
 categories:
   - Newcastle United News
-
 ---
+
 ## Joe Kinnear - Stability finally here as job is offered to Kinnear?
 
 Maybe it's odd news to hear during the transfer window but at least it isn't any of the usual 'N'Zogbia wants out' or 'Sell before we buy' on the papers tomorrow. Oh no, its the story that Joe Kinnear has been offered the Newcastle job on a **full time basis**. This is good news to hear as it seems we might actually be in for stability at the club regarding managers. We've gone through so many managers in the last years and some of them very talented to say the least.

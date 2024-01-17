@@ -45,5 +45,5 @@ Also make sure to follow us on Twitter [@TyneTime][1] and give us a cheeky like 
 
 Comments welcome 🙂
 
- [1]: https://twitter.com/
- [2]: http://www.facebook.com/tynetime
+[1]: https://twitter.com/
+[2]: http://www.facebook.com/tynetime

@@ -13,7 +13,7 @@ categories:
 
 ### Dorrans - Lethal from the penalty spot today as Brom progress to the next round
 
-I think it's fair to say that it wasn't our best performance all season today at the Hawthorns, and when Jonas Olsson was again the first scorer you knew it wasn't going to be our day. I can't say I saw the match but updates on nufc.co.uk got me through the feisty affair. Pre-match I wasn't too concerned if were going to be knocked out or not but of course I wouldn't have minded a  victory away to one our promotion rivals. It didn't come, with a mix of penalties, dodgy refereeing decisions and some really good individual play, it was Roberto di Matteo's side who marched on.
+I think it's fair to say that it wasn't our best performance all season today at the Hawthorns, and when Jonas Olsson was again the first scorer you knew it wasn't going to be our day. I can't say I saw the match but updates on nufc.co.uk got me through the feisty affair. Pre-match I wasn't too concerned if were going to be knocked out or not but of course I wouldn't have minded a victory away to one our promotion rivals. It didn't come, with a mix of penalties, dodgy refereeing decisions and some really good individual play, it was Roberto di Matteo's side who marched on.
 
 The more important side of things came in our last encounter against West Brom & indeed in the closing stages of today's game. Steve Taylor & Shola Ameobi both suffering what could be bad injures.
 

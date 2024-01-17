@@ -11,7 +11,7 @@ categories:
 
 ### Taylor - Second goal in succession and long may our winning run continue
 
-Is it just me or is Ryan Taylor developing a habit of scoring goals of late, and in the dying minutes of games?! After Peter Lovenkrands fortuitous opener, Kevin Nolan's 12th of the season the sub came off the bench to score again, and a decent goal it was. Leon Best too played his part, again falling over and leaving it to the former Wigan Athletic man. Either way, it was a solid win  against Preston North End and although we didn't play to our potential, we're still racking upo the goals at St.James' Park, and that's always an encouraging sign.
+Is it just me or is Ryan Taylor developing a habit of scoring goals of late, and in the dying minutes of games?! After Peter Lovenkrands fortuitous opener, Kevin Nolan's 12th of the season the sub came off the bench to score again, and a decent goal it was. Leon Best too played his part, again falling over and leaving it to the former Wigan Athletic man. Either way, it was a solid win against Preston North End and although we didn't play to our potential, we're still racking upo the goals at St.James' Park, and that's always an encouraging sign.
 
 With Nottingham Forest also winning against our neighbours Middlesbrough, it sees them leapfrog West Bromich Albion for the time being and also sees us open a little gap at the top. If we're lucky, Bristol City might cause Roberto di Matteo's men a few problems in the near encounter.
 

@@ -12,7 +12,7 @@ categories:
 
 ### dos Santos - Would be a great signing for Chris Hughton & Newcastle United
 
-Watching the World Cup so far, I've mainly been impressed by two teams, and one of them was not England. Argentina and Mexico have both had a real go at the competition and it's unfortunate that the Mexicans had to meet Maradona's side in the first knock-out round of the competition. A very offside goal from Carlos Tevez knocked spirits in Javier Aguirre's camp and they  never recovered. I can only imagine what a real game it would have been should the goal have been ruled out, however, I could talk all day about goals that shouldn't have stood if you get my drift.
+Watching the World Cup so far, I've mainly been impressed by two teams, and one of them was not England. Argentina and Mexico have both had a real go at the competition and it's unfortunate that the Mexicans had to meet Maradona's side in the first knock-out round of the competition. A very offside goal from Carlos Tevez knocked spirits in Javier Aguirre's camp and they never recovered. I can only imagine what a real game it would have been should the goal have been ruled out, however, I could talk all day about goals that shouldn't have stood if you get my drift.
 
 Mexico were very good in the World Cup, drawing with the hosts on the first day of the tournament, and indeed beating France in emphatic style. Besides a very bright Carlos Salcido, a certain Giovani dos Santos has caught my eye. This is a guy who has been playing at Ipswich last season, Spurs the season before that and Barcelona before that again. However, he's been a real joy to watch at the World Cup in South Africa.
 

@@ -8,7 +8,7 @@ categories:
   - Andy Carroll
 ---
 
-Andy Carroll has been training in Watford ahead of the England U-21's must win fixture against Portugal in the European Qualifying Championship Qualifiers. Carroll who has been in pretty decent form for his local club Newcastle is supposedly being monitored by Fabio Capello for the England 2010 World Cup squad. These reports might seem just a little dubious and I'd  be very surprised if the Newcastle born striker was handed a shirt in the same squad as Wayne Rooney, Jermaine Defoe and even the likes of Darren Bent.
+Andy Carroll has been training in Watford ahead of the England U-21's must win fixture against Portugal in the European Qualifying Championship Qualifiers. Carroll who has been in pretty decent form for his local club Newcastle is supposedly being monitored by Fabio Capello for the England 2010 World Cup squad. These reports might seem just a little dubious and I'd be very surprised if the Newcastle born striker was handed a shirt in the same squad as Wayne Rooney, Jermaine Defoe and even the likes of Darren Bent.
 
 Saying that, I don't select the team and Fabio does, he might want a towering option with Carroll, providing that Peter Crouch doesn't cross his mind :D.
 

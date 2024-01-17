@@ -16,7 +16,7 @@ Jose Enrique, left back extraordinaire for a talented Newcastle squad, will most
 
 Never one to shy away from hullabaloo, the six-foot defender emphatically stated that Spain has a great shot at winning the World Cup, and is only one of eight teams in the world capable of the feat.
 
-La Furia Roja will certainly need to play at its peak in order to best the incredibly difficult field. Jose remains a realist in citing that there’s a good possibility victory won’t happen, but his confidence that it will has inspired  teammates.
+La Furia Roja will certainly need to play at its peak in order to best the incredibly difficult field. Jose remains a realist in citing that there’s a good possibility victory won’t happen, but his confidence that it will has inspired teammates.
 
 With inspired teammates comes an inspired country, and with an encouraged Spain motivated to claim football supremacy in this summer’s tournament, bookmakers and odds-jugglers are also feeling the inspiration.
 

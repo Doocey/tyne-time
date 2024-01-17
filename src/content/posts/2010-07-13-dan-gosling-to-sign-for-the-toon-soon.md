@@ -15,7 +15,7 @@ categories:
 
 #### Gosling - Newcastle await an Evertonian appeal about the players exit
 
-We feared the worst when we were told that very little, if no money would be spent on Tyneside this summer to boost the Coca Cola Championship winning squad. However, nearly a fortnight into the transfer window, we've one player already signed for a rumoured fee of £1.5 - 2m and another promising youngster by the name of Dan Gosling seemingly set to wear the Black  and White jersey of Newcastle United this season. So far so good you might say. Now don't get me wrong, we haven't officially completed the signing of Gosling yet but it's widely expected that he'll be confirmed in the next week or so, pending an appeal from Everton about Gosling leaving the club unlawfully.
+We feared the worst when we were told that very little, if no money would be spent on Tyneside this summer to boost the Coca Cola Championship winning squad. However, nearly a fortnight into the transfer window, we've one player already signed for a rumoured fee of £1.5 - 2m and another promising youngster by the name of Dan Gosling seemingly set to wear the Black and White jersey of Newcastle United this season. So far so good you might say. Now don't get me wrong, we haven't officially completed the signing of Gosling yet but it's widely expected that he'll be confirmed in the next week or so, pending an appeal from Everton about Gosling leaving the club unlawfully.
 
 It's believed that Gosling has held talks twice with Newcastle and the lure of some playing time sealed the midfielder's decision. West Ham, and a couple of other teams including Sunderland were also vying for his signature but it's strongly reported that he has indeed chosen Chris Hughton's side.
 

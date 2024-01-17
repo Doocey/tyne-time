@@ -6,8 +6,8 @@ date: 2009-01-17T22:08:03+00:00
 url: /2009/01/17/blackburn-remind-ashley-why-money-is-needed/
 categories:
   - Newcastle United News
-
 ---
+
 ## Ashley - Funds needed now as well in summer
 
 Blackburn Rovers were victorious today in Ewood Park, a 3-0 defeat may have seemed a one sided game but Toon fans watching the game may differ, I included. The first half alone was ours, we dominated and should've gone into the break at least one nil up. Butt had an opportunity as did Owen and Carroll (who have his braids in his hair removed :D) however they failed to capitalise. Duff robbed the Blackburn defence in the first half and squared t to Butt, only for the veteran to miss. When Blackburn came out in the second they won't a penalty just after the hour mark, the referee Rob Styles pointing to the spot after Edgar allegedly fouled Benni McCarthy, a little harsh it seemed and that penalty rocked the Magpies.

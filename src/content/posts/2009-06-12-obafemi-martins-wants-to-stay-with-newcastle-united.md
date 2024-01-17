@@ -10,7 +10,7 @@ categories:
 
 ### Martins - Doesn't want to be sold!
 
-What a great way to start the weekend! Obafemi martins, the little Nigerian who cost the club £10m and is a major fans favorite has declared, officially that he is looking to  stay with Newcastle United and lead the promotion challenge that will come in the following months. Speaking to Evening Chronicle he today confirmed that he doesn't want to be placed on the transfer market but understands if NUFC have no other choice but to place a for sale tag on the top of his head.
+What a great way to start the weekend! Obafemi martins, the little Nigerian who cost the club £10m and is a major fans favorite has declared, officially that he is looking to stay with Newcastle United and lead the promotion challenge that will come in the following months. Speaking to Evening Chronicle he today confirmed that he doesn't want to be placed on the transfer market but understands if NUFC have no other choice but to place a for sale tag on the top of his head.
 
 Martins said :
 

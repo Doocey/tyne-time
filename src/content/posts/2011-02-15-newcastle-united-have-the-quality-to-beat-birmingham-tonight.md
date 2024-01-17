@@ -14,7 +14,7 @@ categories:
 
 #### Tioté - Very important again tonight but needs to watch his discipline
 
-All the talk ahead of tonight's match between Birmingham City and Newcastle United is the about the upcoming battle between Nikola Žigic and our very own Mike Williamson. Žigic is 6'8 whilst Mike stands at a modest 6'4. There's little doubt that Birmingham will try pick out their big man on every occasion tonight and it will be up to us to stop him. However, last weeks last gasp goal from Žigic  against Stoke will have the guys confidence sky high, and he'll be fancying his chances of grabbing what will be his sixth goal for Birmingham City this season.
+All the talk ahead of tonight's match between Birmingham City and Newcastle United is the about the upcoming battle between Nikola Žigic and our very own Mike Williamson. Žigic is 6'8 whilst Mike stands at a modest 6'4. There's little doubt that Birmingham will try pick out their big man on every occasion tonight and it will be up to us to stop him. However, last weeks last gasp goal from Žigic against Stoke will have the guys confidence sky high, and he'll be fancying his chances of grabbing what will be his sixth goal for Birmingham City this season.
 
 Obviously Sebastian Larsson will line-up against the club he was strongly linked with a January move to, and he will be one of their most dangerous if you ask me. His ability from dead ball situations is really frightening. Most of Birmingham's goals this season, that I have saw at least, have been from set-pieces.
 

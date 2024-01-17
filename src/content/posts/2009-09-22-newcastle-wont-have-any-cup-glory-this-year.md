@@ -12,7 +12,7 @@ categories:
 
 ### Enrique - Being realistic about cup chances
 
-Jose Enrique, speaking today has rubbished Newcastle's chances of winning the Carling Cup this year, saying we simply 'don't have the legs for it'. He may well be right too you know, and is being realistic. Not many Toon fans are ever too confident when it comes to cups with Newcastle and the likelihood is, we'll be nowhere near the major stages of this competition when it comes  into it's prime. However, you just never know, a domestic cup would be cherished in Newcastle for some time but the league is our main objective.
+Jose Enrique, speaking today has rubbished Newcastle's chances of winning the Carling Cup this year, saying we simply 'don't have the legs for it'. He may well be right too you know, and is being realistic. Not many Toon fans are ever too confident when it comes to cups with Newcastle and the likelihood is, we'll be nowhere near the major stages of this competition when it comes into it's prime. However, you just never know, a domestic cup would be cherished in Newcastle for some time but the league is our main objective.
 
 Speaking today, Enrique said :
 

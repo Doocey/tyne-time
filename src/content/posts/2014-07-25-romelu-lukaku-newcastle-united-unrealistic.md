@@ -28,7 +28,7 @@ Now with Atletico out of the race and Chelsea seemingly wanting rid, it leaves E
 
 **Are Newcastle in with a shout?**
 
-Alan Pardew has often recalled his great relationship with Chelsea manager Jose Mourinho, and the positive words have flown in both directions. This could play a big part in any move _if_ Newcastle are really serious about bringing a marquee forward to St. James' Park.
+Alan Pardew has often recalled his great relationship with Chelsea manager Jose Mourinho, and the positive words have flown in both directions. This could play a big part in any move *if* Newcastle are really serious about bringing a marquee forward to St. James' Park.
 
 Despite exaggerated fees in the window nowadays, £18m is rumoured to be what Chelsea will sell for, plus a decent sell-on clause I would imagine.
 

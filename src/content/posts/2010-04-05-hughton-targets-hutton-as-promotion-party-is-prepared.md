@@ -7,9 +7,10 @@ url: /2010/04/05/hughton-targets-hutton-as-promotion-party-is-prepared/
 categories:
   - Newcastle United News
 ---
+
 ### Hutton - Supposedly has held talks with Newcastle already
 
-Before I start about the Hutton story, need I bring up the whole thing about West Brom scoring late since the start of the season? Another goal, in the 96th minute, denying Watford a huge victory. What's more, I've lost count of how many times they've scored in the last five minutes, it's certainly double figures. Anyway, the latest news surrounding Newcastle besides the big  matter of a Premier League spot being officially secured tonight, is of our reported interest in Tottenham's Alan Hutton.
+Before I start about the Hutton story, need I bring up the whole thing about West Brom scoring late since the start of the season? Another goal, in the 96th minute, denying Watford a huge victory. What's more, I've lost count of how many times they've scored in the last five minutes, it's certainly double figures. Anyway, the latest news surrounding Newcastle besides the big matter of a Premier League spot being officially secured tonight, is of our reported interest in Tottenham's Alan Hutton.
 
 Speaking after Spurs loss to Sunderland, when on the matter of Hutton, Redknapp commented :
 

@@ -13,7 +13,7 @@ categories:
 
 #### Douglas - In high demand but Newcastle United lead the race for the Brazilian
 
-During Sam Allardyce's tenure at Newcastle United, he signed Alan Smith, Mark Viduka, Claudio Cacapa, and Joey Barton name a few. To say those signings turned out to be quite disappointing acquisitions - Jose Enrique aside - would be putting it very mildly indeed. Now however, Allardyce seems to be taking his targets from Newcastle United's scrapbook. A couple of days ago, West Ham United announced the signing of Modibo Maiga - a player that was hours away from signing for NUFC, only for our medical team to pull the plug on the move after  concerns of a thigh injury. Big Sam saw no risks, and signed him up long-term with the hope the Malian can fire them to safety.
+During Sam Allardyce's tenure at Newcastle United, he signed Alan Smith, Mark Viduka, Claudio Cacapa, and Joey Barton name a few. To say those signings turned out to be quite disappointing acquisitions - Jose Enrique aside - would be putting it very mildly indeed. Now however, Allardyce seems to be taking his targets from Newcastle United's scrapbook. A couple of days ago, West Ham United announced the signing of Modibo Maiga - a player that was hours away from signing for NUFC, only for our medical team to pull the plug on the move after concerns of a thigh injury. Big Sam saw no risks, and signed him up long-term with the hope the Malian can fire them to safety.
 
 In the last week - West Ham have also shown serious interest in brining Andy Carroll to Upton Park on loan with the view to a permanent £15m deal in the summer. Andy didn't fancy a move to London though and any potential bid dwindled.
 

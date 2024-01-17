@@ -17,7 +17,7 @@ Being a Newcastle United supporter has never been easy, even during some of the 
 
 It all sounds good, and there's little doubt that this wonderful football club has faced a worse landscape in years gone by. One only needs to refer to the latter days of Alan Pardew's tenure, and of course the extremely short spell of Steve McClaren - things were quite frankly, depressing. It all worked nicely for Mike Ashley for a while, though. He had a puppet in charge, and before last season's relegation, the club merely existed - collecting Premier League revenues with minimal expense. It had had become a self sufficient advertising machine, that is, until the dreadful appointment of McClaren, and an assembly of players that did not value the crest on their jersey.
 
-* * *
+---
 
 Fast-forward to early 2017 and Rafa Benitez has taken charge of Newcastle United. It was, quite frankly, a staggering appointment that marked both a change of regime, and keyhole view into the panic that was setting in among the hierarchy. Another relegation would be disastrous. It was.
 

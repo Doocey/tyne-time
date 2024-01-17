@@ -6,9 +6,9 @@ date: 2009-01-29T18:54:52+00:00
 url: /2009/01/29/fee-agreed-for-kevin-nolan/
 categories:
   - Newcastle United News
-
 ---
-##  Nolan - Toon bound it seems
+
+## Nolan - Toon bound it seems
 
 News coming from the North East is suggesting we've agreed a fee with Bolton for Kevin Nolan, the midfielder that ran the Bolton show for many years up until now. This is good news on some fronts however whether Nolan is willing to come is another matter. The main question is though, how much it is? Is Kevin Nolan past his best? We certainly hope not if he joins us.
 

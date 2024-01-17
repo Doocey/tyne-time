@@ -13,7 +13,7 @@ categories:
 
 #### de Jong - £8m bid submitted for the Dutchman to replace Ba?
 
-In the last few minutes,SkySports have reported on a bit of Newcastle United transfer news. There are claims that Newcastle United have submitted an official bid in the region of £8m for FC Twente's Luuk de Jong - signalling that Demba Ba could be very close to departing St.James' Park. Either that, or NUFC are actually closing in on a deal for someone we don't know about, and the de Jong rumours are simply a smokescreen for the deal. However, I've a feeling that we really are  looking to lure the Dutchman to Tyneside and indeed our latest link with him makes it the umpteenth time both the club and the forwards name have been bandied about.
+In the last few minutes,SkySports have reported on a bit of Newcastle United transfer news. There are claims that Newcastle United have submitted an official bid in the region of £8m for FC Twente's Luuk de Jong - signalling that Demba Ba could be very close to departing St.James' Park. Either that, or NUFC are actually closing in on a deal for someone we don't know about, and the de Jong rumours are simply a smokescreen for the deal. However, I've a feeling that we really are looking to lure the Dutchman to Tyneside and indeed our latest link with him makes it the umpteenth time both the club and the forwards name have been bandied about.
 
 £8m comes to about €10m and I'm assuming that this wouldn't be enough to persuade the Dutch outfit to let their star man hold talks with Alan Pardew and co. Of course as mentioned before, we wouldn't be bidding for the striker unless someone else is leaving. That person of course, is expected to be syrup-loving, #19 Demba Ba.
 

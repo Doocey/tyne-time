@@ -1,5 +1,5 @@
 ---
-title: 'Newcastle United vs. Everton: How will we line-up?'
+title: "Newcastle United vs. Everton: How will we line-up?"
 author: Kevin Doocey
 type: post
 date: 2013-01-01T22:33:22+00:00
@@ -13,7 +13,7 @@ categories:
 
 First and foremost, a very Happy New Year to all of you, let's hope it proves a fruitful one.
 
-A pretty ridiculous Christmas period has come to an end, and the cold hard truth is that Newcastle United need to start 2013 with a handful of wins to guarantee a respectable Premier League finish. Our trip to Manchester reminded me of something in 2002, when NUFC were in touching distance of Manchester United and an actual threat to Alex Ferguson's side. The game had everything, and goals aplenty. Needless to say, United scraped a win in the dying seconds courtesy of the poaching Mexican, Hernandez. Even though we lost the game in the dying moments, it was a sterling effort from the lads. On another day, we would have won that game - Sylvain & Sammy's efforts both hitting the woodwork at  a stage when another goal for us would have most certainly taken the wind out of United's sails.
+A pretty ridiculous Christmas period has come to an end, and the cold hard truth is that Newcastle United need to start 2013 with a handful of wins to guarantee a respectable Premier League finish. Our trip to Manchester reminded me of something in 2002, when NUFC were in touching distance of Manchester United and an actual threat to Alex Ferguson's side. The game had everything, and goals aplenty. Needless to say, United scraped a win in the dying seconds courtesy of the poaching Mexican, Hernandez. Even though we lost the game in the dying moments, it was a sterling effort from the lads. On another day, we would have won that game - Sylvain & Sammy's efforts both hitting the woodwork at a stage when another goal for us would have most certainly taken the wind out of United's sails.
 
 Our trip to the capital resulted in the same story - we controlled the game, scored a bucket-load of goals but still continue to disguise our back four as a sieve. 7 goals conceded is a tad unacceptable, but it was never a four goal hammering, far from it.
 
@@ -42,7 +42,7 @@ Obviously we are without Simpson due to his broken toe, so Perch is likely to fi
 The only worry I have is our defending from set-pieces. Our defenders need to be on their game to stop any potential threat of Fellaini, Jelavic or Anichebe. If we can keep those guys quiet then we've a great chance of 3 points. Baines down the left will need tight marking as well, but being honest, I'd be more comfortable with Perch marking him then Danny Simpson.
 
 All in all, I think we will win. Perhaps a few goals from Demba before his seemingly imminent departure?
-  
+
 Either way, get Sylvain Marveaux on the ball and let him do the rest.
 
 **Prediction:** Newcastle United 2-0 Everton
@@ -51,5 +51,5 @@ Also, if you're not following [@TyneTime][1] on Twitter, do so. Feel free to fol
 
 Comments welcome as always, what's your predictions?
 
- [1]: https://twitter.com/tynetime
- [2]: https://twitter.com/kevindoocey
+[1]: https://twitter.com/tynetime
+[2]: https://twitter.com/kevindoocey

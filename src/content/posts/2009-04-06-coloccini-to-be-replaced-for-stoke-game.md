@@ -14,7 +14,7 @@ Well it seems that Shearer isn't afraid to change things around and it seems tha
 
 Shearer said today :
 
-_“I enjoyed the day but I didn’t enjoy coming away with nothing and then walking into the dressing-room afterwards. But that is a part of the job I was well aware of,”
+\_“I enjoyed the day but I didn’t enjoy coming away with nothing and then walking into the dressing-room afterwards. But that is a part of the job I was well aware of,”
 
 “It was a tough start, but I have tried to drum the positives rather than the negatives into the players. The confidence is not high. You can see that in the way we conceded the first goal and we started giving them more chances after that.”
 
@@ -24,7 +24,7 @@ _“I enjoyed the day but I didn’t enjoy coming away with nothing and then wal
 
 “I will try a bit of everything to raise their confidence. I am sure they have had everything tried, with the tellings off and the arms around the shoulder, but a different voice and different personalities might just work in a different way,”
 
-“When we have conceded goals this season, we have tended to go on and concede more and lose games. That mentality has to change. It is a great arena to play in with 52,000 demanding fans, but it is an arena which demands success.”_
+“When we have conceded goals this season, we have tended to go on and concede more and lose games. That mentality has to change. It is a great arena to play in with 52,000 demanding fans, but it is an arena which demands success.”\_
 
 Well Stoke is a tough one, we need to win but that's said about every game this season right?
 

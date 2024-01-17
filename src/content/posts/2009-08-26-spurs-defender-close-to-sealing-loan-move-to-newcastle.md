@@ -12,7 +12,7 @@ categories:
 
 ### Bale - Would be a good addition
 
-It appears, well according to the BBC, that Gareth Bale is very close to joining Newcastle United on loan from Tottenham Hotspur. The news breaks after Newcastle's emphatic win against Huddersfield Town, well maybe not emphatic, but it was a memorable sight. When is the last time we've  came from 1-3 down and still win?
+It appears, well according to the BBC, that Gareth Bale is very close to joining Newcastle United on loan from Tottenham Hotspur. The news breaks after Newcastle's emphatic win against Huddersfield Town, well maybe not emphatic, but it was a memorable sight. When is the last time we've came from 1-3 down and still win?
 
 Anyway, there's sure to be more details following this outburst of news, but it would be rather warming to get Bale in, as I personally, rate him very highly, even though he hasn't overly impressed at Tottenham.
 

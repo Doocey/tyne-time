@@ -14,7 +14,7 @@ categories:
 
 #### Coloccini - Made a promise to Newcastle United fans a couple years ago
 
-Just over two years ago in an interview with The Northern Echo; Fabricio Coloccini promised Newcastle United fans something quite special if Newcastle United were to play Champions League football some stage in the future. In the build up to our away game against Plymouth Argyle - where we clinched the Championship title - Coloccini made the pledge that he would shave his head if Newcastle United managed to secure a top 4 place in the EPL anytime soon. Both Colo and  I'm sure most fans including myself, laughed at the possibility, both of Fab actually lining out without his famous curls, and the day we might see NUFC among Europe's elite. Remarkably, that day is in sight - and should we win the remaining four games in this campaign, we'll be guaranteed Champions League football.
+Just over two years ago in an interview with The Northern Echo; Fabricio Coloccini promised Newcastle United fans something quite special if Newcastle United were to play Champions League football some stage in the future. In the build up to our away game against Plymouth Argyle - where we clinched the Championship title - Coloccini made the pledge that he would shave his head if Newcastle United managed to secure a top 4 place in the EPL anytime soon. Both Colo and I'm sure most fans including myself, laughed at the possibility, both of Fab actually lining out without his famous curls, and the day we might see NUFC among Europe's elite. Remarkably, that day is in sight - and should we win the remaining four games in this campaign, we'll be guaranteed Champions League football.
 
 _Amazing_.
 

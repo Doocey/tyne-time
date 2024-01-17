@@ -11,7 +11,7 @@ categories:
 
 ![Joey Barton](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2008/10/22/JoeyBarton460.jpg)
 
-Swollen eyes, burst lips, broken teeth and a jail term all are familiar terms associated with Joey Barton. However, the man who served time in prison for beating the daylights out of a youngster in Liverpool a while back, has today spoke out against modern day footballers who are living the dream so to speak. Speaking, he said that most footballers are 'knobs' and think that  their extreme wealth will continue forever. We all can admit that players are certainly over-paid and no one, more than Joey Barton & his £50,000 a week wages.
+Swollen eyes, burst lips, broken teeth and a jail term all are familiar terms associated with Joey Barton. However, the man who served time in prison for beating the daylights out of a youngster in Liverpool a while back, has today spoke out against modern day footballers who are living the dream so to speak. Speaking, he said that most footballers are 'knobs' and think that their extreme wealth will continue forever. We all can admit that players are certainly over-paid and no one, more than Joey Barton & his £50,000 a week wages.
 
 Speaking, he said :
 
@@ -19,7 +19,7 @@ Speaking, he said :
 
 You can certainly tick Joey Barton off on this list as he's been the biggest waste of money for Newcastle in the last two years. Signing for £5.8m from Manchester City, by the infamous Sam Allardyce, it went from bad to worse regards Joey's Newcastle United career.
 
-Now Barton speaks out against modern footballers and we do think that he's admitting to the same offenses as a footballer in the last two years.                      
+Now Barton speaks out against modern footballers and we do think that he's admitting to the same offenses as a footballer in the last two years.
 
 He continued :
 

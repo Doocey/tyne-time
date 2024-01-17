@@ -1,10 +1,10 @@
 ---
 title: Sammy Ameobi beginning to take his chance on Tyneside
-description: 'Sammy Ameobi came off the bench to score within a stunning seven seconds of the restart, prompting the question - has the talented winger finally arrived?'
+description: "Sammy Ameobi came off the bench to score within a stunning seven seconds of the restart, prompting the question - has the talented winger finally arrived?"
 author: Kevin Doocey
 type: post
 date: 2014-10-27T16:00:00+00:00
-excerpt: 'When Newcastle United scampered down the tunnel after a ridiculously poor first half showing against Tottenham Hotspur, Toon fans began to ask the question - what kind of gameplan did NUFC really..'
+excerpt: "When Newcastle United scampered down the tunnel after a ridiculously poor first half showing against Tottenham Hotspur, Toon fans began to ask the question - what kind of gameplan did NUFC really.."
 url: /2014/10/27/sammy-ameobi-beginning-take-chance-tyneside/
 categories:
   - Newcastle United News
@@ -16,7 +16,7 @@ When Newcastle United scampered down the tunnel after a ridiculously poor first 
 
 The arrival of Sammy Ameobi and Rémy Cabella changed the game. They both added a dynamic to our forward line that didn't exist in the first half. Just 7 seconds into the second period, Jack Colback pulled off the pass of the season so far from inside his own half to set up Ameobi for NUFC's equaliser.
 
-The lanky winger took it in his strike before sending a bullet past Hugo Lloris into the bottom corner - a fantastic finish, and a response that had Spurs reeling from the  get-go.
+The lanky winger took it in his strike before sending a bullet past Hugo Lloris into the bottom corner - a fantastic finish, and a response that had Spurs reeling from the get-go.
 
 **Spanish Starlet**
 

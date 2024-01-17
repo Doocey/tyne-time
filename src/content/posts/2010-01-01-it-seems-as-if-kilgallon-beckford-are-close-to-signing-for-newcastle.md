@@ -1,5 +1,5 @@
 ---
-title: 'It seems as if Kilgallon & Beckford are close to signing for Newcastle'
+title: "It seems as if Kilgallon & Beckford are close to signing for Newcastle"
 author: Kevin Doocey
 type: post
 date: 2010-01-01T17:36:23+00:00
@@ -12,7 +12,7 @@ categories:
 
 ### Targets - Hughton is confident they'll arrive
 
-According to surfacing reports and the many of them, Jermaine Beckford and Matthew Kilgallon will be signing for Newcastle United in the January transfer window. Both 'The Killer' and Beckford have been lined with possible moves to Newcastle, since the start of 2009 but no move materialized for either of them. Kilgallon, as well as Beckford are in the final months of their  respective contracts and Chris Hughton is hoping to get a bargain on both of them. However, Newcastle's don't have it all to themselves, it's also being reported that numerous other Premier League clubs are monitoring the pairs situations.
+According to surfacing reports and the many of them, Jermaine Beckford and Matthew Kilgallon will be signing for Newcastle United in the January transfer window. Both 'The Killer' and Beckford have been lined with possible moves to Newcastle, since the start of 2009 but no move materialized for either of them. Kilgallon, as well as Beckford are in the final months of their respective contracts and Chris Hughton is hoping to get a bargain on both of them. However, Newcastle's don't have it all to themselves, it's also being reported that numerous other Premier League clubs are monitoring the pairs situations.
 
 Speaking today, Hughton said :
 

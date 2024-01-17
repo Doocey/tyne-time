@@ -11,7 +11,7 @@ categories:
 
 ### Coloccini - Will stay if his wages remain the same - no thank you
 
-Fabricio Coloccini said today  that he would consider staying at Newcastle United during our first Coca Cola Championship campaign, but only if he retains his £50,000k + a week. Speaking about a proposed transfer away from the club he said it was basically impossible to leave at the time being because of Newcastle's constant uncertainty and the mess we're in right now. Obviously Coloccini would be looking to leave to a higher standard of football but we'd be looking to recoup at least £7m of the £10.3 we spent on him, is some club is generous enough to offer that fee.
+Fabricio Coloccini said today that he would consider staying at Newcastle United during our first Coca Cola Championship campaign, but only if he retains his £50,000k + a week. Speaking about a proposed transfer away from the club he said it was basically impossible to leave at the time being because of Newcastle's constant uncertainty and the mess we're in right now. Obviously Coloccini would be looking to leave to a higher standard of football but we'd be looking to recoup at least £7m of the £10.3 we spent on him, is some club is generous enough to offer that fee.
 
 Coloccini said :
 

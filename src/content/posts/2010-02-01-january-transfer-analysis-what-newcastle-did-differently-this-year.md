@@ -12,9 +12,9 @@ categories:
 
 ### Wayne Routledge was a good signing for Newcastle United
 
-* Routledge - Arrived on Tyneside for £1m in a successful transfer period
+- Routledge - Arrived on Tyneside for £1m in a successful transfer period
 
-6 signings, no last minute stuff, and the majority for less than £1m. Mike Williamson, Danny Simpson, Wayne Routledge, Fitz Hall, Patrick van Aanholt and Leon Best all arrived at Newcastle in this January transfer window. 4 permanent signings, two loan deals. With Jose Enrique injured, Patrick van Aanholt has shown very promising signs in the Black and White  shirt, and it seems as if he's a very similar player to Jose, which is always a good find. Danny Simpson will fit in at RB, and will sturdy up competition with Ryan Taylor who arrived this time last year and hasn't shown the best of form just yet.
+6 signings, no last minute stuff, and the majority for less than £1m. Mike Williamson, Danny Simpson, Wayne Routledge, Fitz Hall, Patrick van Aanholt and Leon Best all arrived at Newcastle in this January transfer window. 4 permanent signings, two loan deals. With Jose Enrique injured, Patrick van Aanholt has shown very promising signs in the Black and White shirt, and it seems as if he's a very similar player to Jose, which is always a good find. Danny Simpson will fit in at RB, and will sturdy up competition with Ryan Taylor who arrived this time last year and hasn't shown the best of form just yet.
 
 You'll probably ask why we didn't get Victor Moses. Apparently, we wouldn't match the asking price of Crystal Palace which was £2.5m. A 'snip' as described by Eagles boss Warnock and how right he was. If the rumours are true that £500k was the difference between us landing one of the most highly rated youngsters in England and not, then Chris Hughton might regret it for the rest of his life, although it might have been Mike Ashley's restraints.
 

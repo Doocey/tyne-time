@@ -11,7 +11,7 @@ categories:
 
 ![Kamil Zayatte & Hatem Ben Arfa are being linked with the Toon](https://static.guim.co.uk/sys-images/Football/Clubs/Club%20Home/2009/2/14/1234627442399/Kamil-Zayatte-Sheffield-U-001.jpg "Kamil Zayatte")
 
-At this stage, no one really takes too much heed or notice of Marseille president Jean-Claude Dassier and his constant statements to the French media, however we could well be nearing the end of the the whole Ben Arfa saga. Today the Frenchman (Dassier) claimed that a deal had been agreed between both parties and Ben Arfa could well be heading to St.James' Park. In fact,  he has already travelled to Newcastle by himself, however to no avail as he was recalled before any talks with Chris Hughton and co. could take place.
+At this stage, no one really takes too much heed or notice of Marseille president Jean-Claude Dassier and his constant statements to the French media, however we could well be nearing the end of the the whole Ben Arfa saga. Today the Frenchman (Dassier) claimed that a deal had been agreed between both parties and Ben Arfa could well be heading to St.James' Park. In fact, he has already travelled to Newcastle by himself, however to no avail as he was recalled before any talks with Chris Hughton and co. could take place.
 
 The latest news from the French camp indicate that Werder Bremen have failed to make their feelings known on the situation and that Newcastle United have offered an acceptable deal to the Marseille hierarchy. This is includes a permanent signing option, after Hatem has played 25 games in the a Toon shirt.
 

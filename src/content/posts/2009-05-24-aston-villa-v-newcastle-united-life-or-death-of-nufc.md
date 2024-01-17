@@ -10,7 +10,7 @@ categories:
 
 ### Martins - We wouldn't mind a couple of goals from him today
 
-We wished it hadn't come to this stage, relying on the last day to keep us up. Relying on Manchester United to do us a favour and hoping to God that we manage to hit the net in Villa Park the same amount times if not more than the hosts themselves. 4 managers, a despondent owner and players that have more money than talent it seems. Although we've had some  memorable moments this season like the draw at Old Trafford, draw at Stamford Bridge and especially the debut season of the fantastic Sebastien Bassong. Surely if we do go down today then he'll be off to bigger club? All nerves will be settled today, all fears, all notions. We're either staying up or going down when the ref blows for the final whistle. Let's hope we're happy and have managed to save this great club that is Newcastle United.
+We wished it hadn't come to this stage, relying on the last day to keep us up. Relying on Manchester United to do us a favour and hoping to God that we manage to hit the net in Villa Park the same amount times if not more than the hosts themselves. 4 managers, a despondent owner and players that have more money than talent it seems. Although we've had some memorable moments this season like the draw at Old Trafford, draw at Stamford Bridge and especially the debut season of the fantastic Sebastien Bassong. Surely if we do go down today then he'll be off to bigger club? All nerves will be settled today, all fears, all notions. We're either staying up or going down when the ref blows for the final whistle. Let's hope we're happy and have managed to save this great club that is Newcastle United.
 
 My expected starting line up :
 

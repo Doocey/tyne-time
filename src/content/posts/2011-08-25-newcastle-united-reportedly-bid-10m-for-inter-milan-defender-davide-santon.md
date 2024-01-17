@@ -14,7 +14,7 @@ categories:
 
 #### Santon - Would be a real statement of intent from NUFC if they pulled it off
 
-There are emerging reports suggesting that Newcastle United are in advanced talks with Inter Milan's Davide Santon over a move to St.James' Park. I think most people will know Santon and also be aware of the talent he is. He was very much a wonderkid in the making a couple of years ago but for one reason or another - the Italian side may be willing to let the 20 year-old depart the San Siro. Deals for  Erik Pieters, Aly Cissokho and even Wayne Bridge have been mooted over the last couple of weeks with the Dutchman looking increasingly likely to pull on the Black and White of Newcastle United this season if NUFC can sort out an appropriate fee with PSV.
+There are emerging reports suggesting that Newcastle United are in advanced talks with Inter Milan's Davide Santon over a move to St.James' Park. I think most people will know Santon and also be aware of the talent he is. He was very much a wonderkid in the making a couple of years ago but for one reason or another - the Italian side may be willing to let the 20 year-old depart the San Siro. Deals for Erik Pieters, Aly Cissokho and even Wayne Bridge have been mooted over the last couple of weeks with the Dutchman looking increasingly likely to pull on the Black and White of Newcastle United this season if NUFC can sort out an appropriate fee with PSV.
 
 As we know; Santon is a full-back and can play either side if need be. He's quite fast and with some coaching and tutoring he could be a right talent to behold in the Premier League - but that's just my opinion.
 

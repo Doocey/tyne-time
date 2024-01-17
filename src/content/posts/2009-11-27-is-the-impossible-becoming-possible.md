@@ -10,7 +10,7 @@ categories:
 
 ### Ashley - Beginning to take some responsibility?
 
-I know it might be a tough question to ask and one that will have a common answer but it's worth taking a look at this issue all the same. Although we haven't heard much about, from or to him of late, it seems as if Mike Ashley has settled down just a little bit. Ashley who took us off the market for a second time earlier this season because he failed to sell, is slowly but surely  eeking a possible title of a football club owner. Saying that I don't really think that he's anywhere near a the perfect owner but he has improved and at least, is trying somewhat.
+I know it might be a tough question to ask and one that will have a common answer but it's worth taking a look at this issue all the same. Although we haven't heard much about, from or to him of late, it seems as if Mike Ashley has settled down just a little bit. Ashley who took us off the market for a second time earlier this season because he failed to sell, is slowly but surely eeking a possible title of a football club owner. Saying that I don't really think that he's anywhere near a the perfect owner but he has improved and at least, is trying somewhat.
 
 Now don't get the wrong message here, Ashley has ruined the club no doubt, but of late, he seems to be making a effort to get the club where it should be, financially and morally.
 

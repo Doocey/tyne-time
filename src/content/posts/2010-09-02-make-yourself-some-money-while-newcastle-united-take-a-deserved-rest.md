@@ -14,7 +14,7 @@ categories:
 
 #### Carroll - Misses out on the Portuguese encounter tomorrow due to injury
 
-We're all feeling the pinch - I know it myself. However, it's a proven study that a lot of people are indeed adding Gambling to their list of growing hobbies and it is often providing some much needed extra cash. The stereotypical view of a bookmaker is someone who takes all your money and can be arrogant in the process. Well, that's not the case, and certainly not the case with  online betting. We know that betting isn't for everyone but we also know that the Geordie population are one of the most eager gamblers on the land.
+We're all feeling the pinch - I know it myself. However, it's a proven study that a lot of people are indeed adding Gambling to their list of growing hobbies and it is often providing some much needed extra cash. The stereotypical view of a bookmaker is someone who takes all your money and can be arrogant in the process. Well, that's not the case, and certainly not the case with online betting. We know that betting isn't for everyone but we also know that the Geordie population are one of the most eager gamblers on the land.
 
 With the International break here and a whole host of games taking place, there's real opportunity to use your footballing knowledge to make some cash, while maintaining interest in the game at the same time. Our good friends at bettingexpert always have the best deals on offer regards bookmakers, and their promotion on Betway is very tempting indeed. A £25 free bet when you place £25 on a selection. So say you like the look of England, fancy a £25 punt on them? Returns a nice £32, and the free twenty-five pound bet to top things off. And to be honest, England should really win, two or three nil.
 
@@ -26,4 +26,4 @@ Anyway, if you're more of a gamer or indeed a casino type person, then there's a
 
 Finally, if gambling isn't your game, then don't risk anything that you can't afford to lose. Visit [Gamble Aware][1] if you're considering gambling, the risks, the consequences or indeed if you need any assistance.
 
- [1]: http://www.gambleaware.co.uk/
+[1]: http://www.gambleaware.co.uk/

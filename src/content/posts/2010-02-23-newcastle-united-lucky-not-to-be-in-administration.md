@@ -12,7 +12,7 @@ categories:
 
 ### Mike - Love him or loath him he's kept NUFC in a financially stable condition
 
-You only have to look at Portsmouth FC to see what the economic recession is doing to football. Stoke City's 1-2 win against Avram Grant's side was rumoured to have been the last ever game played in Fratton Park, however whether this is true or not, I really don't know. Either way, Pompey are in a serious financial mess at the minute and the signs for the future are not good at all.  With a winding up order chasing them around for the last month, whether the final straw in the 2008 FA Cup winners, has been well and truly pulled we'll see in a matter of days.
+You only have to look at Portsmouth FC to see what the economic recession is doing to football. Stoke City's 1-2 win against Avram Grant's side was rumoured to have been the last ever game played in Fratton Park, however whether this is true or not, I really don't know. Either way, Pompey are in a serious financial mess at the minute and the signs for the future are not good at all. With a winding up order chasing them around for the last month, whether the final straw in the 2008 FA Cup winners, has been well and truly pulled we'll see in a matter of days.
 
 We can't feel guilty about this as Magpies though. After all, we tried to help them, dishing out £1m for Mike Williamson. That however, is only a drop in the ocean of the funds needed to keep this club above board.
 

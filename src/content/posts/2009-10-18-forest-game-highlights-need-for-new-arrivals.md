@@ -11,7 +11,7 @@ categories:
 
 ### Taylor - Out of action for a considerable amount of time
 
-After yesterdays defeat to a rejuvenated Nottingham Forest side, we were shown yet again, that there is a massive need for new arrivals at St.James' Park. The latest reports are, that Steven Taylor could be out of action for up to 4-6 weeks. As you probably know by now, Shola Ameobi is also injured and won't be returning till early Christmas. With Mike Ashley likely to stay  on as owner, you really do wonder if he'll loosen his purse strings and give Chris some cash to spend, because we already know that he's willing to give Hughton the job after today's interview.
+After yesterdays defeat to a rejuvenated Nottingham Forest side, we were shown yet again, that there is a massive need for new arrivals at St.James' Park. The latest reports are, that Steven Taylor could be out of action for up to 4-6 weeks. As you probably know by now, Shola Ameobi is also injured and won't be returning till early Christmas. With Mike Ashley likely to stay on as owner, you really do wonder if he'll loosen his purse strings and give Chris some cash to spend, because we already know that he's willing to give Hughton the job after today's interview.
 
 We really do need about four new players minimum. The likes of Danny Simpson and Marlon Harewood have been good acquisitions but we need more. A new centre-half, midfielder, winger and a striker would be preferable but who is on offer?
 

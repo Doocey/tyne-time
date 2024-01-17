@@ -10,7 +10,7 @@ categories:
 
 ### Enrique - Flattered by Madrid interest
 
-Speaking today Jose Enrique said he was flattered by interest shown in him by Atletico Madrid and indeed other clubs across Europe. Enrique who had a dodgy start to his Newcastle career has since shown in stages, why he cost £6.25m but still, it seems we got a little  ripped off again. Big Sam Allardyce bought him when in charge but Keegan and Shearer seemed to get the best out of him. Enrique did say, if there wasn't any teams interested in him, he'd stay at newcastle and play out the remaining years on his contract but it was a 'come and get me' call more than commitment.
+Speaking today Jose Enrique said he was flattered by interest shown in him by Atletico Madrid and indeed other clubs across Europe. Enrique who had a dodgy start to his Newcastle career has since shown in stages, why he cost £6.25m but still, it seems we got a little ripped off again. Big Sam Allardyce bought him when in charge but Keegan and Shearer seemed to get the best out of him. Enrique did say, if there wasn't any teams interested in him, he'd stay at newcastle and play out the remaining years on his contract but it was a 'come and get me' call more than commitment.
 
 Enrique said :
 

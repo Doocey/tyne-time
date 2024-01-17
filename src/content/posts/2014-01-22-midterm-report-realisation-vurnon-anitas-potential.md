@@ -1,5 +1,5 @@
 ---
-title: 'Midterm Report: The realisation of Vurnon Anita’s potential'
+title: "Midterm Report: The realisation of Vurnon Anita’s potential"
 author: Kevin Doocey
 type: post
 date: 2014-01-22T19:30:27+00:00
@@ -12,7 +12,7 @@ categories:
 
 ![Vurnon Anita in action for Newcastle United against Fulham in the Premier League](https://www.tynetime.com/wp-content/uploads/2014/01/Vurnon-Anita-Newcastle-United-Premier-League.jpg "Anita - Is becoming an integral part of the Newcastle United team this seasonv")
 
-As many of you will know and are probably tired of me pointing out (!) I am a big fan of <[Vurnon Anita](https://www.tynetime.com/tag/vurnon-anita/ "Vurnon Anita") and his style of play. Many Newcastle fans were quick to play down his potential when he arrived from Ajax in 2012 for £7m, but from the few performances he put in it was clear - to me at least - that this guy is a technically astute player. I remember the day we landed him; Ajax manager Frank de Boer lamented at losing on their top prospects, a testament to the true potential of the little man. As the Ajax philosophy goes, the club tries to produce at least 3 players from their academy and fit them in the first team every two years. Vurnon happened to be one of these players. A short, but tenacious midfielder with a good passing range, and more importantly — a vision which makes him one of the best players  at the club currently.
+As many of you will know and are probably tired of me pointing out (!) I am a big fan of <[Vurnon Anita](https://www.tynetime.com/tag/vurnon-anita/ "Vurnon Anita") and his style of play. Many Newcastle fans were quick to play down his potential when he arrived from Ajax in 2012 for £7m, but from the few performances he put in it was clear - to me at least - that this guy is a technically astute player. I remember the day we landed him; Ajax manager Frank de Boer lamented at losing on their top prospects, a testament to the true potential of the little man. As the Ajax philosophy goes, the club tries to produce at least 3 players from their academy and fit them in the first team every two years. Vurnon happened to be one of these players. A short, but tenacious midfielder with a good passing range, and more importantly — a vision which makes him one of the best players at the club currently.
 
 Thankfully Alan Pardew has realised what important player he can be, and has involved Vurnon in a large chunk of the season in a very competitive Newcastle United midfield. Anyway, here are my thoughts on his form so far this season.
 

@@ -11,7 +11,7 @@ categories:
 
 ### Skjelbred - Still open to Toon switch
 
-In what was a relieving victory for all sides yesterday, we were also reminded of the significant strengthening we need to maintain our good form. One man who's been linked with us for a long long time now is Per Ciljan Skjelbred. He's a  Newcastle United fan all his life and on many occasions now has said he's more than open to a switch to St.James' Park, conveniently commenting that, after our three nil victory against Reading. He's be a very good signing and someone who would fight for the club. He broke both his legs in one match in the Champions League for Rosenborg against Olympiakos so he's certainly no stranger to the roughness, and there'll be a lot of this in the Coca Cola Championship for sure.
+In what was a relieving victory for all sides yesterday, we were also reminded of the significant strengthening we need to maintain our good form. One man who's been linked with us for a long long time now is Per Ciljan Skjelbred. He's a Newcastle United fan all his life and on many occasions now has said he's more than open to a switch to St.James' Park, conveniently commenting that, after our three nil victory against Reading. He's be a very good signing and someone who would fight for the club. He broke both his legs in one match in the Champions League for Rosenborg against Olympiakos so he's certainly no stranger to the roughness, and there'll be a lot of this in the Coca Cola Championship for sure.
 
 Per said :
 

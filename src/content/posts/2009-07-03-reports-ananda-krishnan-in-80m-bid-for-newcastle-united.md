@@ -11,7 +11,7 @@ categories:
 
 ![Ananda Krishnan - The mystery bidder for Newcastle?](https://images.forbes.com/media/lists/10/2008/YK1N.jpg)
 
-There is more news about the mystery Malaysian bidder today, and his  name is believed to be Ananda Krishnan a rich foreigner that is worth $7.5bn, a little less than Robert Kuok but certainly a very wealthy man. Reports are surfacing, especially in
+There is more news about the mystery Malaysian bidder today, and his name is believed to be Ananda Krishnan a rich foreigner that is worth $7.5bn, a little less than Robert Kuok but certainly a very wealthy man. Reports are surfacing, especially in
 
 The Chronicle that an £80m bid has been submitted and that Seymour Pierce has recommended a buyer to to Mike Ashley already, indeed it's believed to be this man. So, realistically , as poorly informative as Newcastle United are, we'd still expect some major news within the weekend.
 

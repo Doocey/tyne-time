@@ -13,7 +13,7 @@ categories:
 
 #### Taylor - His absence at centre back saw Newcastle United lose points
 
-When Steven Taylor pulled up against Chelsea in the final ten minutes I didn't think that the Englishman had suffered an injury that would rule him for the remainder of the Premier League season. However, the news wasn't good and Tayls won't be in action until next season at the earliest - a big pity considering he was playing the best football of his career, alongside Fabricio Coloccini.  We had one of the best defensive records in the league when Colo and Steven were the two CB's, and we suffered as a team when that partnership was broken. Our defeat away to Norwich City springs to mind; almost all of the homesides' goals coming from crosses.
+When Steven Taylor pulled up against Chelsea in the final ten minutes I didn't think that the Englishman had suffered an injury that would rule him for the remainder of the Premier League season. However, the news wasn't good and Tayls won't be in action until next season at the earliest - a big pity considering he was playing the best football of his career, alongside Fabricio Coloccini. We had one of the best defensive records in the league when Colo and Steven were the two CB's, and we suffered as a team when that partnership was broken. Our defeat away to Norwich City springs to mind; almost all of the homesides' goals coming from crosses.
 
 However, Williamson's fitness levels are where they need to be at this stage and he had a fantastic game at home to Manchester United in that memorable win. It seems playing alongside Coloccini boosts ones confidence as the Argentinian leads the line by example.
 

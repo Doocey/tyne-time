@@ -1,5 +1,5 @@
 ---
-title: 'Tyne Time Competition: Win yourself a limited edition Olympics camera!'
+title: "Tyne Time Competition: Win yourself a limited edition Olympics camera!"
 author: Kevin Doocey
 type: post
 date: 2012-07-28T15:00:23+00:00

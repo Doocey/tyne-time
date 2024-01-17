@@ -12,7 +12,7 @@ categories:
 
 ### Erding - Newcastle have had a £5m bid for the Frenchman rejected today
 
-We've been linked with Erding before, and today it's being reported in France Football that we've had a €6m offer for the striker rejected by PSG. It seems as if Chris Hughton is keen to sign Erding, because if all reports are accurate, this is the second bid that has been rejected for his services. I can't say I know a lot about the forward, but Arsenal were interested not very  long ago so he's obviously decent. Add that to the fact that PSG have rejected £5m for him.
+We've been linked with Erding before, and today it's being reported in France Football that we've had a €6m offer for the striker rejected by PSG. It seems as if Chris Hughton is keen to sign Erding, because if all reports are accurate, this is the second bid that has been rejected for his services. I can't say I know a lot about the forward, but Arsenal were interested not very long ago so he's obviously decent. Add that to the fact that PSG have rejected £5m for him.
 
 Hughton has said he wants a couple more signings in before the close of the window, or even before their match against Manchester United on Monday, with a striker and a winger the priorities, even though we need cover for the LB area.
 

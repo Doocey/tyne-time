@@ -13,7 +13,7 @@ categories:
 
 ### Harewood - Out injured again
 
-Chris Hughton today denied the rumours that he is set to capture Marcel Seip from Plymouth Argyle. The defender, who was reported to have had a bust up with manager Paul Sturrock was rumoured to have been on his way to St.James' Park within the next couple of days but today Chris refuted those reports. However one man that he took no time in confirming his  interest in, was Marlon Harewood. The Aston Villa striker is out of favour with manager Martin O'Neill and it's understood that the former Celtic boss is willing to let him travel to Newcastle for the next couple of months.
+Chris Hughton today denied the rumours that he is set to capture Marcel Seip from Plymouth Argyle. The defender, who was reported to have had a bust up with manager Paul Sturrock was rumoured to have been on his way to St.James' Park within the next couple of days but today Chris refuted those reports. However one man that he took no time in confirming his interest in, was Marlon Harewood. The Aston Villa striker is out of favour with manager Martin O'Neill and it's understood that the former Celtic boss is willing to let him travel to Newcastle for the next couple of months.
 
 But our bad luck strikes again and Marlon is unable to travel because he is unfit, which is quite appalling considering he is a professional footballer on a huge weekly wage. Saying that, I'd like to see him in a Toon shirt and judge how good he is, mainly because we need a striker and secondly because we wouldn't have paid much of a fee for him.
 

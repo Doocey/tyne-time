@@ -11,7 +11,7 @@ categories:
 
 ![Hughton - A quiet operator](https://static.guim.co.uk/sys-images/Sport/Pix/pictures/2009/9/13/1252867830142/Chris-Hughton-Newcastle-U-001.jpg)
 
-As surprising as it may sound, Chris Hughton has money to spend on new players at Newcastle. Even though we're stuck amidst a takeover and whatnot, Hughton has a little cash to spend on new faces, and we suspect that it's just a tiny fraction of what NUFC received in transfer fees this season. Reports were that on the last day of the transfer window, we had a bid of £1.75m rejected for defender  Craig Cathcart, from Manchester United. However, the arrival of Cathcart is still a possibility with a loan move being rumoured to have been arranged.
+As surprising as it may sound, Chris Hughton has money to spend on new players at Newcastle. Even though we're stuck amidst a takeover and whatnot, Hughton has a little cash to spend on new faces, and we suspect that it's just a tiny fraction of what NUFC received in transfer fees this season. Reports were that on the last day of the transfer window, we had a bid of £1.75m rejected for defender Craig Cathcart, from Manchester United. However, the arrival of Cathcart is still a possibility with a loan move being rumoured to have been arranged.
 
 We are constantly being linked with the likes of Marlon Harewood, Diomansy Kamara, Caleb Folan, Daniel Cousin and even James Vaughan these days but th possibility of even half of those ariving is very unlikely. What we do have though is Andy Carrroll and promosing striker Nile Ranger.
 

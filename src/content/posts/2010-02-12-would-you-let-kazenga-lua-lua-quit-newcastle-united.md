@@ -12,7 +12,7 @@ categories:
 
 ### Kazenga - Needs regular playing time but not getting it at Newcastle United
 
-20 years of age and has played 4 times for Newcastle United seniors and the supposed brother of Newcastle United former, Lomano Lua Lua. That would be Kazenga Lua Lua, the Congolese winger who hasn't made a real breakthrough at the Toon for the last couple of years. Today he joined Brighton & Hove Albion on loan for an initial 1 month. Lua Lua is highly rated on Tyneside but  has failed to jump the queue ahead of Jonas Gutierrez, Wayne Routledge etc and the youngster says he will sacrifice his Newcastle United dream to play regular first team football.
+20 years of age and has played 4 times for Newcastle United seniors and the supposed brother of Newcastle United former, Lomano Lua Lua. That would be Kazenga Lua Lua, the Congolese winger who hasn't made a real breakthrough at the Toon for the last couple of years. Today he joined Brighton & Hove Albion on loan for an initial 1 month. Lua Lua is highly rated on Tyneside but has failed to jump the queue ahead of Jonas Gutierrez, Wayne Routledge etc and the youngster says he will sacrifice his Newcastle United dream to play regular first team football.
 
 Dennis Wise conveniently enough recommended the young winger to Gus Poyet and the former Spurs assistant obliged to take the 20-year old on, hoping to get good use out of Lua Lua, who is cousin to Leeds United's Tresor Kandol.
 

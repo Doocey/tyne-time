@@ -12,7 +12,7 @@ categories:
 
 ### Edward Ofere linked again with Newcastle
 
-It's being reported tonight that Mike Williamson has signed finally, for Newcastle United. The Portsmouth CB has supposedly signed on a 3-year deal for a fee of £1.2m. As well as this, according to Sky Sports, we could well make a move for Malmo's Edward Ofere. As we [reported](https://www.tynetime.com/2009/10/09/toon-readying-ofere-for-nigerian/ "reported") in October of last year, Chris Hughton could well have the tall striker on his shortlist, and a list that's  getting shorter every day too I'm sure. Ofere is a Nigerian and quite a tall lad. He's currently plying his trade in Sweden with Malmo FC but their president today said that they're pretty much open to offers for him.
+It's being reported tonight that Mike Williamson has signed finally, for Newcastle United. The Portsmouth CB has supposedly signed on a 3-year deal for a fee of £1.2m. As well as this, according to Sky Sports, we could well make a move for Malmo's Edward Ofere. As we [reported](https://www.tynetime.com/2009/10/09/toon-readying-ofere-for-nigerian/ "reported") in October of last year, Chris Hughton could well have the tall striker on his shortlist, and a list that's getting shorter every day too I'm sure. Ofere is a Nigerian and quite a tall lad. He's currently plying his trade in Sweden with Malmo FC but their president today said that they're pretty much open to offers for him.
 
 Speaking today, a member of the boards said :
 

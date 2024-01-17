@@ -6,8 +6,8 @@ date: 2009-01-13T17:00:30+00:00
 url: /2009/01/13/løvenkrands-set-to-sign/
 categories:
   - Newcastle United News
-
 ---
+
 ## Peter - Toon's first new signing
 
 News has broke and it is no surprise really that Peter Løvenkrands is all set to be Newcastle's first signing of the January transfer market. After leaving Schalke by mutual consent the Toon were linked with him straight away but it seemed Rangers were keen too. Joe has said that Peter has looked good in training and that he is more than happy to play with us until the end of the season, at least. Just what we like to hear 🙂

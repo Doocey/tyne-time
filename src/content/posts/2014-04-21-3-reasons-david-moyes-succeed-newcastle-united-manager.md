@@ -35,7 +35,7 @@ Moyes is better dealing with a bracket of players like such, and at Newcastle, i
 
 ## Straight talker - unlike a certain Mr. Pardew
 
-David Moyes will be first man to admit he has done a poor job at Manchester United, and that perhaps the job was a little too big for him. He will likely admit that he found it very difficult to resume duties from Alex Ferguson, and he might even accept the fact that his dealings in the transfer market were not sufficient. Would _Alan Pardew_ do the same? I'm not so sure.
+David Moyes will be first man to admit he has done a poor job at Manchester United, and that perhaps the job was a little too big for him. He will likely admit that he found it very difficult to resume duties from Alex Ferguson, and he might even accept the fact that his dealings in the transfer market were not sufficient. Would *Alan Pardew* do the same? I'm not so sure.
 
 The early reports emerging from the mass media is that Moyes's departure may not be necessarily a sacking, but a mutual agreement to part ways. In other words, both parties accepted the decision to terminate the relationship, with the Scot getting a designated pay-off for his efforts. Pardew will never resign as Newcastle boss out of pride and because he knows he'll never get a job as good again.
 

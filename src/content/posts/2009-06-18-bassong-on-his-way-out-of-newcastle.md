@@ -10,7 +10,7 @@ categories:
 
 ### Bassong - Best player for Newcastle this season by far - 22
 
-Earlier this month Bassong said he wanted to leave the mess at Newcastle United and it seems he is destined to do so. Sky Sports have confirmed that Sebastien Bassong is  in talks with 2 English clubs to return to the Premier League. Bassong was Newcastle's best player of the season last year and it's not surprising to see that he's in demand. Rumors suggest Arsenal, City and Villa are all after him. To him, a move to any of those teams would be a dream on for the young French lad.
+Earlier this month Bassong said he wanted to leave the mess at Newcastle United and it seems he is destined to do so. Sky Sports have confirmed that Sebastien Bassong is in talks with 2 English clubs to return to the Premier League. Bassong was Newcastle's best player of the season last year and it's not surprising to see that he's in demand. Rumors suggest Arsenal, City and Villa are all after him. To him, a move to any of those teams would be a dream on for the young French lad.
 
 Speaking today he said :
 

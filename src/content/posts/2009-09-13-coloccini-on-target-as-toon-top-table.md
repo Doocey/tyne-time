@@ -11,7 +11,7 @@ categories:
 
 ### Coloccini - With goal archtect Ryan Taylor
 
-A bullet header from Argentine defender Fabricio Coloccini sent the mighty Magpies back to top spot, in the Welsh capital. Colo, who got his head to a looping Ryan Taylor cross celebrated the goal like a real goalscorer too and enjoyed every moment of it. It is Fabricio's first goal for the club but hopefully not his last as he showed to day that as well as heading, he's not  that bad at defending either, keeping Michael Chopra and Jay Boothroyd at bay for 90 minutes. Unfortunately for Alan Smith however, he received two yellow cards and was sent down the tunnel on 92 mins, he will be missed in centre midfield.
+A bullet header from Argentine defender Fabricio Coloccini sent the mighty Magpies back to top spot, in the Welsh capital. Colo, who got his head to a looping Ryan Taylor cross celebrated the goal like a real goalscorer too and enjoyed every moment of it. It is Fabricio's first goal for the club but hopefully not his last as he showed to day that as well as heading, he's not that bad at defending either, keeping Michael Chopra and Jay Boothroyd at bay for 90 minutes. Unfortunately for Alan Smith however, he received two yellow cards and was sent down the tunnel on 92 mins, he will be missed in centre midfield.
 
 Today proved that Newcastle can play away from home and win, even without their leading goal scorer Shola Ameobi and playmaker Jonas Gutierréz. Cardiff City won't be far off the promotion spots come May you'll see and for us to get three points in their own back garden is something to be proud of.
 

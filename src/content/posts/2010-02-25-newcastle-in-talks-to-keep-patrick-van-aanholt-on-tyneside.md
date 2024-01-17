@@ -11,14 +11,13 @@ categories:
 
 ### Aanholt - Would be nice to keep this lad at Newcastle United for another while
 
-In what was a busy January transfer window for Newcastle United, we saw Newcastle sign Patrick van Aanholt from Chelsea on-loan for the injured Jose Enrique. It was a quick move by Hughton to replace Jose and I think it's fair say that Patrick has done very well at Newcastle United in his time here. His debut against Leicester saw him nearly score too, a left footed drive palmed  away by City's #1. We're hoping that Chelsea will indeed allow Newcastle to extend the loan of van Aanholt because we need cover in the wing-back area. What's more, is that van Aanholt is a similar player to Enrique, loves to get forward and work with his wingers.
+In what was a busy January transfer window for Newcastle United, we saw Newcastle sign Patrick van Aanholt from Chelsea on-loan for the injured Jose Enrique. It was a quick move by Hughton to replace Jose and I think it's fair say that Patrick has done very well at Newcastle United in his time here. His debut against Leicester saw him nearly score too, a left footed drive palmed away by City's #1. We're hoping that Chelsea will indeed allow Newcastle to extend the loan of van Aanholt because we need cover in the wing-back area. What's more, is that van Aanholt is a similar player to Enrique, loves to get forward and work with his wingers.
 
 Hughton speaking today, said :
 
 > _'The agreement we had with Chelsea is that it was for a month, so at this particular moment, his loan period finishes after the Watford game._
 >
 > _'I am in dialogue with Chelsea - whether that changes slightly for a little bit longer, that's something we will ascertain, but at this moment, the agreement we had was very much until after this game._
-
 
 Chelsea are without Ashley Cole due to injury but whether they'll want to recall Patrick is another matter. I'm not sure if he'd get anywhere near the LB position but his performances with Newcastle United in his stint here will surely strengthen support for the lad.
 

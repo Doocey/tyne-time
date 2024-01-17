@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-You'd think the takeover of Newcastle United FC must  be nearing completion but then again, that's the problem, we don't know. Apparently two bidders are left and Freddy Shepperd is **not** one of them. A source revealed tonight who the American interest is but it's credibility is very questionable. Speaking to a tabloid paper, bare in mind, it's Sunday, the source revealed that American bidder (if there is one) is a guy by the name of Larry Page who plays a major role in Google. He's worth a nice $15.8 bn and he's 36 years old. His age alone makes me doubt his interest.
+You'd think the takeover of Newcastle United FC must be nearing completion but then again, that's the problem, we don't know. Apparently two bidders are left and Freddy Shepperd is **not** one of them. A source revealed tonight who the American interest is but it's credibility is very questionable. Speaking to a tabloid paper, bare in mind, it's Sunday, the source revealed that American bidder (if there is one) is a guy by the name of Larry Page who plays a major role in Google. He's worth a nice $15.8 bn and he's 36 years old. His age alone makes me doubt his interest.
 
 The source said :
 

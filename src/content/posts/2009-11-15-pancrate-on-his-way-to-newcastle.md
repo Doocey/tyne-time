@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-We all know that Sunday is usually a day where the media make up some outrageous stories at Newcastle and they haven't failed to produce today either. However, today's news isn't that unbelievable and more than likely is correct. The Sunday Sun (who?!) are reporting that Fabrice Pancrate who we we dished an article if you flick down the page, is rumoured to be signing for us  in the next few days. The Frenchman who has played with many different clubs has indeed claimed that 'Black and White is in his blood'. If that's not just a little questionable, I don't know what is.
+We all know that Sunday is usually a day where the media make up some outrageous stories at Newcastle and they haven't failed to produce today either. However, today's news isn't that unbelievable and more than likely is correct. The Sunday Sun (who?!) are reporting that Fabrice Pancrate who we we dished an article if you flick down the page, is rumoured to be signing for us in the next few days. The Frenchman who has played with many different clubs has indeed claimed that 'Black and White is in his blood'. If that's not just a little questionable, I don't know what is.
 
 He said :
 

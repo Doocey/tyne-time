@@ -15,7 +15,7 @@ categories:
 
 #### Ireland - Has raw talent but can he regain old form at St. James' Park?
 
-There are emerging reports that Alan Pardew may well be interested in bringing Stephen Ireland back to St.James' Park on a permanent basis this summer. The Irishman, who had an injury plagued loan spell with Newcastle never really got going and played a mere 2 times for the club: both as substitute appearances. I think we all remember what a player this guy was only a couple of years ago;  indeed he was awarded the Player Of the Year award at Eastlands for his fantastic endeavours throughout the season.
+There are emerging reports that Alan Pardew may well be interested in bringing Stephen Ireland back to St.James' Park on a permanent basis this summer. The Irishman, who had an injury plagued loan spell with Newcastle never really got going and played a mere 2 times for the club: both as substitute appearances. I think we all remember what a player this guy was only a couple of years ago; indeed he was awarded the Player Of the Year award at Eastlands for his fantastic endeavours throughout the season.
 
 Since City were taken over by the foreign moneybags he was thrown out of the first team and was never to  return to action again.
 

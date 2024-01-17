@@ -1,5 +1,5 @@
 ---
-title: 'Tyne Time Special – Charity Weekend Bet #2'
+title: "Tyne Time Special – Charity Weekend Bet #2"
 author: Kevin Doocey
 type: post
 date: 2009-11-13T23:19:32+00:00
@@ -8,7 +8,7 @@ categories:
   - Site
 ---
 
-It's that time of the week again when Tyne Time gathers all it's prestige and invaluable information to form a bet which will see a charity of it's choice, hopefully, be in luck and win 50% of the bet winnings. Last Saturday didn't go too well but this week we here Tyne Time feel that this weeks one might stand more of a chance. I'm sure you might have saw the article a little  further down the page about donating to keep this weekly bet going, and I must say that hopefully if any donations do come through we can keep this feature going for weeks to come.
+It's that time of the week again when Tyne Time gathers all it's prestige and invaluable information to form a bet which will see a charity of it's choice, hopefully, be in luck and win 50% of the bet winnings. Last Saturday didn't go too well but this week we here Tyne Time feel that this weeks one might stand more of a chance. I'm sure you might have saw the article a little further down the page about donating to keep this weekly bet going, and I must say that hopefully if any donations do come through we can keep this feature going for weeks to come.
 
 So, here's our predictions for Saturday :
 

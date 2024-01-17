@@ -16,7 +16,7 @@ categories:
 
 Some things are just perfect. Selling a guy to Liverpool for £35m after only playing three-quarters of a Premier League season, and then finishing above them in the league with their new signing having very little impact, is probably as close as perfect can get when it comes to football. The cherry on top of it all sees Newcastle United coming back in for Carroll in a cut price deal and the player himself, refusing to talk to any other club other than his homeland team. Liverpool: stuck in a rut, much?
 
-The manager who signed Andy in the first place has since been  sacked and replaced by a coach who loves to pass the ball around, and have his team play a very fluid type of football. Inevitably, Andy won't see much playing time in this new system, and Brendan Rodgers has already admitted that he is open to the possibility of the £35m man leaving Anfield.
+The manager who signed Andy in the first place has since been sacked and replaced by a coach who loves to pass the ball around, and have his team play a very fluid type of football. Inevitably, Andy won't see much playing time in this new system, and Brendan Rodgers has already admitted that he is open to the possibility of the £35m man leaving Anfield.
 
 West Ham were linked, but the man in question didn't want a move to Big Sam's side, and can you blame him? It really would be a fall from grace after signing for a record fee, only to find yourself playing with a newly promoted side a year later, that could well go right back down to the Championship again.
 
@@ -42,4 +42,4 @@ Comments welcome as always folks 🙂
 
 By the way, make sure you've liked us on [Facebook][1], and are following us on Twitter.
 
- [1]: https://www.facebook.com/tynetime
+[1]: https://www.facebook.com/tynetime

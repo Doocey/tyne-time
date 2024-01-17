@@ -11,7 +11,7 @@ categories:
 
 ### Beckford - Clearly wants a move this January transfer window
 
-I think the next day or two will bring down the curtains on what has been a 2 year old love affair between Newcastle United and Jermaine Beckford. The Keegan, Kinnear, Shearer and now Hughton target has today handed a transfer request to the Elland Road hierarchy underlining his ambitions to leave Leeds United. After scoring the winner at Old Trafford amongst 19 other  goals this year, Chris Hughton is clearly in the hunt for the 6'2 striker and I'd expect a move to materialize within the next 48 hours. You needn't be an expert or have inside sources to figure that one out.
+I think the next day or two will bring down the curtains on what has been a 2 year old love affair between Newcastle United and Jermaine Beckford. The Keegan, Kinnear, Shearer and now Hughton target has today handed a transfer request to the Elland Road hierarchy underlining his ambitions to leave Leeds United. After scoring the winner at Old Trafford amongst 19 other goals this year, Chris Hughton is clearly in the hunt for the 6'2 striker and I'd expect a move to materialize within the next 48 hours. You needn't be an expert or have inside sources to figure that one out.
 
 I know there's  mixed opinions on Beckford but it looks as if, whether we like it or not, he'll be playing in a Black and White jersey very soon, and maybe as soon as our away trip to Reading.
 

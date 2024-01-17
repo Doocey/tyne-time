@@ -12,7 +12,7 @@ categories:
 
 ![Martin Petrov is an excellent player and would suit Newcastle](https://static.guim.co.uk/sys-images/Sport/Pix/pictures/2009/10/7/1254920356498/Martin-Petrov-001.jpg)
 
-I don't think I'm the only person who thinks that Newcastle United should move as quick as they can and snap up Manchester City former Martin Petrov. The Bulgarian was released from the club after a good three years at the club. The winger is a talented player and alongside Sylvinho, Mancini waved goodbye to his services at the club, simply because they are not good enough  for what is becoming a monstrous squad, and that's not mentioning the wage bill! As Ed Harrison reported on NUFCBlog.com - 500 players are without contracts this summer and there are some very decent, and experienced players in that growing list.
+I don't think I'm the only person who thinks that Newcastle United should move as quick as they can and snap up Manchester City former Martin Petrov. The Bulgarian was released from the club after a good three years at the club. The winger is a talented player and alongside Sylvinho, Mancini waved goodbye to his services at the club, simply because they are not good enough for what is becoming a monstrous squad, and that's not mentioning the wage bill! As Ed Harrison reported on NUFCBlog.com - 500 players are without contracts this summer and there are some very decent, and experienced players in that growing list.
 
 When I heard Petrov was released I was slightly surprised because he's been a very good servant to the Manchester club. The former Atletico Madrid winger has Champions League experience and is an international  for quite a promising Bulgaria side.
 

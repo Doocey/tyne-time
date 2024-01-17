@@ -11,7 +11,7 @@ categories:
 
 ### Barton - Will he miss the crucial tie with West Brom?
 
-Perhaps I'm looking into things just a little too much but it's occurred to me, as I'm sure it has to you, that West Bromich Albion are hot on the tails of Newcastle in the Coca Cola Championship. Today, we were a little lacklustre in midfield and missed Alan Smith. Nicky Butt played well in many periods of the game but in fairness to the man, he wouldn't be first choice in the middle of the  park. That brings us all to Joey Barton, the infamous midfielder that has made more headlines for his adventures off the field rather than on it.
+Perhaps I'm looking into things just a little too much but it's occurred to me, as I'm sure it has to you, that West Bromich Albion are hot on the tails of Newcastle in the Coca Cola Championship. Today, we were a little lacklustre in midfield and missed Alan Smith. Nicky Butt played well in many periods of the game but in fairness to the man, he wouldn't be first choice in the middle of the park. That brings us all to Joey Barton, the infamous midfielder that has made more headlines for his adventures off the field rather than on it.
 
 Barton is due back in the future and the sooner the better, or at least I think so. It's no lie to say that Barton is a very good footballer but one that probably after all he has done, doesn't deserve to be a professional footballer or live the life of one.
 

@@ -15,7 +15,7 @@ categories:
 
 ### Ranger - Netted again tonight as we saw Routledge & Williamson in action
 
-Tonights affair was a game we needed all three points from and the lads duly delivered the goods. In what was a Crystal Palace team without one of their main men in Victor Moses saw them concede within twenty minutes, a Shaun Derry O.G. In fairness, it seems as if Palace gave it a real go and could well have got something out of the game on another day. Newcastle United  former, Darren Ambrose looked their most promising throughout, testing Steve Harper on several occasions within the 90 minutes.
+Tonights affair was a game we needed all three points from and the lads duly delivered the goods. In what was a Crystal Palace team without one of their main men in Victor Moses saw them concede within twenty minutes, a Shaun Derry O.G. In fairness, it seems as if Palace gave it a real go and could well have got something out of the game on another day. Newcastle United former, Darren Ambrose looked their most promising throughout, testing Steve Harper on several occasions within the 90 minutes.
 
 A Palace side that saw only 3 subs were being split apart by Jonas and Enrique in the opening stages if reports are accurate and we too could've scored a few more goals. However, the 3 points aside, it was interesting to see the new players in action.
 

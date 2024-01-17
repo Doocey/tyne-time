@@ -11,7 +11,7 @@ categories:
 
 ### Carroll - Wants to move on and continuing play with Newcastle United
 
-Andy Carroll has said he wants to stay with Newcastle United and isn't seeking a move away from St. James' Park at least four times this season already, but the media still persist with the same question. I'm surprised Carroll hasn't lost his temper in these interviews, because I know I would if I had answered a question umpteen times yet still got asked the exact same thing a few  weeks later.
+Andy Carroll has said he wants to stay with Newcastle United and isn't seeking a move away from St. James' Park at least four times this season already, but the media still persist with the same question. I'm surprised Carroll hasn't lost his temper in these interviews, because I know I would if I had answered a question umpteen times yet still got asked the exact same thing a few weeks later.
 
 Born and raised in Newcastle, you can see why the lad would want to stay. Playing out his boyhood dream of playing for his local club, playing against some of the best players in the world in the best league in the world, and indeed scoring goals on the big stage. Of course he could leave, and would be snapped up in a heartbeat, for a good £15m at least.
 

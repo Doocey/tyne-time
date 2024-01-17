@@ -11,7 +11,7 @@ categories:
 
 ![Lloyd - Reportedly attracting interest from Newcastle & other clubs](https://newsimg.bbc.co.uk/media/images/42391000/jpg/_42391166_ab3.jpg)
 
-Sky Sports is running the story that Lloyd Sam, Charlton's winger, is not interested in moving to Newcastle. First things first, this is news to me, and I'm sure many other Toon fans. This is the first time we've been linked to this winger but it's rumoured that Chris Hughton was having a look at him all that time, or supposedly so. Although I for one have heard very little of this  guy he's highly rated at Charlton and in League 1 it seems, with a whole host of other Championship clubs looking to avail of his services.
+Sky Sports is running the story that Lloyd Sam, Charlton's winger, is not interested in moving to Newcastle. First things first, this is news to me, and I'm sure many other Toon fans. This is the first time we've been linked to this winger but it's rumoured that Chris Hughton was having a look at him all that time, or supposedly so. Although I for one have heard very little of this guy he's highly rated at Charlton and in League 1 it seems, with a whole host of other Championship clubs looking to avail of his services.
 
 Speaking today on the speculation, he said :
 

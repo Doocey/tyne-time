@@ -1,5 +1,5 @@
 ---
-title: 'Nolan & Harewood denied by brave Barnsley battle'
+title: "Nolan & Harewood denied by brave Barnsley battle"
 author: Kevin Doocey
 type: post
 date: 2009-12-12T19:16:42+00:00
@@ -11,7 +11,7 @@ categories:
 
 ![Nolan - Scored again today but Toon denied 3 points](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2009/10/24/1256410975928/Newcastles-Kevin-Nolan-ce-001.jpg)
 
-Newcastle today rued the chance to go ten points clear at the top of the Coca Cola Championship table with a 2-2 draw away to Barnsley. In a game that saw us lead twice and conceded an equaliser with 3 minutes left, from a corner was a bitter pill to swallow for some Toon players and especially the 7,000 travelling fans. The fans who made the trip were hoping for an eight win  in a row but it didn't come thanks to B. Hassell header in the dying minutes. It was probably a just result but I can't comment too much as I haven't saw any of the footage just yet.
+Newcastle today rued the chance to go ten points clear at the top of the Coca Cola Championship table with a 2-2 draw away to Barnsley. In a game that saw us lead twice and conceded an equaliser with 3 minutes left, from a corner was a bitter pill to swallow for some Toon players and especially the 7,000 travelling fans. The fans who made the trip were hoping for an eight win in a row but it didn't come thanks to B. Hassell header in the dying minutes. It was probably a just result but I can't comment too much as I haven't saw any of the footage just yet.
 
 An opener from Kevin Nolan, bringing his total an impressive tally saw his return to the Newcastle side, following his absence against Coventry due to suspension an immediate winner.
 

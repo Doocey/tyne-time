@@ -17,7 +17,7 @@ categories:
   </p>
 </div>
 
-Heading to Stamford Bridge in the past has been a daunting task no doubt, but of recent times we've enjoyed quite a decent spell in the Blue side of London. Last season Shola Ameobi and even Nile Ranger scored in a Newcastle United win in the Carling Cup, and towards the very end of the Premier League season - Steven Taylor popped up with an injury time header to snatch a dramatic last-minute point to send the traveling Geordies into raptures. Somehow - under AVB  - Chelsea managed to beat us 3-0 at St.James' Park; a result that looking back on now should not have happened. As we approach Wednesday's encounter, there is far more at stake; a potential Champions League spot beckons for the winner of the tie. An incentive much?
+Heading to Stamford Bridge in the past has been a daunting task no doubt, but of recent times we've enjoyed quite a decent spell in the Blue side of London. Last season Shola Ameobi and even Nile Ranger scored in a Newcastle United win in the Carling Cup, and towards the very end of the Premier League season - Steven Taylor popped up with an injury time header to snatch a dramatic last-minute point to send the traveling Geordies into raptures. Somehow - under AVB - Chelsea managed to beat us 3-0 at St.James' Park; a result that looking back on now should not have happened. As we approach Wednesday's encounter, there is far more at stake; a potential Champions League spot beckons for the winner of the tie. An incentive much?
 
 We face an entirely different team to the one that showed up on Tyneside last year. Fernando Torres is beginning to find his goal-scoring form again, form that once had the Spaniard as the most feared forward in the game not too long ago.
 

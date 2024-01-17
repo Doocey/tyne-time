@@ -11,7 +11,7 @@ categories:
 
 ![Jones - Cheer up Dave! Its not all bad news](https://i.telegraph.co.uk/telegraph/multimedia/archive/01015/dave-jones_1015597c.jpg)
 
-Sensational Cardiff City manager, OK, maybe I'm being a bit over generous with him, but it's Friday! Anyway, Dave Jones, the Cardiff City manager was speaking today about their chances against Newcastle United. Cardiff who are doing very well themselves and Toon old boy Michael Chopra banging in the goals, they couldn't have wished for a better start. Neither could we  though, grabbing 13 from a possible 15 and the draw happening on the first day against promotion favourites, West Brom.
+Sensational Cardiff City manager, OK, maybe I'm being a bit over generous with him, but it's Friday! Anyway, Dave Jones, the Cardiff City manager was speaking today about their chances against Newcastle United. Cardiff who are doing very well themselves and Toon old boy Michael Chopra banging in the goals, they couldn't have wished for a better start. Neither could we though, grabbing 13 from a possible 15 and the draw happening on the first day against promotion favourites, West Brom.
 
 It's been a good start from both sides and we've both had a nice rest, whilst the international games were being played. Luckily, we suffered no new injuries and Jonas, is making good progress on his recovery trail.
 

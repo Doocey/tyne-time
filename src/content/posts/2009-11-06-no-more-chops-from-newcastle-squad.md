@@ -10,7 +10,7 @@ categories:
 
 ### Hughton - Confident that only additions will be made
 
-Chris Hughton has said he's very confident that the squad will not shrink in numbers anymore, after nearly 10 players left in the summer. In return there's been Danny Simpson, Marlon Harewood, and the long-named Zurab. All Premier League players to be fair but neither have showed any of that quality with perhaps Danny Simpson as an exception. However, Hughton  believes that there will be no more out goings at the club but instead new faces will more than likely arrive at the forever St.James' Park.
+Chris Hughton has said he's very confident that the squad will not shrink in numbers anymore, after nearly 10 players left in the summer. In return there's been Danny Simpson, Marlon Harewood, and the long-named Zurab. All Premier League players to be fair but neither have showed any of that quality with perhaps Danny Simpson as an exception. However, Hughton believes that there will be no more out goings at the club but instead new faces will more than likely arrive at the forever St.James' Park.
 
 Speaking today he said :
 

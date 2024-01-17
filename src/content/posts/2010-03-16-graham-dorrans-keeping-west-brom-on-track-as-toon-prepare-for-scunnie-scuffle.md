@@ -11,7 +11,7 @@ categories:
 
 ![Graham Dorrans scores yet again for West Brom as they keep pressure on Newcastle](https://i.dailymail.co.uk/i/pix/2009/12/14/article-0-05D42D7B000005DC-767_468x286.jpg)
 
-West Brom earned a very good win away to Paolo Sousa's Swansea City today, something we weren't able to manage, and it's 3 points which could prove crucial to Roberto di Matteo's promotion push with West Bromwich Albion. I've lost count of the amount of times West Brom have won it in the dying minutes of matches but not only that, the sheer amount of penalties they  seem to get along the way. Graham Dorrans has rocketed up the scoring charts in the Coca Cola Championship thanks to the penalties he's put away from 12 yards.
+West Brom earned a very good win away to Paolo Sousa's Swansea City today, something we weren't able to manage, and it's 3 points which could prove crucial to Roberto di Matteo's promotion push with West Bromwich Albion. I've lost count of the amount of times West Brom have won it in the dying minutes of matches but not only that, the sheer amount of penalties they seem to get along the way. Graham Dorrans has rocketed up the scoring charts in the Coca Cola Championship thanks to the penalties he's put away from 12 yards.
 
 Nottingham Forest lost away to Barnsley tonight and a lot of Forest fans are losing optimism of that other automatic promotion spot. However, I'd be very surprised if Forest don;tend up pushing West Brom for that 2nd spot, should we even manage to finish first. Who knows, it could well be us yet who'll be looking for that 2nd place promotion spot.
 

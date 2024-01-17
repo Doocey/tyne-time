@@ -13,7 +13,7 @@ categories:
 
 #### Bigirimana - Looks a bit like wor Tioté and plays a similar role
 
-There are _quite strong_ reports bouncing around that Alan Pardew is very close to his second signing of the summer transfer window in the shape of Coventry City youngster Gael Bigirimana. The Sky Blues man is a midfielder, which - any time I've seen him play at least - drops quite deep and hassles opposition a bit like Tioté. Not only does he look like the Ivorian, it seems like he might be a similar player in the type of game he likes to play. However, some Coventry City fans have  mentioned that he's not bad going forward either, with some touting him as the next Essien!
+There are _quite strong_ reports bouncing around that Alan Pardew is very close to his second signing of the summer transfer window in the shape of Coventry City youngster Gael Bigirimana. The Sky Blues man is a midfielder, which - any time I've seen him play at least - drops quite deep and hassles opposition a bit like Tioté. Not only does he look like the Ivorian, it seems like he might be a similar player in the type of game he likes to play. However, some Coventry City fans have mentioned that he's not bad going forward either, with some touting him as the next Essien!
 
 Their manager, is hoping that the midfielder doesn't make a move away from the Ricoh Arena:
 

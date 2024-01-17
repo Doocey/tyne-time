@@ -11,7 +11,7 @@ categories:
 
 ### Robert - Worth another shot at Newcastle?
 
-I think we all remember those good old days when Alan Shearer and Laurent Robert tore defences apart and progressed up the league. Those days have gone though, and many of those great players have left the club. There's no doubt that Laurent Robert was a special footballer and Bobby Robson saw this too. Although Sir Bobby wasn't keen on paying big fees for his players,  the chairman insisted and Robert was on Tyneside before too long. Before too long he was stringing passes together and scoring for fun from free-kicks. Naturally with upheaval at the club Robert's performances lessened and his last real 'hurrah' with Newcastle was the stunning 1-0 win at home to Liverpool that long time ago.
+I think we all remember those good old days when Alan Shearer and Laurent Robert tore defences apart and progressed up the league. Those days have gone though, and many of those great players have left the club. There's no doubt that Laurent Robert was a special footballer and Bobby Robson saw this too. Although Sir Bobby wasn't keen on paying big fees for his players, the chairman insisted and Robert was on Tyneside before too long. Before too long he was stringing passes together and scoring for fun from free-kicks. Naturally with upheaval at the club Robert's performances lessened and his last real 'hurrah' with Newcastle was the stunning 1-0 win at home to Liverpool that long time ago.
 
 Today brings news that Robert wants to rejoin Newcastle, after leaving the club under Graeme Souness. Souness to say the least, was a stern leader but never got the best out of the players, and far from it. He'll be remembered as signing Michael Owen, and Albert Luque, those guys.
 

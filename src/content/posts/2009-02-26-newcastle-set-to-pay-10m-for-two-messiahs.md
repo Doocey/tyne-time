@@ -6,15 +6,15 @@ date: 2009-02-26T16:36:44+00:00
 url: /2009/02/26/newcastle-set-to-pay-10m-for-two-messiahs/
 categories:
   - Newcastle United News
-
 ---
+
 ![Keegan- Set for compensation but does he really need it?](https://blogs.reuters.com/soccer/files/2008/02/rtr1wg661keegan-2.jpg)
 
 News from LLambias has revealed that Newcastle are set to muster up £10m of Ashley money to pay off Keegan and to pay Real Mallorca for Jonas Gutierrez. Some confusion surrounds Jonas's story as it seamed we had done so sleek business by snatching him however no it seems the Toon may be regretting something and are willing a rumoured fee of £4m for the Argentine, still goods business if you ask me!
 
 Keegan on the other had left because he couldn't settle for his position and he was fully entitled to do so. He had turned us around on the pitch with a memorable 1-1 at United on the first day of the season however following the close of the transfer window he decided to part company to the utter anger of most Toon fans including myself. Llambias, speaking again today said:
 
-_“We are hoping to reach two important settlements in the next week or so which potentially could cost the club a lot of money,”“One of those is the settlement with Kevin Keegan and the other is the fee for Jonas Gutiérrez. We are talking about millions of pounds here and, if we have to pay out a vast sum of money, that will hit our revenue elsewhere.”
+\_“We are hoping to reach two important settlements in the next week or so which potentially could cost the club a lot of money,”“One of those is the settlement with Kevin Keegan and the other is the fee for Jonas Gutiérrez. We are talking about millions of pounds here and, if we have to pay out a vast sum of money, that will hit our revenue elsewhere.”
 
 “Mike has had to put £10M of his own money into the club this week to facilitate the running of the club – that includes £4.5M for Kevin Nolan as fees for Shay Given and Charles N’Zogbia will not be received until the summer. And he will continue to put his own money in.”
 
@@ -22,7 +22,7 @@ _“We are hoping to reach two important settlements in the next week or so whic
 
 “We don’t have any commercial income at the moment because that was spent to pay for Michael Owen. It was all spent in advance, that’s the money from Northern Rock and Adidas.”
 
-“That is crazy for any football club because we need that income.”_
+“That is crazy for any football club because we need that income.”\_
 
 It's not nice to have to pay that money but the majority which could well go on Keegan is stupid and a waste of a huge amount in today's climate. We could have another 5 Sebastien Bassong's with that cash! 😀
 

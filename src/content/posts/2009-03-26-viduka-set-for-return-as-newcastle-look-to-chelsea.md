@@ -6,8 +6,8 @@ date: 2009-03-26T16:23:40+00:00
 url: /2009/03/26/viduka-set-for-return-as-newcastle-look-to-chelsea/
 categories:
   - Newcastle United News
-
 ---
+
 ![Owen - Lets hope he can score v Chelsea](https://static.guim.co.uk/sys-images/Sport/Pix/pictures/2008/08/23/Newcastle1.jpg)
 
 We all know it's been a very tough season for Newcastle, for the players, the board but most importantly us the fans. I have no doubt that we are the greatest fans in England and certainly the Premier League. We are a big club with a big stadium and massive fans. We deserve better and hopefully if we stay in the Premier League this season we can expect better next season as surely it can't get any worse than the current season. Ask yourself this question, what top 10 team can attract 47,000 on a bad day? I think the closest you might come is Man City and they lay in 9th place. At the bottom, it would surprise me if West Brom and Middlesbrough together could make 47,000 in attendance. For such supporters and such a club we can't go down and if we do, it will be one of the saddest moments the Premier League will have seen.

@@ -13,7 +13,7 @@ categories:
 
 Douglas - A wanted man with Fulham joining NUFC the race for his signature
 
-After yesterdays result away to Chelsea a lot of focus was on Alan Pardew's comments on Andy Carroll and the possibility of bringing him back to St.James' Park. Pardew commented that the matter was in the hands of the board and that although Carroll's return is unlikely, he would welcome him back with open arms. He's not alone either. However, I think we should be looking at acquiring a new centre-back before the window slams shut, just to make sure our squad is in the shape it should be - as an energy sapping season takes shape. It was great to see  Steven Taylor back in the last couple of games and alongside Coloccini, they are our first choice CB's, no doubt about that.
+After yesterdays result away to Chelsea a lot of focus was on Alan Pardew's comments on Andy Carroll and the possibility of bringing him back to St.James' Park. Pardew commented that the matter was in the hands of the board and that although Carroll's return is unlikely, he would welcome him back with open arms. He's not alone either. However, I think we should be looking at acquiring a new centre-back before the window slams shut, just to make sure our squad is in the shape it should be - as an energy sapping season takes shape. It was great to see Steven Taylor back in the last couple of games and alongside Coloccini, they are our first choice CB's, no doubt about that.
 
 Do we want to risk Coloccini or Taylor in the early stages of Europe though? I hope not. Perch is more than competent in that area of the pitch, and ideally we'll add another defender to bolster the ranks to add to Curtis Good.
 

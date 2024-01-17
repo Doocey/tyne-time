@@ -25,6 +25,6 @@ The team pushed for the winner but couldn't muster up another clear opportunity,
 
 He won't be sacked for at least another fortnight I would imagine, but pressure will surely mount once again when Newcastle United inevitably surrender when playing away from home.
 
-Whatever way you look at it, today was two points lost, and more importantly, another missed _opportunity_. Pardew thinks he has saved his bacon and while that may be true, he is only prolonging a painful, unwelcome stay on Tyneside.
+Whatever way you look at it, today was two points lost, and more importantly, another missed *opportunity*. Pardew thinks he has saved his bacon and while that may be true, he is only prolonging a painful, unwelcome stay on Tyneside.
 
 Comments welcome as always folks.

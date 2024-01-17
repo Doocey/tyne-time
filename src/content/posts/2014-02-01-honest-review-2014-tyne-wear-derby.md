@@ -1,5 +1,5 @@
 ---
-title: 'Newcastle United 0-3 SAFC: An honest review of the 2014 Tyne-Wear derby'
+title: "Newcastle United 0-3 SAFC: An honest review of the 2014 Tyne-Wear derby"
 author: Kevin Doocey
 type: post
 date: 2014-02-01T20:28:11+00:00
@@ -11,7 +11,7 @@ categories:
 
 ![Fabio Borini celebrates scoring against Newcastle United](https://www.tynetime.com/wp-content/uploads/2014/02/Fabio-Borini-Newcastle.jpg "Sunderland - Ran out deserved winners in a one-sided affair at St. James' Park")
 
-Awful. Atrocious. Abysmal. Appalling. Just four words to describe Newcastle United's performance against Sunderland in the Tyne-Wear at St.James' Park today. Whatever about the 'once-off' showing the lads put in against the very same outfit a year ago - today was on par, if not worse. I can only speak for myself when I say there was a little 'something' missing from the build-up to the game, perhaps the disappointing transfer window dwindled the levels of optimism. Well if that hadn't, the first half hour most certainly did. You know, it looked like Pardew had fired up his starting eleven a couple of minutes in. We held the ball, and looked to shock Sunderland with an early goal. However, the visitors soon found their feet and began to pass the ball around, using the full width of the pitch.  Their new signing, Liam Bridcutt, integral to their early endeavours sitting just in front of Sunderland's back four. 
+Awful. Atrocious. Abysmal. Appalling. Just four words to describe Newcastle United's performance against Sunderland in the Tyne-Wear at St.James' Park today. Whatever about the 'once-off' showing the lads put in against the very same outfit a year ago - today was on par, if not worse. I can only speak for myself when I say there was a little 'something' missing from the build-up to the game, perhaps the disappointing transfer window dwindled the levels of optimism. Well if that hadn't, the first half hour most certainly did. You know, it looked like Pardew had fired up his starting eleven a couple of minutes in. We held the ball, and looked to shock Sunderland with an early goal. However, the visitors soon found their feet and began to pass the ball around, using the full width of the pitch. Their new signing, Liam Bridcutt, integral to their early endeavours sitting just in front of Sunderland's back four.
 
 _Then_, things got bad..
 
@@ -37,7 +37,7 @@ After paying good money to secure a seat at the game, thousands of fans had a ri
 
 Eventually the final whistle sounded and brought an end to a truly miserable 93 minutes at St. James' Park. The managers had a quick handshake at the end before Pardew disappeared down the tunnel. That was where I left watching and turned off, suiting really&#8230;.
 
-So there is my thoughts on the derby disaster. Outplayed, outclassed, out thought. Credit to Sunderland for their commanding performance but my word, that was one of the worst Tyne-Wear performances from NUFC that I have seen in my lifetime. It lacked heart - and the absence of that in _any_ derby is a recipe for failure.
+So there is my thoughts on the derby disaster. Outplayed, outclassed, out thought. Credit to Sunderland for their commanding performance but my word, that was one of the worst Tyne-Wear performances from NUFC that I have seen in my lifetime. It lacked heart - and the absence of that in *any* derby is a recipe for failure.
 
 With all that said, it can only get better. A return to the natural passing football that saw us rise up the league table, please.
 

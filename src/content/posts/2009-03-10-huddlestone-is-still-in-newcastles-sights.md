@@ -6,7 +6,6 @@ date: 2009-03-10T19:00:37+00:00
 url: /2009/03/10/huddlestone-is-still-in-newcastles-sights/
 categories:
   - Newcastle United News
-
 ---
 
 Well it seems the rumours are at it again, what a surprise. Today we've been told from various media sources that Newcastle were after Tom Huddlestone in January and we are expected to pursue him again in the Summer which will be quite pleasing to any Newcastle fans like myself 😀 Reports suggest we made a bid for him after the City game in which Barton got injured 🙁 however the approach was rejected from old Harry and we decided to go and snap Kevin Nolan up instead and in my opinion we didn't lower our standard of quality when choosing Nolan 😀

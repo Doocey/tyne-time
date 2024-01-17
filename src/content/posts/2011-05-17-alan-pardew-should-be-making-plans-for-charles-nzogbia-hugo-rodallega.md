@@ -1,9 +1,9 @@
 ---
-title: 'Alan Pardew should be making plans for Charles N’Zogbia & Hugo Rodallega'
+title: "Alan Pardew should be making plans for Charles N’Zogbia & Hugo Rodallega"
 author: Kevin Doocey
 type: post
 date: 2011-05-17T12:17:32+00:00
-excerpt: 'It was great on Sunday to sit back and watch both Birmingham vs. Fulham & Wigan Athletic vs. West Ham carefree. We did not..'
+excerpt: "It was great on Sunday to sit back and watch both Birmingham vs. Fulham & Wigan Athletic vs. West Ham carefree. We did not.."
 url: /2011/05/17/alan-pardew-should-be-making-plans-for-charles-nzogbia-hugo-rodallega/
 categories:
   - Joe Kinnear
@@ -14,7 +14,7 @@ categories:
 
 #### Rodallega - Someone who could do a very good job at Newcastle United
 
-It was great on Sunday to sit back and watch both Birmingham vs. Fulham & Wigan Athletic vs. West Ham carefree. We did not need to worry about Newcastle United because we had guaranteed our safety a week earlier. Also, looking at Birmingham, Wigan and West Ham - you might also remember that we beat them all away from home this season, and indeed managed to get 16 out of a possible  18 points from those three troubled teams. That explains why we are only 3 points off 8th position, and not in a relegation scrap. Either way, the two matches left for a last day finale in the Premier League - something we played a part in a couple of seasons back.
+It was great on Sunday to sit back and watch both Birmingham vs. Fulham & Wigan Athletic vs. West Ham carefree. We did not need to worry about Newcastle United because we had guaranteed our safety a week earlier. Also, looking at Birmingham, Wigan and West Ham - you might also remember that we beat them all away from home this season, and indeed managed to get 16 out of a possible 18 points from those three troubled teams. That explains why we are only 3 points off 8th position, and not in a relegation scrap. Either way, the two matches left for a last day finale in the Premier League - something we played a part in a couple of seasons back.
 
 From watching Wigan, you have to say they've improved considerably and are giving their best to stay in the Barclays Premier League. Roberto Martinez tries to get them to play smooth football, plenty of passing and there were some very nice pieces of play at the DW Stadium on Sunday, aided by a very dodgy West Ham defence - and an unreliable goalkeeper.
 

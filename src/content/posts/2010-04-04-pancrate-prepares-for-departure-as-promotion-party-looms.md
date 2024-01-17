@@ -12,7 +12,7 @@ categories:
 
 ### Pancrate - Will more than likely depart St.James' at the end of the season
 
-Fabrice Pancrate arrived on a free from France earlier this season and on his full debut, scored an absolute screamer to seal a very good three points at home to Watford. It was a brilliant bit of skill from the 30 year-old but since then, we've seen very little of the former PSG winger. In fact, Pancrate is reportedly already making plans for life after Newcastle United and indeed when our  Coca Cola Championship campaign comes to an end. It's not a surprise really but I suppose it's quite ironic, considering this is the guy who claimed 'I bleed black and white blood' or something to that effect! 😀
+Fabrice Pancrate arrived on a free from France earlier this season and on his full debut, scored an absolute screamer to seal a very good three points at home to Watford. It was a brilliant bit of skill from the 30 year-old but since then, we've seen very little of the former PSG winger. In fact, Pancrate is reportedly already making plans for life after Newcastle United and indeed when our Coca Cola Championship campaign comes to an end. It's not a surprise really but I suppose it's quite ironic, considering this is the guy who claimed 'I bleed black and white blood' or something to that effect! 😀
 
 He isn't making the real big news though, but instead our tie at home to Sheffield United is because if we even manage a draw, then we'll be back in the Premier League.
 

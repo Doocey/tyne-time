@@ -15,7 +15,7 @@ categories:
 
 I watched the whole ninety minutes of Newcastle United's thumping at the Britannia on Saturday and was less than impressed as you would. We were dominated, looked heartless and make a desperate Stoke City team look like a team a division above us.
 
-Jon Walters header before the break was a great header from a great Jermaine Pennant cross; take nothing away from them. Sol Campbell was  the wrong side of the Irishman for sure but even the best centre-backs in the world are caught out from time to time.
+Jon Walters header before the break was a great header from a great Jermaine Pennant cross; take nothing away from them. Sol Campbell was the wrong side of the Irishman for sure but even the best centre-backs in the world are caught out from time to time.
 
 A lot of stick was given to Sol throughout that game and it is very harsh to say the least. He gave a pretty solid performance for a guy who had not played in a considerable amount of time and some of his passing from his half was assured to say the least.
 

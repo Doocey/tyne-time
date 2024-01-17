@@ -11,11 +11,12 @@ categories:
   - Mike Ashley
   - Newcastle United News
 ---
+
 ![Hughton - Looking for a respectable deal from Newcastle United](https://i.telegraph.co.uk/telegraph/multimedia/archive/01756/hughton_1756622c.jpg "Chris Hughton")
 
 #### Hughton - Has done a fantastic job since taking over a sinking ship
 
-What can we say about this man? Bringing a relegated club back up to the Premier League straight away, with a record number of points, buying for pennies, some seriously talented footballers, going to Stamford Bridge in the Cup and scoring 4 goals, including an injury time winner in one of the most memorable cup games of the decade, giving us a 5-1 thrashing  of our bitter rivals Sunderland to celebrate about, and on Sunday last, bringing us to the Emirates Stadium where we beat Arsenal 0-1 thanks to an Andy Carroll header, courtesy of a much practiced tactic. What he has done, is simply incredible, even if we were to scrape relegation by the skin of our teeth this season.
+What can we say about this man? Bringing a relegated club back up to the Premier League straight away, with a record number of points, buying for pennies, some seriously talented footballers, going to Stamford Bridge in the Cup and scoring 4 goals, including an injury time winner in one of the most memorable cup games of the decade, giving us a 5-1 thrashing of our bitter rivals Sunderland to celebrate about, and on Sunday last, bringing us to the Emirates Stadium where we beat Arsenal 0-1 thanks to an Andy Carroll header, courtesy of a much practiced tactic. What he has done, is simply incredible, even if we were to scrape relegation by the skin of our teeth this season.
 
 He brings about a certain glow of hope, a sense of confidence, a likability, yet humility, all from a small man on the sideline. As I've said before, and I'll say it again, he's a type of manager that we haven't had in a long time, and I mean that. If I was Mike Ashley, I would have slapped in front of Chris, a £35,000 a week deal for the next three years, after the 5-1 hammering of Sunderland (I love saying that!). It really is a no brainer, yet the hierarchy of this club seem to want to keep Chris on a League 1 manager's salary, even amidst all the high earners in clubs worse off than us.
 

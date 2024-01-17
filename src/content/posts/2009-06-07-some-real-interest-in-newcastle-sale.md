@@ -10,7 +10,7 @@ categories:
 
 ### NUFC - 2 or 3 interested parties
 
-It's your usual Sunday goss about Newcastle and there are articles flying everywhere. However we think this is a real one and that it can be from a trusted source. Apparently there are  '2 or 3' parties interested in Newcastle United with Freddy Sheppard one of them. Speaking today Keith Harris, the man given the job to sell the club said there was some 'real, decent' interest in buying Newcastle United and that a deal could well be sorted before July.
+It's your usual Sunday goss about Newcastle and there are articles flying everywhere. However we think this is a real one and that it can be from a trusted source. Apparently there are '2 or 3' parties interested in Newcastle United with Freddy Sheppard one of them. Speaking today Keith Harris, the man given the job to sell the club said there was some 'real, decent' interest in buying Newcastle United and that a deal could well be sorted before July.
 
 Harris said :
 

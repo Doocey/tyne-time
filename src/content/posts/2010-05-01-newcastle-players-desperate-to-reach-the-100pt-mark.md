@@ -11,7 +11,7 @@ categories:
 
 ### Smith - Was determined to avenge the memories of Premier League relegation
 
-As of now, Newcastle United are on 99pts at the top of the Coca Cola Championship. When we suffered relegation on the 24th of May 2009, I don't think there was many fans who expected such a rumbustious and professional display for the 45 fixtures so far. The team lost a fair few players, from Michael Owen, to Obafemi Martins. However, the guys that remained have  made Newcastle United proud and a win tomorrow would see them reach a staggering 100pts in a single season.
+As of now, Newcastle United are on 99pts at the top of the Coca Cola Championship. When we suffered relegation on the 24th of May 2009, I don't think there was many fans who expected such a rumbustious and professional display for the 45 fixtures so far. The team lost a fair few players, from Michael Owen, to Obafemi Martins. However, the guys that remained have made Newcastle United proud and a win tomorrow would see them reach a staggering 100pts in a single season.
 
 We'll travel to Loftus Road tomorrow to try and finish off the job we started, by claiming an impressive 102 points this Coca Cola Championship. Our Premier League status had been granted before we kicked a ball at home to Sheffield United a few weeks back and that relieved many fans and indeed players at Newcastle.
 

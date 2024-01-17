@@ -1,6 +1,6 @@
 ---
 title: Cheick Tioté and Yoan Gouffran deserve to be dropped
-description: 'Hard workers or not, recent performances suggest that neither Cheick Tiote or Yoan Gouffran deserve a starting role in the current Newcastle United setup.'
+description: "Hard workers or not, recent performances suggest that neither Cheick Tiote or Yoan Gouffran deserve a starting role in the current Newcastle United setup."
 author: Kevin Doocey
 type: post
 date: 2014-12-14T17:04:33+00:00

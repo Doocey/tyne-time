@@ -16,7 +16,7 @@ categories:
 
 #### Carroll - Scored a peach of a goal today in a very good win dedicated to Chris
 
-First things first - what a brave man Mike Ashley is showing up to Newcastle United v Liverpool today. I didn't expect to see his unsightly figure in the luxurious stands of St.James' Park during Alan Pardew's first game in charge. However, I expect it was exactly that that lured the owner to the game, to oversee his new signing, and to decide whether he needed  the sack just yet.
+First things first - what a brave man Mike Ashley is showing up to Newcastle United v Liverpool today. I didn't expect to see his unsightly figure in the luxurious stands of St.James' Park during Alan Pardew's first game in charge. However, I expect it was exactly that that lured the owner to the game, to oversee his new signing, and to decide whether he needed the sack just yet.
 
 Anyway, it was an excellent win for Newcastle today, with the lads showing real class and professionalism in the way they went about their business. Alan Pardew might look like he's got off to a great start as manager of Newcastle United and he has, but that win was for Chris and indeed Mr. Hughton is responsible for the precious three points that we managed to get this evening.
 

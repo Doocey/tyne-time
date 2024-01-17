@@ -12,7 +12,7 @@ categories:
 
 ### Andrews - Reportedly wanted by Chris Hughton to bolster midfield
 
-The Sunday Papers are at it again per usual. Today they again threw up some tasty yet laughable rumours which you love to hate. The latest, is that Chris Hughton is looking to strengthen the midfield up, with Keith Andrews his preferred target. I must say, being an Irishman and seeing Andrews play internationally, he's nothing special. Far from it actually, he's a  typical Sam Allardyce player, works hard and tackles hard. The only good game I've ever seen him play in an Ireland shirt was the night in Paris, where Ireland were denied a World Cup spot.
+The Sunday Papers are at it again per usual. Today they again threw up some tasty yet laughable rumours which you love to hate. The latest, is that Chris Hughton is looking to strengthen the midfield up, with Keith Andrews his preferred target. I must say, being an Irishman and seeing Andrews play internationally, he's nothing special. Far from it actually, he's a typical Sam Allardyce player, works hard and tackles hard. The only good game I've ever seen him play in an Ireland shirt was the night in Paris, where Ireland were denied a World Cup spot.
 
 On top of all this, the icing on the cake is that Sam Allardyce wants Alan Smith in exchange. Smith, who has captained the side for large parts of the season is still unproven but far from the free-scoring forward he used to be, and Sam Allardyce can be thanked for that if you ask me.
 

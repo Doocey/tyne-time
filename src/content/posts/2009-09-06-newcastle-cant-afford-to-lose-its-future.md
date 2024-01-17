@@ -12,7 +12,7 @@ categories:
 
 ### Vuckic - Becoming a target for big European teams
 
-As I've said many times before, and it's been emphasised quite a lot elsewhere is the youth setup Newcastle United have at the minute and indeed the fruit we are bearing from it. It's without a doubt the best thing Mike Ashley implemented on Tyneside during his torrid tenure but I'm speaking as if he's gone, unfortunately he's not, just yet. A man who is attracting a lot of interest at just 17 is  Haris Vuckic, the Slovenian attacking midfielder. Newcastle completed a major coup when sealing his signature from NK Domžale and his dazzling performances in youth and reserve games hasn't gone unnoticed.
+As I've said many times before, and it's been emphasised quite a lot elsewhere is the youth setup Newcastle United have at the minute and indeed the fruit we are bearing from it. It's without a doubt the best thing Mike Ashley implemented on Tyneside during his torrid tenure but I'm speaking as if he's gone, unfortunately he's not, just yet. A man who is attracting a lot of interest at just 17 is Haris Vuckic, the Slovenian attacking midfielder. Newcastle completed a major coup when sealing his signature from NK Domžale and his dazzling performances in youth and reserve games hasn't gone unnoticed.
 
 Most of the youth players at Newcastle didn't take relegation as badly as some others, they saw it as a chance to get one foot in the door of playing for the club and that is exactly what has happened. As of today, Haris Vuckic, Ryan Donaldson, Nile Ranger, Callum Morris, Tamas Kadar and Kazenga Lua Lua have all tasted first team football, something they wouldn't have dreamed of (as quickly), if we managed to stay in the Premier League.
 

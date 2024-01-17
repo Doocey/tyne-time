@@ -13,7 +13,7 @@ categories:
 
 Around this time last year Newcastle were looking into potential fixtures that would bring them up the table and secure safety. This time around, we're looking at our game at home to West Bromich Albion as key match where the Coca Cola Championship will take a huge step in churning out winners and promotion candidates with Newcastle hopefully finishing aloft the table come
 
- May. If we ever faced an important game it's tonight, in St.James' Park, at home to Roberto di Matteo's West Bromich Albion. Tonight's the night for 'heroes' or whatever you'd like to call them.
+May. If we ever faced an important game it's tonight, in St.James' Park, at home to Roberto di Matteo's West Bromich Albion. Tonight's the night for 'heroes' or whatever you'd like to call them.
 
 The likes of Kevin Nolan, Alan Smith, Steve Harper & Shola Ameobi will prove very important against what'll be a good West Brom side. di Matteo's boys know the stature of this game and he'll have them well drilled. I'm sure their young team will prove quite the cocktail for out lads.
 

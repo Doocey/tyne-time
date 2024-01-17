@@ -14,7 +14,7 @@ categories:
 
 #### Llambias - Has flown over with Lee Charnley to agree a fee for FC Twente's #9
 
-When Derek Llambias boards a plane to Holland for Newcastle United related business, you know something big is happening. The latest update in the Luuk de Jong situation is that we have a delegation over in the Netherlands to hopefully agree a fee for the forward and begin contract negotiations - before the striker makes a Europa League performance and inevitably, deem him ineligible for European action in a NUFC shirt. The potential signing of the 21 year-old is with  our European interests in mind. As we all know, we need plenty of legs to balance our European endeavours with our Premier League campaign.
+When Derek Llambias boards a plane to Holland for Newcastle United related business, you know something big is happening. The latest update in the Luuk de Jong situation is that we have a delegation over in the Netherlands to hopefully agree a fee for the forward and begin contract negotiations - before the striker makes a Europa League performance and inevitably, deem him ineligible for European action in a NUFC shirt. The potential signing of the 21 year-old is with our European interests in mind. As we all know, we need plenty of legs to balance our European endeavours with our Premier League campaign.
 
 Despite news bouncing around that NUFC will have to pay a 'silly fee' to land the Dutchman, cash payment will be enough to tempt the management at FC Twente into accepting a bid. Rather than spreading out the fee over a couple of years, or base it on performances related installments - Newcastle United are offering €12m in **cash** without any strings attached.
 
@@ -26,7 +26,7 @@ We have already submitted an improved offer for the French international and wha
 
 Anita, is on our list of targets, but when it comes to the pecking order, he isn't on par with Debuchy or de Jong regards priority.
 
-We can expect some developments in the next 3 days and without sticking my neck on the line too much here; I would be very surprised if we don't make **significant** progress with Debuchy _and_ de Jong.
+We can expect some developments in the next 3 days and without sticking my neck on the line too much here; I would be very surprised if we don't make **significant** progress with Debuchy *and* de Jong.
 
 Stay tuned folks, and make sure you're following us on Twitter [@TyneTime](https://twitter.com/ "Tyne Time Twitter") and if you haven't liked our [Facebook page](http://www.facebook.com/tynetime "Tyne Time Facebook") already, make sure you do.
 

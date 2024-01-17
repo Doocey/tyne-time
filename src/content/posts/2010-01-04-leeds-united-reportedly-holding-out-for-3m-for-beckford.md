@@ -13,7 +13,7 @@ categories:
 
 ### Beckford - Leeds want £3m for FA Cup hero
 
-If reports are to be believed, Leeds United are holding out for £3m for their FA Cup hero, Jermaine Beckford. The striker who scored the winning goal in Old Trafford yesterday to knock Manchester United out of the FA Cup, is highly touted to join us this January. However, the goalposts have moved pricewise, as you would have expected. Our original bid of £1.25m was rejected  early last week and it was believed a bid of £2m would be enough to lure the 26 year-old away from Elland Road, however his value has nearly doubled and Leeds are looking to get as much as they can for their 20 goal striker.
+If reports are to be believed, Leeds United are holding out for £3m for their FA Cup hero, Jermaine Beckford. The striker who scored the winning goal in Old Trafford yesterday to knock Manchester United out of the FA Cup, is highly touted to join us this January. However, the goalposts have moved pricewise, as you would have expected. Our original bid of £1.25m was rejected early last week and it was believed a bid of £2m would be enough to lure the 26 year-old away from Elland Road, however his value has nearly doubled and Leeds are looking to get as much as they can for their 20 goal striker.
 
 Hughton has already said on many occasions that he's in the hunt for both Jermaine and Matthew Kilgallon but he's not the only one. With Bolton set to appoint Owen Coyle as manager, it wouldn't surprise me at all if he went in search of 'Becks' or 'The Killer'.
 

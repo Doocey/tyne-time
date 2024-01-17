@@ -11,7 +11,7 @@ categories:
 
 ![Cardiff City clash with prove a vital](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2009/10/24/1256413692446/Peter-Whittingham-of-Card-001.jpg "Whittingham - Scoring goals for fun the Coca Cola Championship this season")
 
-It's no lie to say that our clash with Cardiff City on Friday could prove the most important game we've played all season. I know every game is important and match with West Brom at St.James' Park only a few weeks ago was too a momentous clash. However, there's even more on the line in our upcoming fixture against Dave Jones men. Cardiff in flying form of late and  Michael Chopra's back to scoring ways, not to even mention Peter Whittingham who has been fantastic for the Blue Birds this season. This game could make or break our season.
+It's no lie to say that our clash with Cardiff City on Friday could prove the most important game we've played all season. I know every game is important and match with West Brom at St.James' Park only a few weeks ago was too a momentous clash. However, there's even more on the line in our upcoming fixture against Dave Jones men. Cardiff in flying form of late and Michael Chopra's back to scoring ways, not to even mention Peter Whittingham who has been fantastic for the Blue Birds this season. This game could make or break our season.
 
 Alan Smith and his fellow colleagues are feeling the pressure now with a few draws of late, our latest away to Nigel Pearson's Leicester City.  However, if we do indeed mess up at home to Cardiff City on Friday, the title race will open up to more than Newcastle United, Nottingham Forest and West Brom, we'll see Cardiff move into a very threatening position.
 

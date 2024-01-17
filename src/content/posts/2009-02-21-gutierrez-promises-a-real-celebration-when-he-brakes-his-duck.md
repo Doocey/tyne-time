@@ -6,8 +6,8 @@ date: 2009-02-21T15:50:53+00:00
 url: /2009/02/21/gutierrez-promises-a-real-celebration-when-he-brakes-his-duck/
 categories:
   - Newcastle United News
-
 ---
+
 ### Jonas - We can't wait for the celebration!
 
 Jonas Gutierrez has promised that when he does finally score his first goal for Newcastle that a real celebration will be on it's way to the Geordies. Hopefully when he does score it will be in St.James' Park in front of all the brilliant fans that he has so much respect for and alike.

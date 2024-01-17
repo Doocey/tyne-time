@@ -6,8 +6,8 @@ date: 2009-03-21T21:39:30+00:00
 url: /2009/03/21/martins-goal-drought-oba-but-still-no-win-in-14/
 categories:
   - Newcastle United News
-
 ---
+
 ![Martins - Missed a crucial penalty but his persistence got him one](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2008/05/14/ObafemiMartinsReutersPhilNoble1.jpg)
 
 Where to start? Newcastle are in trouble, quite deep trouble indeed. Although the Daily Mail claim we're all ready relegated (How do they know these things?) there is sign of hope for us after today's game. We pushed form the start and were all over the Gunners. Finally our persistence was rewarded when Ryan Taylor was fouled by Almunia ending in a penalty. However what could go wrong, went wrong, an extremely poor penalty from Obafemi Martins easily saved by Almunia to his low left. After all this we still tried to press and Lovenkrands nearly scored. Kevin Nolan on his return also had an opportunity but Gael Clichy was there to block the shot

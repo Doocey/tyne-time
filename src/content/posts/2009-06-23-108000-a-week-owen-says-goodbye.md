@@ -10,7 +10,7 @@ categories:
 
 ### Owen - Never a success at Newcastle
 
-We all remember the day he signed. First he said he only wanted a loan deal and then changed his mind. He opted to join Newcastle United from Real Madrid for a staggering fee of £17m. Most Newcastle fans were delighted as this was a  major coup for the Toon. Owen got a heroes welcome when he was showcased in St.James' Park and knew he had a lot to do, to repay the grateful support. Unfortunately, injuries upon injuries hampered his career at Newcastle and he only managed a few games alongside Alan Shearer the great.
+We all remember the day he signed. First he said he only wanted a loan deal and then changed his mind. He opted to join Newcastle United from Real Madrid for a staggering fee of £17m. Most Newcastle fans were delighted as this was a major coup for the Toon. Owen got a heroes welcome when he was showcased in St.James' Park and knew he had a lot to do, to repay the grateful support. Unfortunately, injuries upon injuries hampered his career at Newcastle and he only managed a few games alongside Alan Shearer the great.
 
 This time round Shearer is manager, or was , and Owen played under Shearer. There is no doubt Owen is a class finisher and a talented player but anyone who suffered the injuries Michael did wouldn't heal completely. It seemed Owen had lost that yard of pace and inevitably., that was what Michael Owen stand out. His ability to shave defenders and finish precisely was why Newcastle United paid more than they did for Alan Shearer, for Owen.
 

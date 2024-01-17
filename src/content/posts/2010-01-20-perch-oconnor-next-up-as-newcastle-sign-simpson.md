@@ -1,5 +1,5 @@
 ---
-title: 'Perch & O’Connor next up as Newcastle sign Simpson'
+title: "Perch & O’Connor next up as Newcastle sign Simpson"
 author: Kevin Doocey
 type: post
 date: 2010-01-20T21:20:41+00:00
@@ -12,7 +12,7 @@ categories:
 
 ### Perch - A more than decent defender who Forest want to keep
 
-The breaking news is, as I'm sure you've heard is that we've finally managed to sign someone, and in the shape of Danny Simpson. The Manchester United former joins for a reported fee of £500k and on £10,000 a week wages, which if true, is very very good value. On top of that, if the wage figure that's being thrown about the place is accurate then I wonder what all the  confusion was about? Reports earlier suggested that he was demanding £30,000 p/w which is surely untrue. It's good to see we've managed to sign Danny as he's a good lad and fits the bill for Newcastle 🙂
+The breaking news is, as I'm sure you've heard is that we've finally managed to sign someone, and in the shape of Danny Simpson. The Manchester United former joins for a reported fee of £500k and on £10,000 a week wages, which if true, is very very good value. On top of that, if the wage figure that's being thrown about the place is accurate then I wonder what all the confusion was about? Reports earlier suggested that he was demanding £30,000 p/w which is surely untrue. It's good to see we've managed to sign Danny as he's a good lad and fits the bill for Newcastle 🙂
 
 Now that our first signing has arrived we do really want and need more. Oyr bid for James Perch was rejected by Billy Davies and described as 'derisory'. The bid, according to sources was only £1m. Perch is highly rated with The Forest fans and indeed Colin Calderwood, and it's clear that Billy Davies doesn't want to sell.
 

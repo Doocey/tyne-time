@@ -1,9 +1,9 @@
 ---
-title: 'Graham Carr labels Mike Ashley & Derek Llambias as “fantastic people to work for”'
+title: "Graham Carr labels Mike Ashley & Derek Llambias as “fantastic people to work for”"
 author: Kevin Doocey
 type: post
 date: 2011-11-13T12:01:01+00:00
-excerpt: 'Despite the extraordinary outburst by Derek Llambias last night Graham Carr has only positive things to say about the two men that run this football club; Mike Ashley & Derek Llambias..'
+excerpt: "Despite the extraordinary outburst by Derek Llambias last night Graham Carr has only positive things to say about the two men that run this football club; Mike Ashley & Derek Llambias.."
 url: /2011/11/13/graham-carr-labels-mike-ashley-derek-llambias-as-fantastic-people-to-work-for/
 categories:
   - Derek Llambias
@@ -15,7 +15,7 @@ categories:
 
 #### Signings - Tioté and Yohan Cabaye signings advised by chief scout Graham Carr
 
-Despite the extraordinary outburst by Derek Llambias last night Graham Carr has only positive things to say about the two men that run this football club; Mike Ashley & Derek Llambias. Both are still seen as businessmen and their disregard for the supporters of this great football club is held against them, time and time again. They've made some ridiculous decisions in their time on Tyneside  it has to be said but financially they've brought Newcastle Unite back on a sound footing and are hoping to break-even in the books this year.
+Despite the extraordinary outburst by Derek Llambias last night Graham Carr has only positive things to say about the two men that run this football club; Mike Ashley & Derek Llambias. Both are still seen as businessmen and their disregard for the supporters of this great football club is held against them, time and time again. They've made some ridiculous decisions in their time on Tyneside it has to be said but financially they've brought Newcastle Unite back on a sound footing and are hoping to break-even in the books this year.
 
 It is clear that Ashley is somewhat running NUFC like his Sports Direct franchise - he has put his stamp on the club. Whether it's been the countless advertising, the two changes in the stadium name, the sackings and appointments at the club and indeed the player recruitment system that is now in place - Ashley has transformed this club, whether it's for the better - only you can decide. Personally, I'm in favour the majority that he has applied.
 

@@ -14,7 +14,7 @@ categories:
 
 ### Harewood - Looked sharp yesterday
 
-Not long ago we had Michael Owen, one of the worlds most famous footballer, lining out in the Black and White of Newcastle United but after a rather dismal turn in events (relegation) Owen left, for the better we think. Yesterday the vacant #10 jersey was sported by Newcastle's new signing, Marlon Harewood, on loan from Aston Villa. It quite an interesting turn around at  Newcastle, as it seems Chris has filled the vacant positions, left behind by high paid 'stars', with determined players who want the very best for Newcastle United and their mighty fans.
+Not long ago we had Michael Owen, one of the worlds most famous footballer, lining out in the Black and White of Newcastle United but after a rather dismal turn in events (relegation) Owen left, for the better we think. Yesterday the vacant #10 jersey was sported by Newcastle's new signing, Marlon Harewood, on loan from Aston Villa. It quite an interesting turn around at Newcastle, as it seems Chris has filled the vacant positions, left behind by high paid 'stars', with determined players who want the very best for Newcastle United and their mighty fans.
 
 Newcastle bear Roy Keane's weak side by four goals to nil, and mind you, it could've been a lot more than that should Newcastle had the likes of Joey Barton, Jonas Gutierrez or even Shola Ameobi. However, it was a polished performance from the lads all the same.
 

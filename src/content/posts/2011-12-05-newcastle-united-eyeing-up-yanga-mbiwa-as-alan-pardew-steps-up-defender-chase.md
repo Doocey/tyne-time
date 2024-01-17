@@ -14,7 +14,7 @@ categories:
 
 #### Mbiwa - £5m rated defender could arrive on Tyneside in January with Maiga
 
-With Steven Taylor very unlikely to feature again in the 2011/12 Premier League campaign, Alan Pardew is set to up the ante in the January transfer window and sign a replacement. Frenchman Mapou Yanga-Mbiwa had been linked with Newcastle in recent weeks, however Pardew played down any supposed interest. As you would expect, since the injury to Tayls, we are being linked  with him again and it's reported that members of our scouting team have advised Alan on the defender.
+With Steven Taylor very unlikely to feature again in the 2011/12 Premier League campaign, Alan Pardew is set to up the ante in the January transfer window and sign a replacement. Frenchman Mapou Yanga-Mbiwa had been linked with Newcastle in recent weeks, however Pardew played down any supposed interest. As you would expect, since the injury to Tayls, we are being linked with him again and it's reported that members of our scouting team have advised Alan on the defender.
 
 I mentioned yesterday that Kádár had a big opportunity to stake his claims in the team but various local papers are suggesting that it would take something special for the Hungarian to be considered as a season long replacement.
 

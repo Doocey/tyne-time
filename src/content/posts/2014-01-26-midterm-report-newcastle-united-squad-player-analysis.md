@@ -1,6 +1,6 @@
 ---
-title: 'Midterm Report: Newcastle United squad player analysis'
-description: 'Tyne Time concludes its Midterm Report series with a look at the other players in the Newcastle United squad that have contributed so far this season.'
+title: "Midterm Report: Newcastle United squad player analysis"
+description: "Tyne Time concludes its Midterm Report series with a look at the other players in the Newcastle United squad that have contributed so far this season."
 author: Kevin Doocey
 type: post
 date: 2014-01-26T17:22:19+00:00
@@ -12,7 +12,7 @@ categories:
 
 ![Newcastle United celebrate Yohan Cabaye' second goal against West Ham](https://www.tynetime.com/wp-content/uploads/2014/01/Newcastle-United-Celebrates-West-Ham.jpg "Squad - The team's league showing so far has been a collective effort from squad")
 
-When Newcastle have trailed games, or even looked for that extra push to try win a game, it is always exciting to have players such as Hatem Ben Arfa on the bench raring to come on. Perhaps sometimes when Loic Rémy on his own up front is not working, Pardew usually opts to bring on Shola Ameobi for Vurnon Anita to hassle the opposition's back four. Papiss Cissé is another man who has been introduced this season with the hope of grabbing a result against teams, but unfortunately some substitutions have worked out better than others. At this stage, I have reviewed 11 players and their performances so far this season. The eleven I chose are the members which have featured predominately this season, playing a large chunk of the games thus far. Now, in this final article in my 'Midterm Report'  series, I will look at the other players that have aided Newcastle United in their efforts so far this season.
+When Newcastle have trailed games, or even looked for that extra push to try win a game, it is always exciting to have players such as Hatem Ben Arfa on the bench raring to come on. Perhaps sometimes when Loic Rémy on his own up front is not working, Pardew usually opts to bring on Shola Ameobi for Vurnon Anita to hassle the opposition's back four. Papiss Cissé is another man who has been introduced this season with the hope of grabbing a result against teams, but unfortunately some substitutions have worked out better than others. At this stage, I have reviewed 11 players and their performances so far this season. The eleven I chose are the members which have featured predominately this season, playing a large chunk of the games thus far. Now, in this final article in my 'Midterm Report' series, I will look at the other players that have aided Newcastle United in their efforts so far this season.
 
 ![Mapou Yanga-Mbiwa Newcastle Profile](https://www.tynetime.com/wp-content/uploads/2014/01/Mapou-Yanga-Mbiwa-Newcastle-Profile.jpg)
 **Mapou Yanga-Mbiwa (7.5):** The Frenchman has been solid in his efforts throughout the campaign so far. Although a back four of Debuchy, Coloccini, Williamson and Santon has been the norm for Newcastle, Mapou has played a pivotal role in filling in. Considering he is so versatile, it is no wonder he has been involved in over 12 games in the 2013/14 season and his defensive qualities were shown when he nullified Chelsea's attacking threat in a pleasing 2-0 victory over Mourinho's men in November. Mapou has a big future at the club.
@@ -34,7 +34,6 @@ When Newcastle have trailed games, or even looked for that extra push to try win
 
 ![Papiss Cisse NUFC Profile](https://www.tynetime.com/wp-content/uploads/2014/01/Shola-Ameobi-Newcastle-Profile.jpg)
 **Shola Ameobi (7.0):** When Newcastle recorded a 100% win record for the month of November, Shola was central to the fine form. He looked a changed man, hassling defenders, laying off some fine passes before causing defenders nightmares with his aerial prowess. In a partnership with Loic Rémy, they combined well but the stark truth is Shola _hasn't scored a league goal for NUFC all season_. With the World Cup approaching and his contract to expire in June as well, maybe, just maybe he'll find a resurgence of form and prove to everyone why he has been on the books at the club for **14 years**.
-
 
 Well - that brings Tyne Time's 'Midterm Report' series to a close. I hope you have enjoyed reading my reviews of each Newcastle United player and their performances so far this season. It is always nice to be able to write positively about most players in the squad and hopefully between now and the end of the season we can push on and try to grab a place in Europe..
 

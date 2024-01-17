@@ -6,7 +6,6 @@ date: 2009-04-15T12:22:51+00:00
 url: /2009/04/15/shay-given-hoping-for-newcastle-survival/
 categories:
   - Newcastle United News
-
 ---
 
 ### Given - Praying for Newcastle's safety

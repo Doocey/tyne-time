@@ -12,7 +12,7 @@ categories:
 
 ### Beckford - Seems pretty happy about joining Newcastle eh?
 
-News has just broke that Jermaine Beckford is joining Newcastle United. In possibly the shortest interview I've even read, Beckford simply said he would be joining Newcastle United and nothing else. It was a Tyne Time viewer who spotted this a few minutes ago and I in return am writing about what should be our first signing of the January transfer window. Neither Leeds  United or Newcastle United have confirmed that this is true but you don't have to be a genius to work out it's the truth (or we think so). It seems the long debacle over who he'd be joining is over, or so it appears anyway.
+News has just broke that Jermaine Beckford is joining Newcastle United. In possibly the shortest interview I've even read, Beckford simply said he would be joining Newcastle United and nothing else. It was a Tyne Time viewer who spotted this a few minutes ago and I in return am writing about what should be our first signing of the January transfer window. Neither Leeds United or Newcastle United have confirmed that this is true but you don't have to be a genius to work out it's the truth (or we think so). It seems the long debacle over who he'd be joining is over, or so it appears anyway.
 
 Speaking to GOAL, he said :
 

@@ -12,9 +12,9 @@ categories:
 
 #### Cotterill - Scored a beauty today in what was a lucky point for the Toon
 
-A precious point, one to bring us aloft the Coca Cola Championship again, and even Nottingham Forest lost, again aiding our promotion push. Sounds like the perfect day eh? Not for me. A lazy, disappointing and a beleaguered effort from a side who based on todays performance, do not deserve to win the title outright. We were poor throughout the 90 minutes at the Liberty Stadium  today and as my previous article suggested, it was never going to be an easy affair away to the Welsh side. Needless to say we didn't help ourselves, with our
+A precious point, one to bring us aloft the Coca Cola Championship again, and even Nottingham Forest lost, again aiding our promotion push. Sounds like the perfect day eh? Not for me. A lazy, disappointing and a beleaguered effort from a side who based on todays performance, do not deserve to win the title outright. We were poor throughout the 90 minutes at the Liberty Stadium today and as my previous article suggested, it was never going to be an easy affair away to the Welsh side. Needless to say we didn't help ourselves, with our
 
- **only** shot on target coming from the **head** of Andy Carroll which happened to be the valuable equaliser.
+**only** shot on target coming from the **head** of Andy Carroll which happened to be the valuable equaliser.
 
 Fabricio Coloccini made a return to the side to partner Fitz Hall as we also saw Peter Lovenkrands and Andy Carroll start up front. The opening stages saw Swansea throw everything at us and were unlucky to go into the HT break on equal terms.
 

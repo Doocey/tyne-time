@@ -3,7 +3,7 @@ title: Ryan Taylor willing to fill Habib Beye’s role
 author: Kevin Doocey
 type: post
 date: 2009-07-25T12:00:10+00:00
-excerpt: 'Ryan Taylor reiterated his desire to remain at Newcastle by saying he wants to fill the departing'
+excerpt: "Ryan Taylor reiterated his desire to remain at Newcastle by saying he wants to fill the departing"
 url: /2009/07/25/ryan-taylor-willing-to-fill-habib-beyes-role/
 categories:
   - Newcastle United News
@@ -12,7 +12,7 @@ categories:
 
 ### Taylor - Hoping to improve on last season
 
-Ryan Taylor today reiterated  his desire to remain at Newcastle by saying he wants to fill the departing Habib Beye's role at right back. Taylor, who arrive din January in a deal which saw Charles N'Zogbia go the other way, never got going in his first season and didn't settle too well. Today he revealed that that the behind the scene's going on's effected everyone's performances and training was far from a normal teams run out. We hope Ryan can come good this season because he has the potential, especially at free-kicks, indeed he was a very annoying player to play against when with Wigan, he continually scored against us, be it from a setpiece or a long range effort from play. Speaking today Ryan said he's looking forward to the new season.
+Ryan Taylor today reiterated his desire to remain at Newcastle by saying he wants to fill the departing Habib Beye's role at right back. Taylor, who arrive din January in a deal which saw Charles N'Zogbia go the other way, never got going in his first season and didn't settle too well. Today he revealed that that the behind the scene's going on's effected everyone's performances and training was far from a normal teams run out. We hope Ryan can come good this season because he has the potential, especially at free-kicks, indeed he was a very annoying player to play against when with Wigan, he continually scored against us, be it from a setpiece or a long range effort from play. Speaking today Ryan said he's looking forward to the new season.
 
 Ryan said:
 

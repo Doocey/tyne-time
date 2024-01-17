@@ -13,7 +13,7 @@ categories:
 
 ### NUFC - Second loss in a row in the second tier of English football
 
-Yesterday Newcastle slumped to their second successive defeat on the road in the Coca Cola Championship. After going behind from some poor defending, we managed to equalise through Kevin Nolan, and it was a very good goal indeed, Premier League quality to be fair. However, we dropped out of the game again and conceded again with ten minutes remaining. After some  petty pressure the final whistle sounded and Newcastle are now no longer on top of the division. What makes it worse is the fact only about half the players seemed bothered.
+Yesterday Newcastle slumped to their second successive defeat on the road in the Coca Cola Championship. After going behind from some poor defending, we managed to equalise through Kevin Nolan, and it was a very good goal indeed, Premier League quality to be fair. However, we dropped out of the game again and conceded again with ten minutes remaining. After some petty pressure the final whistle sounded and Newcastle are now no longer on top of the division. What makes it worse is the fact only about half the players seemed bothered.
 
 Indeed we must say one of the players was Argentina's finest in Jonas Gutierrez who of late, has a habit of shooting, any time he gets the ball in a decent area. We're sure it'll come off at some stage Jonas.
 

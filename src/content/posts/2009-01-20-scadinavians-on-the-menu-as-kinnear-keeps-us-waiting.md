@@ -6,7 +6,6 @@ date: 2009-01-20T22:26:24+00:00
 url: /2009/01/20/scadinavians-on-the-menu-as-kinnear-keeps-us-waiting/
 categories:
   - Newcastle United News
-
 ---
 
 ## Raitala - Ajax and Newcastle both interested

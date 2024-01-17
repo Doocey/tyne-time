@@ -11,7 +11,7 @@ categories:
 
 ![Jason Prior in action for the Newcastle United Reserves while on trial](https://www.tynetime.com/wp-content/uploads/2012/01/Jason-Prior-Newcastle-United.jpg "Jason-Prior-Newcastle-United")
 
-Newcastle United trialist Jason Prior has confirmed that he will not be signing for Newcastle United on a permanent deal following two weeks of training and participation with the reserve squad. The Bognor Regis striker was offered a remarkable opportunity to show NUFC staff his worth and despite scoring on his debut for the reserve squad with a well taken goal; Newcastle  United have decided against signing the 23 year-old. However, it is believed that Rangers FC and a couple of other nPower Championship clubs are interested in taking him on and testing him out.
+Newcastle United trialist Jason Prior has confirmed that he will not be signing for Newcastle United on a permanent deal following two weeks of training and participation with the reserve squad. The Bognor Regis striker was offered a remarkable opportunity to show NUFC staff his worth and despite scoring on his debut for the reserve squad with a well taken goal; Newcastle United have decided against signing the 23 year-old. However, it is believed that Rangers FC and a couple of other nPower Championship clubs are interested in taking him on and testing him out.
 
 The striker thanked Newcastle United fans and staff for their support and best wishes:
 

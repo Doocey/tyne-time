@@ -12,7 +12,7 @@ categories:
 
 ![Chris Hughton has his work cut-out ahead of the Premier League campaign](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2010/4/2/1270231914164/Chris-Hughton-Newcastle-U-007.jpg)
 
-The usual hype of England in the World Cup, the talk of them winning it. The talk of Wayne Rooney establishing himself as the best English striker in football for a long long time, the chat of Fabio Capello leading the Three Lions to World Cup glory. The media expected, the country anticipated but the competition against produced same-old England. What could have been  if the linesman actually opened his eyes and saw the Lampard 'goal'. Stop the nonsense, Germany totally outclassed England yesterday in Bloemfontein and were deserved winners.
+The usual hype of England in the World Cup, the talk of them winning it. The talk of Wayne Rooney establishing himself as the best English striker in football for a long long time, the chat of Fabio Capello leading the Three Lions to World Cup glory. The media expected, the country anticipated but the competition against produced same-old England. What could have been if the linesman actually opened his eyes and saw the Lampard 'goal'. Stop the nonsense, Germany totally outclassed England yesterday in Bloemfontein and were deserved winners.
 
 Technically so much better, far more alert and even though this is a German side that are way off their peak, you'd have thought from their 4-1 win yesterday that it was a competition debut for the Englishmen.
 

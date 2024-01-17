@@ -11,7 +11,7 @@ categories:
 
 ### Arévalo - Been a rock for Uruguay during their World Cup adventure in SA
 
-You may or may not have been watching Uruguay in the World Cup this year but if you have, you'll have noticed their midfielders, and this guy in particular. Egidio Arévalo is a ball winning centre midfielder, to put it mildly. In the games I've watched him, he's chased after players when they haven't had the ball and generally won the ball back, without committing too many  fouls in the process. he operates just ahead of the back four but gets just inside his own half when Uruguay break with possession. Again, when the lose it, he battles back and with Perez alongside, they do a very very good job in midfield.
+You may or may not have been watching Uruguay in the World Cup this year but if you have, you'll have noticed their midfielders, and this guy in particular. Egidio Arévalo is a ball winning centre midfielder, to put it mildly. In the games I've watched him, he's chased after players when they haven't had the ball and generally won the ball back, without committing too many fouls in the process. he operates just ahead of the back four but gets just inside his own half when Uruguay break with possession. Again, when the lose it, he battles back and with Perez alongside, they do a very very good job in midfield.
 
 If you were to compare him to anyone that has played for Newcastle United in the last while, it'd be Nicky Butt as the most recent one anyway. I really like the look of this player and it's not just the shiny head! He's a player who works tirelessly and without complaints, doing the job that no one notices yet is crucial to any footballing side.
 

@@ -16,7 +16,7 @@ While in my usual routine of browsing Twitter ([@KevinDoocey](https://twitter.co
 
 **Jack Colback** is a player that I rate, no doubt about that. Under the correct coaching he could be a very efficient holding midfielder, and he is naturally left-footed which is a rare commodity to have among English players nowadays. At just 24 years-old, plenty of Premier League experience, and a free agent — it made perfect sense for Newcastle to sign him up.
 
-Colback is used to a relegation battle. He has played everywhere from centre-mid, left-wing to indeed left-back in his days in red and white so again, he is a versatile option to have. However, from those relegation fights, Colback hardly  stood out enough to immediately merit a starting role in Newcastle's XI surely?
+Colback is used to a relegation battle. He has played everywhere from centre-mid, left-wing to indeed left-back in his days in red and white so again, he is a versatile option to have. However, from those relegation fights, Colback hardly stood out enough to immediately merit a starting role in Newcastle's XI surely?
 
 **Vurnon Anita** has just turned 25, and this guy is capped by his country (Netherlands), and indeed has worn the captains armband at Ajax - the club he departed for a shot at the Premier League. He can play right-back, but a holding role is best for the 5ft 6inches who on Graham Carr's recommendation, made a £6.7m move to Tyneside.
 

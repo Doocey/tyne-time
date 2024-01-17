@@ -1,5 +1,5 @@
 ---
-title: 'Midterm Report: The luxury loan of Loic Rémy'
+title: "Midterm Report: The luxury loan of Loic Rémy"
 author: Kevin Doocey
 type: post
 date: 2014-01-25T19:45:32+00:00
@@ -12,7 +12,7 @@ categories:
 
 ![Loic Rémy celebrates after scoring against Stoke City](https://www.tynetime.com/wp-content/uploads/2014/01/Loic-Remy-Newcastle-United-Stoke.jpg "Rémy - His goals have helped Newcastle United into a great position in the league")
 
-In mid January 2013 Newcastle United had a bid in the region of £8m accepted by Marseille for their star forward Loic Rémy. The Frenchman was due to travel to Tyneside to complete the move but in the space of a day he had signed the dotted line in London, for Queens Park Rangers. The ex-Lens man didn't even bother making the journey to Newcastle and instead opted to sign for the struggling Premier League outfit managed by Harry Redknapp, after a game of FIFA with the club owner Tony Fernandes. There was disappointment across Tyneside from the manager all the way to the supporters, but in the end Rémy suffered relegation with his new club despite a handful of goals. Fastforward to August of 2013 and Newcastle were back in for the 24 year-old, showing no signs of being deterred by his earlier decision to turn down the Magpies. NUFC confirmed weeks later that they had a agreed a loan deal for the France striker and all rumours were put to bed when  the club released a cheesy looking photo of new director of football Joe Kinnear and Rémy on the hallowed St. James' Park turf.
+In mid January 2013 Newcastle United had a bid in the region of £8m accepted by Marseille for their star forward Loic Rémy. The Frenchman was due to travel to Tyneside to complete the move but in the space of a day he had signed the dotted line in London, for Queens Park Rangers. The ex-Lens man didn't even bother making the journey to Newcastle and instead opted to sign for the struggling Premier League outfit managed by Harry Redknapp, after a game of FIFA with the club owner Tony Fernandes. There was disappointment across Tyneside from the manager all the way to the supporters, but in the end Rémy suffered relegation with his new club despite a handful of goals. Fastforward to August of 2013 and Newcastle were back in for the 24 year-old, showing no signs of being deterred by his earlier decision to turn down the Magpies. NUFC confirmed weeks later that they had a agreed a loan deal for the France striker and all rumours were put to bed when the club released a cheesy looking photo of new director of football Joe Kinnear and Rémy on the hallowed St. James' Park turf.
 
 So since his loan move to Newcastle, how has Loic fared out?
 

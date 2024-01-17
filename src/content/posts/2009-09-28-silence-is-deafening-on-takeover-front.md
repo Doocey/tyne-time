@@ -12,7 +12,7 @@ categories:
 
 ### NUFC - Moat waiting on Keegan scenario
 
-The news hasn't bee based on the takeover news this Sunday or indeed the last week, which is quite surprising. Barry Moat is still on course to complete the takeover of our beloved club but he;s waiting on the Kevin Keegan court case to be settled before he's handed the keys of St.James' Park. You can imagine the scenes around Newcastle when Mike Ashley finally leaves the  club, and a local owner with every ambition to appoint Alan Shearer as manager, control the club properly, or so we hope.
+The news hasn't bee based on the takeover news this Sunday or indeed the last week, which is quite surprising. Barry Moat is still on course to complete the takeover of our beloved club but he;s waiting on the Kevin Keegan court case to be settled before he's handed the keys of St.James' Park. You can imagine the scenes around Newcastle when Mike Ashley finally leaves the club, and a local owner with every ambition to appoint Alan Shearer as manager, control the club properly, or so we hope.
 
 We're currently top of the league now with quite winnable fixtures forthcoming, although QPR will be quiet tough, on the back of a win at the weekend. However, with Kevin Nolan in the form he is, who knows what'll happen.
 

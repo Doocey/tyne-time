@@ -11,7 +11,7 @@ categories:
 
 ![Jose - Linked with Steve Bruces side](https://www4.pictures.zimbio.com/gi/Newcastle+United+v+Sheffield+Wednesday+PTXQFaLG4mdm.jpg)
 
-As my headline suggests Sunderland have been linked with a move for Newcastle's Jose Enrique today but there's no need to get worried, it's only coming from the News Of The World who on Sundays, usually dedicate at least 2 articles to us. The reports claim that Bruce will make his move in January for the Spaniard and will hope to seal a deal very quickly. However,  I doubt very much as if Enrique will want to leave and honestly, he shouldn't be allowed after he was on the relegated side earlier this year, that still owe us a huge amount.
+As my headline suggests Sunderland have been linked with a move for Newcastle's Jose Enrique today but there's no need to get worried, it's only coming from the News Of The World who on Sundays, usually dedicate at least 2 articles to us. The reports claim that Bruce will make his move in January for the Spaniard and will hope to seal a deal very quickly. However, I doubt very much as if Enrique will want to leave and honestly, he shouldn't be allowed after he was on the relegated side earlier this year, that still owe us a huge amount.
 
 I don't think there's much danger in these reports coming true but if Enrique did say he wanted to leave, to join Sunderland you could only imagine what the feeling would be around Tyneside.
 

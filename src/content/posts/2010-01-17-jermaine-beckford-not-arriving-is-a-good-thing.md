@@ -12,7 +12,7 @@ categories:
 
 ### Beckford - Staying at Leeds until the end of the season to help promotion bid
 
-There's a lot of disappointed Newcastle United fans out there today at the news Leeds United's Jermaine Beckford will remain at Leeds United and try aid their promotion charge. A two nil away loss to Exeter City yesterday I'm sure played a certain part in his decision and there's no doubt Leeds do really need the the striker. I for one, didn't really get too excited about the proposed  arrival of Jermaine Beckford because I've seen him play, and a know a bit about him, not all too complimentary. There's no doubt the lad has talent and could probably cut it in the Championship, but I wouldn't bring him to the Premier League.
+There's a lot of disappointed Newcastle United fans out there today at the news Leeds United's Jermaine Beckford will remain at Leeds United and try aid their promotion charge. A two nil away loss to Exeter City yesterday I'm sure played a certain part in his decision and there's no doubt Leeds do really need the the striker. I for one, didn't really get too excited about the proposed arrival of Jermaine Beckford because I've seen him play, and a know a bit about him, not all too complimentary. There's no doubt the lad has talent and could probably cut it in the Championship, but I wouldn't bring him to the Premier League.
 
 He today withdrew his transfer request and whether he actually had the chance to join Newcastle really is unknown. According to reports all three of our bids were rejected by the Elland Road outfit, and there wasn't many signs of other teams looking for his services.
 

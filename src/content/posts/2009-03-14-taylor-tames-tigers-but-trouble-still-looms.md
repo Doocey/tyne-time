@@ -6,8 +6,8 @@ date: 2009-03-14T21:01:27+00:00
 url: /2009/03/14/taylor-tames-tigers-but-trouble-still-looms/
 categories:
   - Newcastle United News
-
 ---
+
 ### Taylor - Scored a nice goal today but disappointment with result
 
 When we heard Geovanni had scored after 8 minutes we all sank into our seats. It was the worst start we could get off to and even the fact Blackburn conceded early on it didn't cheer me up. I knew there was time to score but I hoped that a second Hull goal wasn't on the horizon. Geovanni came close to getting a second too but 7 minutes from half time local lad Steven Taylor equalised and couldn't have done it at a better time, 1-1 HT as we all hoped for a good and more importantly an improved second half performance from our team and we got that, only problem is, we didn't capitalise and get a winner.

@@ -11,7 +11,7 @@ categories:
 
 ![Peter Whittingham](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2009/10/24/1256413692446/Peter-Whittingham-of-Card-001.jpg)
 
-As the speculation mounts about Jermaine Beckford, alongside the price, I think it's worth taking a look at other players that Newcastle United should really consider making inquiries for. All the media hype has been about Matthew Kilgallon & Jermaine Beckford and I'm sure about 96% of my articles this new year are revolved around the Sheffield United centre half and the  Leeds United hitman. I'm sure there's many players out there vying for a move to Newcastle and below I've put together three players which I think would be worth a shot at St.James' Park.
+As the speculation mounts about Jermaine Beckford, alongside the price, I think it's worth taking a look at other players that Newcastle United should really consider making inquiries for. All the media hype has been about Matthew Kilgallon & Jermaine Beckford and I'm sure about 96% of my articles this new year are revolved around the Sheffield United centre half and the Leeds United hitman. I'm sure there's many players out there vying for a move to Newcastle and below I've put together three players which I think would be worth a shot at St.James' Park.
 
 1. Peter Whitthingham
 

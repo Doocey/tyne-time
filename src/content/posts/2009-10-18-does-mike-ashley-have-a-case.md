@@ -11,7 +11,7 @@ categories:
 
 ![Ashley - Spent more than the fans](https://static.guim.co.uk/sys-images/Football/Clubs/Club%20Home/2009/2/10/1234306076176/Mike-Ashley-001.jpg)
 
-Before I start, I'd like to say I don't think Mr.Ashley has a case and today's tattle in the media is being perhaps just a little rich from his side. Speaking today Mike said that's he has lowered the asking price, to an initial fee of £80m and that Barry Moat's persistence in buying the club has been ongoing, for nearly two years. It's obvious that Mike himself is frustrated at the stage of  the sale and that it hasn't been completed yet but he just doesn't realise how we feel as our beloved club is being dangled over a burning pit.
+Before I start, I'd like to say I don't think Mr.Ashley has a case and today's tattle in the media is being perhaps just a little rich from his side. Speaking today Mike said that's he has lowered the asking price, to an initial fee of £80m and that Barry Moat's persistence in buying the club has been ongoing, for nearly two years. It's obvious that Mike himself is frustrated at the stage of the sale and that it hasn't been completed yet but he just doesn't realise how we feel as our beloved club is being dangled over a burning pit.
 
 When Mike took over, hopes were high. His habit of buying pints for the locals down at the bars was a big hit then but now the locals have no time for the forlorn figure, and you can't blame them.
 

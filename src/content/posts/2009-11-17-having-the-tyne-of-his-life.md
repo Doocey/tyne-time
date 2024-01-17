@@ -8,7 +8,7 @@ categories:
   - Danny Simpson
 ---
 
-Having arrived from Manchester United, it's been a very good spell for Danny Simpson on Tyneside. The defender endured a frustrating time at Blackburn and indeed needed a move away from Manchester before the nerves got the better of him. Simpson, who had figured in most of our Championship games so far is on loan but he insists that he's not counting the days until he returns to  United, far from it. In fact, Danny is keen to stay at United, Newcastle United. For me, I'd take him in with open arms, especially if the fee was in the region of £1-2m 😀
+Having arrived from Manchester United, it's been a very good spell for Danny Simpson on Tyneside. The defender endured a frustrating time at Blackburn and indeed needed a move away from Manchester before the nerves got the better of him. Simpson, who had figured in most of our Championship games so far is on loan but he insists that he's not counting the days until he returns to United, far from it. In fact, Danny is keen to stay at United, Newcastle United. For me, I'd take him in with open arms, especially if the fee was in the region of £1-2m 😀
 
 Speaking he said :
 

@@ -11,7 +11,7 @@ categories:
 
 ### Juan Albin - Newcastle reportedly interested in this guys services
 
-I think it's fair to say that Newcastle United as a club haven't had a great number of good buys from Spain the last ten or so years. The likes of Albert Luque spring to mind, and that £9.75m price-tag too. Today, the Sunday papers are at again and are reporting that we're after Getafe's Juan Albin and indeed Valencia's promising Pablo Hernandez. Juan Albin is more of a  Robbie Keane sort player, especially internationally where he fills the pocket behind the two strikers. He's 23, a promising talent and more importantly out of contract in the summer.
+I think it's fair to say that Newcastle United as a club haven't had a great number of good buys from Spain the last ten or so years. The likes of Albert Luque spring to mind, and that £9.75m price-tag too. Today, the Sunday papers are at again and are reporting that we're after Getafe's Juan Albin and indeed Valencia's promising Pablo Hernandez. Juan Albin is more of a Robbie Keane sort player, especially internationally where he fills the pocket behind the two strikers. He's 23, a promising talent and more importantly out of contract in the summer.
 
 As for Pablo Hernandez, he looks as if he'll be a Valencia player for a few years to come. He recently signed a contract till early 2014 with the Spanish club and if we were to get him I'd say the fee wouldn't be far off Albert Luque's!
 

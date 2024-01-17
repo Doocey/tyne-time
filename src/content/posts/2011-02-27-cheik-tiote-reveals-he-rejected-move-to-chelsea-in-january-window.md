@@ -16,7 +16,7 @@ categories:
 
 In an interview with a Sunday tabloid Cheick Tioté revealed why he opted to stay at Newcastle United and sign a 6.5 year long deal.
 
-Tioté who we know already is one of Newcastle United's best players this season signed from FC Twente for a small fee of £3.5m, compared to what he is worth at this moment in time. He played his part in the World Cup with Ivory  Coast and to be honest; that is where I personally first heard of him. I didn't know what a gem of player we were really getting until his first 5-7 performances or so.
+Tioté who we know already is one of Newcastle United's best players this season signed from FC Twente for a small fee of £3.5m, compared to what he is worth at this moment in time. He played his part in the World Cup with Ivory Coast and to be honest; that is where I personally first heard of him. I didn't know what a gem of player we were really getting until his first 5-7 performances or so.
 
 Interestingly, Tioté also revealed he turned down the chance to join Chelsea in the last transfer window which confirms something: he wants to play for Newcastle United.
 

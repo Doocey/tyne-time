@@ -13,7 +13,7 @@ categories:
 
 ### Hughton - William Hill have suspended betting on his dismissal this afternoon
 
-First things first - surely this cannot be right? Chris Hughton, the man who brought Newcastle United from the Championship back up to the Premier League with a record number of points, was responsible for the 5-1 thrashing of our rivals this season, our fantastic display against Chelsea in the Cup with a 4-3 win at Stamford Bridge, and the man who guided NUFC to a  precious 1-0 away win at the Emirates to Arsenal. The reports over his possible dismissal have lingered about  since Newcastle went straight back up the the Premier League, but any talk of Chris being sack, is and absolute crime.
+First things first - surely this cannot be right? Chris Hughton, the man who brought Newcastle United from the Championship back up to the Premier League with a record number of points, was responsible for the 5-1 thrashing of our rivals this season, our fantastic display against Chelsea in the Cup with a 4-3 win at Stamford Bridge, and the man who guided NUFC to a precious 1-0 away win at the Emirates to Arsenal. The reports over his possible dismissal have lingered about  since Newcastle went straight back up the the Premier League, but any talk of Chris being sack, is and absolute crime.
 
 William Hill have today suspended betting on Chris to be sacked, which is never a good sign whilst SkyBet have him at 1.50 to be the next boss out the door. This is scary stuff. Not because it could actually happen, moreso because there's no reason in the world why Hughton should be given the boot.
 

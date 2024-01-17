@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-Steven Taylor returned to action yesterday against Peterborough and was reliable throughout the whole of the ninety minutes. Newcastle broke out of the traps very quickly indeed and saw two goals within the first twenty minutes. None less then Jonas Gutierrez scoring his first goal for Newcastle United and local lad Andy Carroll netted his fourth of the season. To be fair to a young  Peterborough side, they were too nice to Newcastle and gave them too much respect. It should've really been more than two nil going in at half time and at the end of the 90 minutes, 3-1 wasn't a real reflection of Newcastle's dominance.
+Steven Taylor returned to action yesterday against Peterborough and was reliable throughout the whole of the ninety minutes. Newcastle broke out of the traps very quickly indeed and saw two goals within the first twenty minutes. None less then Jonas Gutierrez scoring his first goal for Newcastle United and local lad Andy Carroll netted his fourth of the season. To be fair to a young Peterborough side, they were too nice to Newcastle and gave them too much respect. It should've really been more than two nil going in at half time and at the end of the 90 minutes, 3-1 wasn't a real reflection of Newcastle's dominance.
 
 As my headline suggests Steven Taylor is an instrumental figure in Newcastle's season this year, and out quest to return to the Premier League at first attempt. Some people in the Premier League are already claiming we have promotion secured already but that's utter nonsense to say the least.
 

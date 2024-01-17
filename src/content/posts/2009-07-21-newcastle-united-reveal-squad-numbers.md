@@ -11,7 +11,7 @@ categories:
 
 ### Harper - Finally clinches #1 jersey
 
-The numbers of  the forthcoming Coca Cola Championship campaign have been revealed today. The numbers don't include who will take the number ten spot, left vacant after Michael Owen. There have been no major changes of players number, Joey Barton retains the number 7 shirt.
+The numbers of the forthcoming Coca Cola Championship campaign have been revealed today. The numbers don't include who will take the number ten spot, left vacant after Michael Owen. There have been no major changes of players number, Joey Barton retains the number 7 shirt.
 
 The official 2009/10 squad numbers are;
 

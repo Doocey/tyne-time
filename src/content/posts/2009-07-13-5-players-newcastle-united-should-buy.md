@@ -11,7 +11,7 @@ categories:
 
 ### Shearer - Appoint him now regardless of ownership
 
-As the saga continues  were all getting sick of the same old news, the sale will be completed here there and everywhere. I'm taking my mind off the sale today and put together a list of players Newcastle United should sign as they prepare for their first Coca Cola Championship campaign. The main thing I can't understand and you probably can't either, is why Shearer hasn't been appointed manager as the takeover talks continue? Alan should be appointed, and a contract sorted out when the new owners take charge. I'm sure Al wouldn't be too pushy on wages and his presence would reassure players. Simple really, any ways, here's the list of 5 players that I think we should buy.
+As the saga continues were all getting sick of the same old news, the sale will be completed here there and everywhere. I'm taking my mind off the sale today and put together a list of players Newcastle United should sign as they prepare for their first Coca Cola Championship campaign. The main thing I can't understand and you probably can't either, is why Shearer hasn't been appointed manager as the takeover talks continue? Alan should be appointed, and a contract sorted out when the new owners take charge. I'm sure Al wouldn't be too pushy on wages and his presence would reassure players. Simple really, any ways, here's the list of 5 players that I think we should buy.
 
 **Daniel Fox**
 

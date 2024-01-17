@@ -13,7 +13,7 @@ categories:
 
 ![Mike Ashley](https://i.telegraph.co.uk/telegraph/multimedia/archive/01349/mike_ashley_1349947c.jpg "Ashley - Seems to be working in a close relationship with Chris Hughton")
 
-In a season that has saw our owner Mike Ashley try to sell but failing miserably yet again, however finally deciding to establish a tad of stability at the club. By that, it meant selling players, keeping some and after a long debacle as to who would be the full-time manager of Newcastle United, appointing Chris Hughton the former assistant of Kevin Keegan and Alan Shearer (alongside  Iain Dowie). Hughton has since guided us to a pretty decent season so far which sees us top of the Coca Cola Championship, as we enter the final stages of what's been a long season, and it's still not over.
+In a season that has saw our owner Mike Ashley try to sell but failing miserably yet again, however finally deciding to establish a tad of stability at the club. By that, it meant selling players, keeping some and after a long debacle as to who would be the full-time manager of Newcastle United, appointing Chris Hughton the former assistant of Kevin Keegan and Alan Shearer (alongside Iain Dowie). Hughton has since guided us to a pretty decent season so far which sees us top of the Coca Cola Championship, as we enter the final stages of what's been a long season, and it's still not over.
 
 I'm sure that the fine run of form that Chris Hughton and the players have been on throughout the season in general has indeed helped strengthen the relationship between Hughton and Mr.Ashley. If results weren't going too well, what kind of relationship or scenario on Tyneside we'd have, I really don't know.
 

@@ -8,7 +8,7 @@ categories:
   - Site
 ---
 
-Before I start, I'm not looking for donations of 20,000 so I can put a pot together to stage a takeover of Newcastle United or become a leading member of the Newcastle United Supporters Trust. Far from it, although if you feel like donating twenty thousand fee free to do so 😀 Anyway, what I am writing this article about, is the matter of 'Tyne Time's Weekend Charity Bet' which  will tomorrow commence for it's second week running. As you know, if I manage to win my 'Pools' or Accumulator, then I promise to dedicate 50% of the winnings to a charity of my choice.
+Before I start, I'm not looking for donations of 20,000 so I can put a pot together to stage a takeover of Newcastle United or become a leading member of the Newcastle United Supporters Trust. Far from it, although if you feel like donating twenty thousand fee free to do so 😀 Anyway, what I am writing this article about, is the matter of 'Tyne Time's Weekend Charity Bet' which will tomorrow commence for it's second week running. As you know, if I manage to win my 'Pools' or Accumulator, then I promise to dedicate 50% of the winnings to a charity of my choice.
 
 Now, as you know, running a website can be demanding and has various costs etc. What I am looking for and understand that it's not possible with all of you readers is a small donation to keep the charity bet on the road for many weeks to come.
 

@@ -12,7 +12,7 @@ categories:
 
 ![Moat - Submitted written transfer request](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2009/8/24/1251109113926/Mike-Ashley-and-Barry-Moa-001.jpg)
 
-As it finally seems Mike Ashley will pack his bags and leave Newcastle United, a little premature excitement is creeping in. Not just the fact he's leaving (or so we are led to believe) but also the reality that we are set to get a local owner, and not many clubs can say that. Today reports say that Mr.Barry Moat has written a letter to Mike with a formal offer, expected to be in the region  of £90-95m and we expect our current owner to accept it or God knows what will happen. We rather not think about that possibility to be quite honest.
+As it finally seems Mike Ashley will pack his bags and leave Newcastle United, a little premature excitement is creeping in. Not just the fact he's leaving (or so we are led to believe) but also the reality that we are set to get a local owner, and not many clubs can say that. Today reports say that Mr.Barry Moat has written a letter to Mike with a formal offer, expected to be in the region of £90-95m and we expect our current owner to accept it or God knows what will happen. We rather not think about that possibility to be quite honest.
 
 Ashley who attended the Bristol City was being urged, (pleasantly) by the roaring Newcastle United faithful to 'Get out of our club' and we think he might have got the idea, because it's not the first time something along them lines has been shouted in his direction.
 
