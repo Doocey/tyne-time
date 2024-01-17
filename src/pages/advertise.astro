@@ -1,0 +1,42 @@
+---
+import BaseLayout from "../layouts/BaseLayout.astro";
+import Hero from "../components/Hero.astro";
+
+const title = "Advertise";
+const description =
+  "Advertise your site or product on Tyne Time for reasonable rates & a huge audience of seasoned Newcastle United supporters to target.";
+const image = "/images/newcastle-united-training-session.jpg";
+---
+
+<BaseLayout title={title} description={description} image={image}>
+  <Hero title={title} backgroundImage={image} ) slot="hero" />
+
+  <p>
+    For the past 16 years, Tyne Time has worked with various global brands such
+    ranging from William Hill to Panasonic ensuring mutually beneficial
+    advertising relationships throughout both league campaigns/pre-season
+    breaks.
+  </p>
+
+  <p>
+    The aim of <strong>Tyne Time</strong> has always been to promote a clean interface
+    for Newcastle fans to read about and discuss matters at St. James' Park. With
+    that said, I am <em>very</em> selective when it comes to advertising. In fact,
+    I rarely accept advertising at all nowadays unless it's a service/product/competition
+    that would be of interest to the site's readership.
+  </p>
+
+  <p>
+    If you feel you have a service/offer that would be of great interest to my
+    readers then by all means get in touch. Press releases and other promotional
+    material are not welcome.
+  </p>
+
+  <p>
+    <img
+      src="/wp-content/uploads/2009/11/advertisingemail.png"
+      alt="Tyne Time Advertising Email Address"
+      title="Tyne Time advertising email"
+    />
+  </p>
+</BaseLayout>

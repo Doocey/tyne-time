@@ -1,0 +1,36 @@
+---
+import BaseLayout from "../layouts/BaseLayout.astro";
+import Hero from "../components/Hero.astro";
+
+const title = "Contact";
+const description =
+  "Interested in advertising or collaborating with this Newcastle United blog? Get in contact with the writer of Tyne Time by email or Twitter @KevinDoocey.";
+const image = "/images/alan-shearer-les-ferdinand-newcastle.jpg";
+---
+
+<BaseLayout title={title} description={description} image={image}>
+  <Hero title={title} backgroundImage={image} ) slot="hero" />
+
+  <p>
+    If you're looking to get in contact about the site's content, subscriptions
+    or anything to do with Tyne Time then feel free to send me an email at the
+    email address below and I'll try and get back to you as quick as I can.
+  </p>
+
+  <p>
+    I am also open to freelance work or other writing opportunities so if you
+    represent a media outlet, be sure to send me an email and we'll sort
+    something out. My work has been featured on the likes of <em>Betfair</em>, <em
+      >Paddy Power</em
+    >, <em>talkSPORT</em>, <em>Today FM</em>, and many others.
+  </p>
+
+  <p>Doocey.</p>
+
+  <p>
+    <img
+      src="/wp-content/uploads/2009/08/Contact-TyneTime-NUFC.png"
+      alt="Contact Kevin Doocey @ Tyne Time."
+    />
+  </p>
+</BaseLayout>
