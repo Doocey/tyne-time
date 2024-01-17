@@ -12,7 +12,7 @@ export async function GET({ request }) {
   console.log("baseurl", baseUrl);
   const posts = await getCollection("posts");
 
-  const mostRecentPost = posts.at(-1);
+  const mostRecentPost = posts[posts.length - 1];
 
   const categories = [
     ...new Set(posts.map((post) => post.data.categories).flat()),
