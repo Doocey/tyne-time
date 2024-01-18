@@ -10,83 +10,81 @@ const { title, excerpt, description, date, image, image_alt } = Astro.props;
 ---
 
 <html lang="en">
-  <head>
-    <Head title={title} description={description || excerpt} image={image} />
-    <style>
+  <Head title={title} description={description || excerpt} image={image} />
+  <style>
+    main {
+      width: calc(100% - 2em);
+      max-width: 100%;
+      margin: 0;
+      position: relative;
+      background: rgb(255, 255, 255);
+      background: linear-gradient(
+        rgba(255, 255, 255, 1) 0%,
+        rgba(236, 236, 236, 1) 35%,
+        rgba(236, 236, 236, 1) 100%
+      );
+    }
+    #hero-image {
+      width: 100%;
+    }
+    #hero-image img {
+      display: block;
+      margin: 0 auto;
+      width: 100%;
+    }
+    .prose {
+      box-shadow: 0 0 80px 2px rgba(129, 129, 129, 0.5);
+      background: white;
+      width: 75%;
+      max-width: calc(100% - 2em);
+      margin: 0 auto;
+      padding: 1em 3em;
+      color: rgb(var(--gray-dark));
+      border-radius: 13px;
+    }
+
+    #title {
+      padding: 1em 0;
+      text-align: center;
+      line-height: 1;
+    }
+
+    #title h1 {
+      margin: 0 0 0.5em 0;
+    }
+
+    #byline {
+      display: block;
+      font-style: italic;
+      color: var(--gray);
+    }
+
+    .articlePull {
+      margin-top: -4pc;
+    }
+
+    small {
+      font-size: 15px;
+    }
+
+    @media (max-width: 500px) {
       main {
-        width: calc(100% - 2em);
-        max-width: 100%;
-        margin: 0;
-        position: relative;
-        background: rgb(255, 255, 255);
-        background: linear-gradient(
-          rgba(255, 255, 255, 1) 0%,
-          rgba(236, 236, 236, 1) 35%,
-          rgba(236, 236, 236, 1) 100%
-        );
-      }
-      #hero-image {
-        width: 100%;
-      }
-      #hero-image img {
-        display: block;
-        margin: 0 auto;
+        padding: 0;
         width: 100%;
       }
       .prose {
-        box-shadow: 0 0 80px 2px rgba(129, 129, 129, 0.5);
-        background: white;
-        width: 75%;
-        max-width: calc(100% - 2em);
-        margin: 0 auto;
-        padding: 1em 3em;
-        color: rgb(var(--gray-dark));
-        border-radius: 13px;
-      }
-
-      @media (max-width: 500px) {
-        main {
-          padding: 0;
-          width: 100%;
-        }
-        .prose {
-          padding-left: 1em;
-          padding-right: 1em;
-          width: 100%;
-          border-radius: 0;
-        }
-
-        .articlePull {
-          margin-top: 0;
-        }
-      }
-
-      #title {
-        padding: 1em 0;
-        text-align: center;
-        line-height: 1;
-      }
-
-      #title h1 {
-        margin: 0 0 0.5em 0;
-      }
-
-      #byline {
-        display: block;
-        font-style: italic;
-        color: var(--gray);
+        padding-left: 1em;
+        padding-right: 1em;
+        width: 100%;
+        border-radius: 0;
       }
 
       .articlePull {
-        margin-top: -4pc;
+        margin-top: 0;
       }
-
-      small {
-        font-size: 15px;
-      }
-    </style>
-    <JSONBlogSchema {...Astro.props} />
-  </head>
+    }
+  </style>
+  <JSONBlogSchema {...Astro.props} />
 
   <body>
     <Header />
