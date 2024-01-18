@@ -10,12 +10,12 @@ const schema = {
   author: {
     "@type": "Person",
     name: "Kevin Doocey",
-    url: "https://twitter.com/kevindoocey",
+    url: "https://twitter.com/kevindoocey"
   },
 
   ...(image && { image: new URL(image, Astro.url) }),
   /* the schema expects Date or DateTime using ISO 8601 format. For Date that is yyyy-MM-dd */
-  datePublished: date,
+  datePublished: date
 };
 ---
 
