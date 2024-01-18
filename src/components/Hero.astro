@@ -1,5 +1,10 @@
 ---
 const { title, backgroundImage } = Astro.props;
+
+interface Props {
+  title: string;
+  backgroundImage: string;
+}
 ---
 
 <section id="hero" style={{ backgroundImage: `url('${backgroundImage}` }}>
