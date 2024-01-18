@@ -1,13 +1,13 @@
 ---
 import { getCollection } from "astro:content";
-import BaseLayout from "../../layouts/BaseLayout.astro";
-import { slugify, unslugify } from "../../utils/slugify";
+import BaseLayout from "@layouts/BaseLayout.astro";
+import { slugify, unslugify } from "@utils/slugify";
 
 export async function getStaticPaths() {
   const posts = await getCollection("posts");
 
   const categories = [
-    ...new Set(posts.map((post) => post.data.categories).flat()),
+    ...new Set(posts.map((post) => post.data.categories).flat())
   ];
 
   return categories.map((category) => {
@@ -19,7 +19,7 @@ export async function getStaticPaths() {
 
     return {
       params: { category: slugifiedCategories },
-      props: { posts: filteredPosts },
+      props: { posts: filteredPosts }
     };
   });
 }

@@ -1,9 +1,9 @@
-import { defineConfig } from 'astro/config';
-import mdx from '@astrojs/mdx';
+import { defineConfig } from "astro/config";
+import mdx from "@astrojs/mdx";
 
 // https://astro.build/config
 export default defineConfig({
-  site: 'https://www.tynetime.com',
+  site: "https://www.tynetime.com",
   integrations: [mdx()],
-  compressHTML: true,
+  compressHTML: true
 });
