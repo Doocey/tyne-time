@@ -6,5 +6,6 @@
   },
   "[astro]": {
     "editor.defaultFormatter": "esbenp.prettier-vscode"
-  }
+  },
+  "trailingComma": "none"
 }

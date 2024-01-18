@@ -1,14 +1,14 @@
 ---
 import { getCollection } from "astro:content";
-import { stripFirstForwardSlash } from "../utils/urls";
-import BlogPost from "../layouts/BlogPost.astro";
+import { stripFirstForwardSlash } from "@utils/urls";
+import BlogPost from "@layouts/BlogPost.astro";
 
 export async function getStaticPaths() {
   const posts = await getCollection("posts");
 
   return posts.map((post) => ({
     params: { slug: stripFirstForwardSlash(post.data.url) },
-    props: post,
+    props: post
   }));
 }
 

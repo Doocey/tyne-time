@@ -1,5 +1,5 @@
 import { getCollection } from "astro:content";
-import { slugify } from "../utils/slugify";
+import { slugify } from "@utils/slugify";
 
 export async function GET({ request }) {
   const { url } = request;
@@ -15,7 +15,7 @@ export async function GET({ request }) {
   const mostRecentPost = posts[posts.length - 1];
 
   const categories = [
-    ...new Set(posts.map((post) => post.data.categories).flat()),
+    ...new Set(posts.map((post) => post.data.categories).flat())
   ];
 
   const primaryPages = ["/about/", "/advertise/", "/contact/"];
@@ -23,7 +23,7 @@ export async function GET({ request }) {
   const primaryPagesXmlString = primaryPages.map(
     (page) => `<url>
   <loc>${baseUrl}${page}</loc>
-  </url>`,
+  </url>`
   );
 
   primaryPagesXmlString.push(`<url>
@@ -42,19 +42,19 @@ export async function GET({ request }) {
         : ""
     }
     <lastmod>${new Date(singlePost.data.date).toISOString()}</lastmod>
-    </url>`,
+    </url>`
   );
 
   const categoriesXmlString = categories.map(
     (singleCategory) => `<url>
     <loc>${baseUrl}categories/${slugify(singleCategory)}/</loc>
-    </url>`,
+    </url>`
   );
 
   const completeXmlString = [
     ...primaryPagesXmlString,
     ...postsXmlString,
-    ...categoriesXmlString,
+    ...categoriesXmlString
   ];
 
   const xmlString = `<?xml version="1.0" encoding="UTF-8"?><?xml-stylesheet type="text/xsl" href="/sitemap.xsl" ?>
@@ -63,7 +63,7 @@ export async function GET({ request }) {
 
   return new Response(xmlString, {
     headers: new Headers({
-      "Content-Type": "text/xml",
-    }),
+      "Content-Type": "text/xml"
+    })
   });
 }
