@@ -1,28 +1,47 @@
 ---
 // Import the global.css file here so that it is included on
 // all pages through the use of the <BaseHead /> component.
-import "../styles/global.css";
-// TODO: May move the font imports out of here?
+import "@styles/global.css";
 import "@fontsource/pt-serif";
 import "@fontsource/pt-serif/700.css";
 
 const canonicalURL = new URL(Astro.url.pathname, Astro.site);
 
-const { title } = Astro.props;
+const { title, excerpt, description, image = "" } = Astro.props;
+
+// Using \u2014 instead of &mdash; to render correctly
+const formattedTitle =
+  Astro.url.pathname === "/" ? title : `${title} \u2014 Tyne Time`;
 ---
 
-<!-- Global Metadata -->
-<meta charset="utf-8" />
-<meta name="viewport" content="width=device-width,initial-scale=1" />
-<link rel="icon" type="image/svg+xml" href="/favicon.ico" />
-<link rel="icon" href="/favicon.svg" type="image/svg+xml" />
+<head>
+  <!-- Global Metadata -->
+  <meta charset="utf-8" />
+  <meta name="viewport" content="width=device-width,initial-scale=1" />
+  <link rel="icon" type="image/svg+xml" href="/favicon.ico" />
 
-<!-- Canonical URL -->
-<link rel="canonical" href={canonicalURL} />
+  <!-- Canonical URL -->
+  <link rel="canonical" href={canonicalURL} />
 
-<!-- Primary Meta Tags -->
-<title>{title} &mdash; Tyne Time</title>
-<meta name="title" content={`${title} &mdash; Tyne Time`} />
-<link rel="sitemap" href="/sitemap.xml" />
+  <!-- Primary Meta Tags -->
+  <title>{formattedTitle}</title>
+  <meta name="title" content={formattedTitle} />
+  <meta name="description" content={description || excerpt} />
 
-<meta name="robots" content="noindex" />
+  <!-- Open Graph / Facebook -->
+  <meta property="og:type" content="website" />
+  <meta property="og:url" content={Astro.url} />
+  <meta property="og:title" content={formattedTitle} />
+  <meta property="og:description" content={description || excerpt} />
+  <meta property="og:image" content={new URL(image, Astro.url)} />
+
+  <!-- Twitter -->
+  <meta property="twitter:card" content="summary_large_image" />
+  <meta property="twitter:url" content={Astro.url} />
+  <meta property="twitter:title" content={formattedTitle} />
+  <meta property="twitter:description" content={description || excerpt} />
+  <meta property="twitter:image" content={new URL(image, Astro.url)} />
+
+  <meta name="robots" content="noindex" />
+  <h1>{formattedTitle}</h1>
+</head>
