@@ -1,5 +1,6 @@
 ---
 import { createExcerpt } from "@utils/excerpt";
+import { Image } from "astro:assets";
 
 const { post } = Astro.props;
 ---
@@ -73,11 +74,10 @@ const { post } = Astro.props;
   {
     post.data.image ? (
       <a href={`${post.data.url}`}>
-        <img
+        <Image
           width={620}
           height={360}
-          loading="lazy"
-          src={post.data.image}
+          src="https://images.dog.ceo/breeds/lhasa/n02098413_13638.jpg"
           alt={post.data.image_alt || post.data.title}
         />
       </a>
