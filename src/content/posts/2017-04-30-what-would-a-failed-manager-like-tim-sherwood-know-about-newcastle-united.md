@@ -8,7 +8,7 @@ description: "I couldn't help but notice Tim Sherwood's comments on Newcastle Un
 url: /2017/04/30/what-would-a-failed-manager-like-tim-sherwood-know-about-newcastle-united/
 categories:
   - Newcastle United News
-image: "https://www.tynetime.com/wp-content/uploads/2017/04/Tim-Sherwood-Aston-Villa.jpg"
+image: "/wp-content/uploads/2017/04/Tim-Sherwood-Aston-Villa.jpg"
 image_alt: "Tim Sherwood at Villa Park"
 ---
 
