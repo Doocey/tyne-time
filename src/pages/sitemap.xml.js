@@ -9,10 +9,7 @@ export async function GET({ request }) {
     ? `https://www.tynetime.com`
     : `${protocol}//${hostname}:${port}`;
 
-  console.log("baseurl", baseUrl);
   const posts = await getCollection("posts");
-
-  const mostRecentPost = posts[posts.length - 1];
 
   const categories = [
     ...new Set(posts.map((post) => post.data.categories).flat())
@@ -28,7 +25,7 @@ export async function GET({ request }) {
 
   primaryPagesXmlString.push(`<url>
     <loc>${baseUrl}/</loc>
-    <lastmod>${new Date(mostRecentPost.data.date).toISOString()}</lastmod>
+    <lastmod>${new Date(posts.at(0).data.date).toISOString()}</lastmod>
     </url>`);
 
   const postsXmlString = posts.map(
