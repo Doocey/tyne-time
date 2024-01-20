@@ -44,7 +44,7 @@ export async function GET({ request }) {
 
   const categoriesXmlString = categories.map(
     (singleCategory) => `<url>
-    <loc>${baseUrl}categories/${slugify(singleCategory)}/</loc>
+    <loc>${baseUrl}/categories/${slugify(singleCategory)}/</loc>
     </url>`
   );
 
