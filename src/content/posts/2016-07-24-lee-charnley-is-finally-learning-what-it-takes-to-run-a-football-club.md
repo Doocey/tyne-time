@@ -2,7 +2,7 @@
 title: "Lee Charnley is finally learning what it takes to run a football club"
 author: Kevin Doocey
 type: post
-date: "2016-07-24T14:34:12+00:00"
+date: 2016-07-24T14:34:12+00:00
 description: "It may have come at the ultimate price in relegation, but Newcastle United's Managing Director Lee Charnley is finally learning how to run a football club."
 excerpt: "Lee Charnley is name most Newcastle United supports have come to know in recent years, and mostly for the wrong reasons. He has been labelled a 'puppet' for the regime under Mike Ashley as the 38 year-old sat through two relegations behind the scenes at St. James' Park.."
 url: /2016/07/24/lee-charnley-is-finally-learning-what-it-takes-to-run-a-football-club/

@@ -1,5 +1,10 @@
 ---
+import type { CollectionEntry } from "astro:content";
 import { createExcerpt } from "@utils/excerpt";
+
+interface Props {
+  post: CollectionEntry<"posts">;
+}
 
 const { post } = Astro.props;
 ---
