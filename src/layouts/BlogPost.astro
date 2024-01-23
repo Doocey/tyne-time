@@ -26,12 +26,8 @@ const { title, excerpt, description, date, image, image_alt, categories } =
       max-width: 100%;
       margin: 0;
       position: relative;
-      background: rgb(255, 255, 255);
-      background: linear-gradient(
-        rgba(255, 255, 255, 1) 0%,
-        rgba(236, 236, 236, 1) 35%,
-        rgba(236, 236, 236, 1) 100%
-      );
+      background: white;
+      background: var(--gentle-bg-gradient);
     }
     #hero-image {
       width: 100%;
@@ -42,7 +38,7 @@ const { title, excerpt, description, date, image, image_alt, categories } =
       width: 100%;
     }
     .prose {
-      box-shadow: 0 0 80px 2px rgba(129, 129, 129, 0.5);
+      box-shadow: var(--box-shadow);
       background: white;
       width: 75%;
       max-width: calc(100% - 2em);
@@ -98,7 +94,7 @@ const { title, excerpt, description, date, image, image_alt, categories } =
     title={title}
     description={description ||
       excerpt ||
-      createExcerpt({ body: Astro.props.body, characterLimit: 140 })}
+      createExcerpt({ body: Astro.props.body, characterLimit: 140 }).trim()}
     date={date}
     image={image}
     categories={categories}

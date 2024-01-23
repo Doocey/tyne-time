@@ -9,6 +9,31 @@ interface Props {
 const { post } = Astro.props;
 ---
 
+<article>
+  <div>
+    <a href={`${post.data.url}`}>
+      <h3>{post.data.title}</h3>
+    </a>
+
+    <p>{`${createExcerpt({ body: post.body, characterLimit: 370 })} ...`}</p>
+
+    <a href={`${post.data.url}`}>
+      <button>Keep Reading &rarr;</button>
+    </a>
+  </div>
+
+  <a href={`${post.data.url}`}>
+    <img
+      width={620}
+      height={360}
+      loading="lazy"
+      src={post.data.image || "/images/tyne-time-nufc-blog.jpg"}
+      alt={post.data.image_alt || post.data.title}
+      style={!post.data.image ? { filter: "blur(6px)" } : ""}
+    />
+  </a>
+</article>
+
 <style>
   article {
     display: grid;
@@ -61,28 +86,3 @@ const { post } = Astro.props;
     }
   }
 </style>
-
-<article>
-  <div>
-    <a href={`${post.data.url}`}>
-      <h3>{post.data.title}</h3>
-    </a>
-
-    <p>{`${createExcerpt({ body: post.body, characterLimit: 370 })} ...`}</p>
-
-    <a href={`${post.data.url}`}>
-      <button>Keep Reading &rarr;</button>
-    </a>
-  </div>
-
-  <a href={`${post.data.url}`}>
-    <img
-      width={620}
-      height={360}
-      loading="lazy"
-      src={post.data.image || "/images/tyne-time-nufc-blog.jpg"}
-      alt={post.data.image_alt || post.data.title}
-      style={!post.data.image ? { filter: "blur(6px)" } : ""}
-    />
-  </a>
-</article>
