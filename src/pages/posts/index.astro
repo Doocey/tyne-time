@@ -5,7 +5,8 @@ import Footer from "@components/Footer.astro";
 import { getCollection } from "astro:content";
 
 const posts = (await getCollection("posts")).sort(
-  (a, b) => Date.parse(b.data.date) - Date.parse(a.data.date)
+  (a, b) =>
+    Date.parse(b.data.date.toString()) - Date.parse(a.data.date.toString())
 );
 ---
 
