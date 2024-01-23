@@ -3,6 +3,8 @@ import { getCollection } from "astro:content";
 import BaseLayout from "@layouts/BaseLayout.astro";
 import { slugify, unslugify } from "@utils/slugify";
 
+import type { CollectionEntry } from "astro:content";
+
 export async function getStaticPaths() {
   const posts = await getCollection("posts");
 
@@ -10,9 +12,9 @@ export async function getStaticPaths() {
     ...new Set(posts.map((post) => post.data.categories).flat())
   ];
 
-  return categories.map((category) => {
-    const filteredPosts = posts.filter((post) => {
-      return post.data.categories.includes(category);
+  return categories?.map((category) => {
+    const filteredPosts = posts.filter((post: CollectionEntry<"posts">) => {
+      return post?.data?.categories?.includes(category);
     });
 
     const slugifiedCategories = slugify(category);
