@@ -7,7 +7,12 @@ import "@styles/global.css";
 
 const canonicalURL = new URL(Astro.url.pathname, Astro.site);
 
-const { title, excerpt, description, image = "" } = Astro.props;
+const {
+  title,
+  excerpt,
+  description,
+  image = "/tyne-time-nufc-blog.svg"
+} = Astro.props;
 
 // Using \u2014 instead of &mdash; to render correctly
 const formattedTitle =
