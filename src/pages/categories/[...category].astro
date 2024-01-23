@@ -12,7 +12,7 @@ export async function getStaticPaths() {
     ...new Set(posts.map((post) => post.data.categories).flat())
   ];
 
-  return categories?.map((category) => {
+  return categories?.map((category: string) => {
     const filteredPosts = posts.filter((post: CollectionEntry<"posts">) => {
       return post?.data?.categories?.includes(category);
     });
