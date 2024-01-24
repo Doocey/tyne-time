@@ -6,16 +6,13 @@ export default defineConfig({
   site: "https://www.tynetime.com",
   integrations: [mdx()],
   compressHTML: true,
-  // build: {
-  //   assets: "doocey"
-  // },
   vite: {
     build: {
       rollupOptions: {
         output: {
           entryFileNames: "entry.[hash].mjs",
           chunkFileNames: "chunks/chunk.[hash].mjs",
-          assetFileNames: "assets/[name][extname]"
+          assetFileNames: "assets/asset.[hash][extname]"
         }
       }
     }
