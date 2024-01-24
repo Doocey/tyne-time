@@ -119,11 +119,8 @@ const { title, excerpt, description, url, date, image, image_alt, categories } =
           <div id="title">
             <h1>{title}</h1>
             <address id="byline">
-              Words by Kevin Doocey on <time datetime={date}
-                ><FormattedDate date={new Date(date)} /></time
-              >
+              Words by Kevin Doocey on <FormattedDate date={new Date(date)} />
             </address>
-
             <br />
             <hr />
           </div>
