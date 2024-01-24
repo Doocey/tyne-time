@@ -19,6 +19,6 @@ Unbelievable scenes in truth. 23 years later, to hear that Champions League anth
 
 Soak it in, enjoy it - these are the occasions every Newcastle fan has dreamed of. From writing about relegation in 2009 & 2016 to now willing a Champions League group stage win in 2023,
 
-![Champions League 2023](https://www.tynetime.com/images/champions-league-milan.jpg)
+![Champions League 2023](./images/champions-league-milan.jpg)
 
 Howay The Lads! ⚫️⚪️
