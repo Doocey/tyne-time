@@ -108,7 +108,7 @@ const { title, excerpt, description, url, date, image, image_alt, categories } =
     {
       image && (
         <div id="hero-image">
-          <Image src={image} alt={image_alt || title} />
+          <Image src={image} alt={image_alt || title} loading="eager" />
         </div>
       )
     }
