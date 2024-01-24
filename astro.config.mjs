@@ -5,5 +5,8 @@ import mdx from "@astrojs/mdx";
 export default defineConfig({
   site: "https://www.tynetime.com",
   integrations: [mdx()],
-  compressHTML: true
+  compressHTML: true,
+  build: {
+    assets: "_assets"
+  }
 });
