@@ -5,7 +5,7 @@ description: >-
   Newcastle United made it three wins on the trot after an impressive away
   victory at Burnley, with a certain Korean playing a key role in the success.
 url: /2018/11/ki-sung-yueng-back-to-basics-newcastle/
-image: ./images/ki-sung-yueng-newcastle-united.jpg
+image: /public/images/ki-sung-yueng-newcastle-united.jpg
 image_alt: >-
   Ki Sung-yueng celebrates with fans following Newcastle United's 2-1 victory
   over Burnley in the Premier League.

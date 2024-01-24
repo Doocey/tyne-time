@@ -5,7 +5,7 @@ description: >-
   Newcastle United are struggling and while some share of the blame must fall on
   manager Rafa Benitez only a tool would lay responsibility at his door.
 url: /2018/10/benitez-not-without-blame-nufc/
-image: ./images/rafa-benitez-st-james-park.jpg
+image: /public/images/rafa-benitez-st-james-park.jpg
 image_alt: Rafa Benitez finds the funny side of things at St. James' Park.
 categories:
   - NUFC Blog
