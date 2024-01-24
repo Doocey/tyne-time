@@ -32,7 +32,7 @@ export async function GET({ request }) {
     (singlePost) => `<url>
     <loc>${baseUrl}${singlePost.data.url}</loc>
     ${
-      singlePost.data.image.src
+      singlePost.data.image
         ? `<image:image>
       <image:loc>${singlePost.data.image.src}</image:loc>
     </image:image>`
