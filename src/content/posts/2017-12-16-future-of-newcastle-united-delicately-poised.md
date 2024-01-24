@@ -9,7 +9,7 @@ excerpt: "Despite two relegations in short succession, the future of Newcastle U
 url: /2017/12/future-of-newcastle-united-delicately-poised/
 categories:
   - Newcastle United News
-image: /images/rafa-benitez-emirates-stadium.jpg
+image: ./images/rafa-benitez-emirates-stadium.jpg
 image_alt: "Rafa Benitez issues instructions to his players during their Premier League clash with Arsenal in the Emirates Stadium."
 ---
 

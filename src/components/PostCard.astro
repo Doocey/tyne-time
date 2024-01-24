@@ -1,6 +1,8 @@
 ---
-import type { CollectionEntry } from "astro:content";
+import { Image } from "astro:assets";
 import { createExcerpt } from "@utils/excerpt";
+
+import type { CollectionEntry } from "astro:content";
 
 interface Props {
   post: CollectionEntry<"posts">;
@@ -23,14 +25,17 @@ const { post } = Astro.props;
   </div>
 
   <a href={`${post.data.url}`}>
-    <img
-      width={620}
-      height={360}
-      loading="lazy"
-      src={post.data.image || "/images/tyne-time-nufc-blog.jpg"}
-      alt={post.data.image_alt || post.data.title}
-      style={!post.data.image ? { filter: "blur(6px)" } : ""}
-    />
+    {
+      post.data.image && (
+        <Image
+          src={post.data.image || "/images/tyne-time-nufc-blog.jpg"}
+          alt={post.data.image_alt || post.data.title}
+          width={540}
+          height={360}
+          style={!post.data.image ? { filter: "blur(6px)" } : ""}
+        />
+      )
+    }
   </a>
 </article>
 
