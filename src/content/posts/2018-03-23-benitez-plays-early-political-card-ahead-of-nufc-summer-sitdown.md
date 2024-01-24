@@ -7,7 +7,7 @@ description: >-
   edgy end, the Spaniard has already dished out a diplomatic warning to Mike
   Ashley
 url: /2018/03/benitez-early-political-play-before-nufc-summer-sitdown/
-image: ./images/rafa-benitez-nufc-manchester-united.jpg
+image: /public/images/rafa-benitez-nufc-manchester-united.jpg
 image_alt: >-
   Rafa Benitez issues instructions to his players as Newcastle United take on
   Manchester United at St. James' Park.

@@ -4,7 +4,7 @@ date: 2023-09-19T12:21:00.000Z
 description: >-
   After 20 years in the abyss, Eddie Howe has led Newcastle United back to the Champions League, and you can bet we'll enjoy it.
 url: /2023/09/newcastle-champions-league/
-image: ./images/newcastle-united-champions-league.png
+image: /public/images/newcastle-united-champions-league.png
 image_alt: Newcastle United prepare for their Champions League tie against AC Milan.
 categories:
   - NUFC Blog

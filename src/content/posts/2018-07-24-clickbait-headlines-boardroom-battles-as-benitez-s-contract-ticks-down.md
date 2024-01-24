@@ -6,7 +6,7 @@ description: >-
   efforts while the media compound the misery with clickbait headlines & poor
   info.
 url: /2018/07/clickbait-headlines-boardroom-rafa-benitez/
-image: ./images/benitez-newcastle-2018.png
+image: /public/images/benitez-newcastle-2018.png
 image_alt: >-
   Rafa Benitez ponders as Newcastle United take on Southampton in the Premier
   League.

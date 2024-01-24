@@ -6,7 +6,7 @@ description: >-
   26 has caused friction in the past, but Rafa Benitez can make it work, with
   just a little compromise.
 url: /2019/03/benitez-nufc-transfer-policy-compromise/
-image: ./images/ayoze-perez-salomon-rondon-nufc.jpg
+image: /public/images/ayoze-perez-salomon-rondon-nufc.jpg
 image_alt: >-
   Ayoze Perez celebrates with Salomon Rondon after scoring the winner against
   Everton.
