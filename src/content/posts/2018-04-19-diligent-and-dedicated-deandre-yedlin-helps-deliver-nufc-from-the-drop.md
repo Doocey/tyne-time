@@ -6,7 +6,7 @@ description: >-
   Ayoze Perez & Jonjo Shelvey have grabbed recent headlines at Newcastle United,
   but spoken softly is the name of DeAndre Yedlin who has been equally crucial.
 url: /2018/04/diligent-dedicated-deandre-yedlin-newcastle-united/
-image: /public/images/deande-yedlin-newcastle-arsenal.jpg
+image: ./images/deande-yedlin-newcastle-arsenal.jpg
 image_alt: Newcastle's DeAndre Yedlin appeals for a decision against Arsenal.
 categories:
   - NUFC Blog

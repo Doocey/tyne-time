@@ -9,7 +9,7 @@ description: >-
   Newcastle United endured a disappointing January transfer window but the
   arrival of Islam Slimani from Leicester City has raised hopes on Tyneside,
   just.
-image: /public/images/islam-slimani-nufc.jpg
+image: ./images/islam-slimani-nufc.jpg
 image_alt: "Islam Slimani in action for Leicester City - now he will be tasked with keeping Newcastle in the Premier League."
 categories:
   - NUFC Blog

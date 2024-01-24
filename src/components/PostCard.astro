@@ -32,17 +32,10 @@ const { post } = Astro.props;
           alt={post.data.image_alt || post.data.title}
           width={540}
           height={360}
+          style={!post.data.image ? { filter: "blur(6px)" } : ""}
         />
       )
     }
-    <!-- <img
-      width={620}
-      height={360}
-      loading="lazy"
-      src={post.data.image || "/images/tyne-time-nufc-blog.jpg"}
-      alt={post.data.image_alt || post.data.title}
-      style={!post.data.image ? { filter: "blur(6px)" } : ""}
-    /> -->
   </a>
 </article>
 

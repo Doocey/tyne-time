@@ -8,9 +8,10 @@ description: "I couldn't help but notice Tim Sherwood's comments on Newcastle Un
 url: /2017/04/30/what-would-a-failed-manager-like-tim-sherwood-know-about-newcastle-united/
 categories:
   - Newcastle United News
-image: /public/wp-content/uploads/2017/04/Tim-Sherwood-Aston-Villa.jpg
 image_alt: "Tim Sherwood at Villa Park"
 ---
+
+![Tim Sherwood](https://www.tynetime.com/wp-content/uploads/2017/04/Tim-Sherwood-Aston-Villa.jpg "Aston Villa manager")
 
 You wouldn't be faulted for failing to remember who exactly Tim Sherwood is, but if you want a quick recap, he's the snake that ousted Andre Villa Boas during his curious tenure at White Hart Lane before being sacked himself. Based on his endeavours at Spurs, he landed the gig at Aston Villa, a club in real peril languishing just about the relegation zone. He took over a broken dressing-room and managed to keep them in the Premier League, as well as reaching an FA Cup where they were trounced by Arsenal. Sounds like a decent manager from that alone, but he was sacked yet again after an abysmal start to the following Premier League campaign at Villa Park. Fast-forward to 2016 and Tim Sherwood is appointed Director of Football at Swindon Town, based on his friendship with Lee Power.
 

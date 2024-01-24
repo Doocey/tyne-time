@@ -21,5 +21,5 @@ const posts = (await getCollection("posts")).reverse();
     slot="hero"
   />
   <HomepageCallout />
-  {posts && posts.slice(0, 18).map((post) => <PostCard post={post} />)}
+  {posts && posts.slice(0, 40).map((post) => <PostCard post={post} />)}
 </BaseLayout>
