@@ -6,7 +6,7 @@ description: >-
   Newcastle United's talented midfielder Mikel Merino could be readying a return
   to Spain for a measly & downright disgraceful €15m, according to reports.
 url: /2018/05/mikel-merino-15m-move-daylight-robbery/
-image: /public/images/mikel-merino-nufc-swansea.jpg
+image: ./images/mikel-merino-nufc-swansea.jpg
 image_alt: >-
   Mikel Merino sprays a pass across the Liberty Stadium surface in Newcastle'
   Premier League match-up with Swansea.

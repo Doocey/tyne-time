@@ -5,7 +5,7 @@ description: >-
   Rafa Benitez didn't get the arrivals he wanted, but it's who didn't leave that
   may mark his biggest victory in the transfer window - one being Matt Ritchie.
 url: /2018/08/keeping-matt-ritchie-big-benitez-win/
-image: /public/images/matt-ritchie-newcastle-chelsea.jpg
+image: ./images/matt-ritchie-newcastle-chelsea.jpg
 image_alt: Matt Ritchie in action for Newcastle against Chelsea at St. James' Park.
 categories:
   - NUFC Blog

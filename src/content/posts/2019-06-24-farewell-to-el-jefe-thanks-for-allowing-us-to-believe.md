@@ -5,7 +5,7 @@ description: >-
   Rafa Benitez will end his three year spell at Newcastle United on Sunday. All
   we can do is say farewell & thank him for allowing us to believe.
 url: /2019/06/thank-you-rafa/
-image: /public/images/rafa-benitez-leaves-nufc.jpg
+image: ./images/rafa-benitez-leaves-nufc.jpg
 image_alt: A banner of support for Rafa Benitez.
 categories:
   - NUFC Blog

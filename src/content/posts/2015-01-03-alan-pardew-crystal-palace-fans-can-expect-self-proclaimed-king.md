@@ -8,9 +8,9 @@ excerpt: "I'm not going to lie, it brings me great pleasure to be able to write 
 url: /2015/01/03/alan-pardew-crystal-palace-fans-can-expect-self-proclaimed-king/
 categories:
   - Alan Pardew
-image: /public/wp-content/uploads/2015/01/Alan-Pardew-Crystal-Palace.jpg
-image_alt: "Alan Pardew watches on from the Newcastle United sideline"
 ---
+
+!["Alan Pardew watches on from the Newcastle United sideline"](https://www.tynetime.com/wp-content/uploads/2015/01/Alan-Pardew-Crystal-Palace.jpg "Alan Pardew")
 
 I'm not going to lie, it brings me great pleasure to be able to write this article at the start of a new year. Alan Pardew has finally packed his bags and left Newcastle United after four years in charge. I think most NUFC fans were beginning the accept the sad fact that Pardew was not going to be sacked, especially when the club enter a truly horrid period of form at the start of the season. I say _fact_ because that is what it was. There was no chance Mike Ashley was sacking Alan Pardew unless the club tinkered on the edge of relegation from the Premier League, and in all honestly, it looks be a fairly comfortable ride from now until the end of the season in avoiding the drop. So when news filtered through that Alan Pardew had not attended his scheduled post-match press conference after defeating Everton 3-2, rumours spread like wildfire about his imminent departure to Selhurst Park, the club where he is most loved.
 
