@@ -8,7 +8,7 @@ excerpt: "I'm not going to lie, it brings me great pleasure to be able to write 
 url: /2015/01/03/alan-pardew-crystal-palace-fans-can-expect-self-proclaimed-king/
 categories:
   - Alan Pardew
-image: https://www.tynetime.com/wp-content/uploads/2015/01/Alan-Pardew-Crystal-Palace.jpg
+image: /public/wp-content/uploads/2015/01/Alan-Pardew-Crystal-Palace.jpg
 image_alt: "Alan Pardew watches on from the Newcastle United sideline"
 ---
 

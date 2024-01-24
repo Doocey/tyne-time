@@ -6,7 +6,7 @@ description: >-
   crucial player to Newcastle United whether some NUFC supporters realise it or
   not.
 url: /2018/09/criticism-like-clockwork-ayoze-perez/
-image: /images/ayoze-perez-newcastle-2018.jpg
+image: ./images/ayoze-perez-newcastle-2018.jpg
 image_alt: >-
   Ayoze Perez in action for Newcastle United against Chelsea in the 2018/19
   Premier League.

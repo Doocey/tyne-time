@@ -18,7 +18,7 @@ const { title, excerpt, description, date, image, image_alt, categories } =
     description={description ||
       excerpt ||
       `${createExcerpt({ body: Astro.props.body, characterLimit: 140 }).trim()} ...`}
-    image={image}
+    image={image?.src}
   />
   <style>
     main {
@@ -96,7 +96,7 @@ const { title, excerpt, description, date, image, image_alt, categories } =
       excerpt ||
       createExcerpt({ body: Astro.props.body, characterLimit: 140 }).trim()}
     date={date}
-    image={image}
+    image={image?.src}
     categories={categories}
   />
 
@@ -105,7 +105,7 @@ const { title, excerpt, description, date, image, image_alt, categories } =
     {
       image && (
         <div id="hero-image">
-          <img src={image} alt={image_alt || title} />
+          <img src={image?.src} alt={image_alt || title} />
         </div>
       )
     }

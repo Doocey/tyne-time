@@ -5,7 +5,7 @@ description: >-
   Salomon Rondon's goals will be crucial if Newcastle United are to stay afloat,
   as the club gamble once again ahead of an unknown 2019 at St. James' Park.
 url: /2018/12/hopes-on-rondon-newcastle-united-gambling-again/
-image: /images/rondon-newcastle-benitez.jpg
+image: ./images/rondon-newcastle-benitez.jpg
 image_alt: Salomon Rondon embraces Newcastle United manager Rafa Benitez.
 categories:
   - NUFC Blog
