@@ -5,7 +5,7 @@ description: >-
   Matt Ritchie has been linked with a move to Championship sides Stoke City &
   Middlesbrough, but why would NUFC let such an influential figure leave?
 url: /2018/06/matt-ritchie-linked-with-newcastle-departure/
-image: /images/rafa-benitez-matt-ritchie.jpg
+image: ./images/rafa-benitez-matt-ritchie.jpg
 image_alt: >-
   Rafa Benitez congratulates Matt Ritchie on the St. James' Park surface
   following a Premier League match.
