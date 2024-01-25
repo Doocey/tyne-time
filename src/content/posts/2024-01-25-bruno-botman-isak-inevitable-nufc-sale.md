@@ -2,10 +2,10 @@
 title: Bruno, Botman, Isak and the inevitable summer sale
 date: 2024-01-25T18:30:16.548Z
 description: >-
-  After 20 years in the abyss, Eddie Howe has led Newcastle United back to the Champions League, and you can bet we'll enjoy it.
+  The January window has created a stir on Tyneside, but the reality is NUFC will be forced to sell one of their key men this summer, with Bruno catching the eye.
 url: /2024/01/bruno-botman-isak-inevitable-nufc-sale/
 image: ./images/bruno-guimaraes-nufc.jpeg
-image_alt: Newcastle United prepare for their Champions League tie against AC Milan.
+image_alt: Bruno Guimaraes and Alexander Isak prepare for their Champions League clash
 categories:
   - NUFC Blog
 type: post
