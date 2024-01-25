@@ -1,0 +1,37 @@
+---
+import {
+  SocialShare,
+  FacebookShareButton,
+  RedditShareButton,
+  TwitterShareButton
+} from "astro-social-share";
+
+const BUTTONS = [TwitterShareButton, FacebookShareButton, RedditShareButton];
+
+interface Props {
+  title: string;
+  description?: string;
+}
+
+const { title, description } = Astro.props;
+---
+
+<section id="social-share-article">
+  <small>Share article on:</small>
+  <SocialShare
+    buttons={BUTTONS}
+    title={title}
+    description={description}
+    via="TyneTime"
+  />
+</section>
+
+<style>
+  small {
+    display: block;
+    font-size: 14px;
+    text-transform: uppercase;
+    letter-spacing: 1px;
+    margin-bottom: 5px;
+  }
+</style>
