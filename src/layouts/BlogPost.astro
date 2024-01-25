@@ -6,6 +6,7 @@ import JSONBlogSchema from "@components/JSONBlogSchema.astro";
 import Header from "@components/Header.astro";
 import { Image } from "astro:assets";
 import FormattedDate from "@components/FormattedDate.astro";
+import SharePost from "@components/SharePost.astro";
 import AuthorBio from "@components/AuthorBio.astro";
 import Footer from "@components/Footer.astro";
 
@@ -119,12 +120,18 @@ const { title, excerpt, description, url, date, image, image_alt, categories } =
           <div id="title">
             <h1>{title}</h1>
             <address id="byline">
-              Words by Kevin Doocey on <FormattedDate date={new Date(date)} />
+              Words by <!-- Author Start -->Kevin Doocey<!-- Article End --> on <FormattedDate
+                date={new Date(date)}
+              />
             </address>
             <br />
             <hr />
           </div>
+          <!-- Article Start -->
           <slot />
+          <!-- Article End -->
+          <hr />
+          <SharePost title={title} description={description} />
         </div>
         <AuthorBio />
       </article>
