@@ -19,7 +19,7 @@ export async function GET(context) {
       .reverse(),
     customData: [
       "<language>en-GB</language>",
-      `<lastBuildDate>${posts.at(-1).data.date}</lastBuildDate>`,
+      `<lastBuildDate>${posts.at(-1).data.date.toUTCString()}</lastBuildDate>`,
       `<atom:link href="https://www.tynetime.com/rss.xml" rel="self" type="application/rss+xml" />`
     ].join(" ")
   });
