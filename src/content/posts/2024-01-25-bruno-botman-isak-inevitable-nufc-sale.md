@@ -1,6 +1,6 @@
 ---
 title: Bruno, Botman, Isak and the inevitable summer sale
-date: 2024-01-26T13:05:16.548Z
+date: 2024-01-25T20:12:16.548Z
 description: >-
   The January window has created a stir on Tyneside, but the reality is NUFC will be forced to sell one of their key men this summer, with Bruno catching the eye.
 url: /2024/01/bruno-botman-isak-inevitable-nufc-sale/
