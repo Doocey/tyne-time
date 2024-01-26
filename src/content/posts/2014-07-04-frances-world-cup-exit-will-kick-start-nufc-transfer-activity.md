@@ -23,4 +23,4 @@ Then if Costa Rica can continue their fine form and eliminate the Netherlands, t
 
 Comments welcome as always, folks.
 
-Feel free to follow yours truly on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter").
+Feel free to follow yours truly on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter").

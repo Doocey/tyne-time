@@ -36,4 +36,4 @@ For Ritchie, even just watching the opening Premier League games you can notice 
 
 Keeping hold of the Scottish international was one the biggest wins Rafa Benitez had in the summer transfer window, and I think we'll see even more evidence of that as the season progresses.
 
-Comments welcome as always, and be sure to follow [@KevinDoocey](@KevinDoocey).
+Comments welcome as always, and be sure to follow [@KevinDoocey](https://twitter.com/kevindoocey/).

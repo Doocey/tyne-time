@@ -23,4 +23,4 @@ Saying that, he is an exciting prospect and providing an appropriate price could
 
 I would much rather we looked at the relegated sides to see if any good deals could be sought - Steven Caulker, Leroy Fer, Nathan Redmond, Alexander Ka?anikli? and so forth. Either way, we want new players and preferably quality ones. Rémy Cabella has confirmed that he will leave the club this summer, surely NUFC have to be heavily involved in deciding his next destination? Let's hope so.
 
-Comments welcome as always, and make sure to follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter").
+Comments welcome as always, and make sure to follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter").

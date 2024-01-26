@@ -39,4 +39,4 @@ One parting memory from his Tyneside: Scoring and celebrating his only ever goal
 
 Best of luck to him in his new adventure.
 
-Comments welcome as ever, and feel free to follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter").
+Comments welcome as ever, and feel free to follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter").

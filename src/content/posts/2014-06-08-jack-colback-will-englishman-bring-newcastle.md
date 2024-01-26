@@ -41,4 +41,4 @@ I think the biggest reason Newcastle have seemingly signed him, is because he is
 
 Potential to be excellent, English, free transfer, and a Newcastle fan - we don't much to lose with this punt.
 
-What do you think? Comments below please, and make sure to follow myself on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter").
+What do you think? Comments below please, and make sure to follow myself on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter").

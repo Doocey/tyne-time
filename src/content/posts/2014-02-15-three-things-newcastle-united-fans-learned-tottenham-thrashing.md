@@ -33,4 +33,4 @@ Newcastle are not going to be relegated this season unless we lose every game fr
 
 We never make things easy at Newcastle, but surely things cannot get any worse. The side have about a week to regroup and draw a line under the current mess we find ourselves in. The good news? The real leader on Tyneside, Fabricio Coloccini, is recovering well and is near a return. Leading goalscorer Loic Rémy is also ready to come back into the team, and hey, we've still got Dan Gosling to bring on to strengthen the midfield!
 
-Comments welcome as always folks, and shoot us a follow on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter").
+Comments welcome as always folks, and shoot us a follow on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter").

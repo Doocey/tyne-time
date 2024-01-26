@@ -19,4 +19,4 @@ Any transfer dealings are welcome at Newcastle at this stage, and especially if 
 
 Ayoze - as he likes to be called - is one for the future, I just hope that Newcastle do not see him as the finished solution to our goal-scoring issues. The reality is Loic Rémy is off to Arsenal, Shola Ameobi will leave when his contract expires at the end of June, Luuk de Jong has been brutal and has returned to Germany, and Papiss Cissé is out for the considerable future. To say we need a number of new forwards is an understatement.
 
-Anyway, if there are any Tenerife fans reading this, or indeed Segunda Division aficionados then feel free to fill the rest of us in on what Ayoze would bring to St. James' Park. Be sure to follows yours truly on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter") too.
+Anyway, if there are any Tenerife fans reading this, or indeed Segunda Division aficionados then feel free to fill the rest of us in on what Ayoze would bring to St. James' Park. Be sure to follows yours truly on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter") too.

@@ -26,4 +26,4 @@ Personally I actually do rate **Colback** - and he has always been one of very f
 
 I'm all for signing him up on a free and I do think deep down, the 24 year-old harnesses a lot of ability. Then again, providing we do sign him - is Alan Pardew really the man to develop the player to his very best potential? I doubt it, but who knows.
 
-So folks, what do you think - should Newcastle look to sign **Jack Colback** at the end of the season? Opinions, thoughts and any other musings in the comments box below please, and make sure you follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter")!
+So folks, what do you think - should Newcastle look to sign **Jack Colback** at the end of the season? Opinions, thoughts and any other musings in the comments box below please, and make sure you follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter")!

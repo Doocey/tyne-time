@@ -42,4 +42,4 @@ Of course they offer pace on the wings with Nathan Dyer and Wayne Routledge, so 
 
 The lads need an aim between now and the end of the season, and although it's likely to be financial, hopefully the players can rally for the remaining four games and try to accumulate as many points as possible. It's the least us fans deserve after a challenge campaign to say the least.
 
-What do you think? Feel free to leave your thoughts in the comments and be sure to follow myself on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter").
+What do you think? Feel free to leave your thoughts in the comments and be sure to follow myself on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter").

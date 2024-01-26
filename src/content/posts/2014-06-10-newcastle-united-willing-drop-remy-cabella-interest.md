@@ -26,4 +26,4 @@ To be perfectly honest, I cannot see us landing Cabella now especially after he 
 
 Saying that, I'll leave you all on a positive note. Newcastle attempted and failed to bring **Mathieu Debuchy** to St. James' Park before the 2012 European Championship, and despite being one of the nations best players at the tournament (just behind Cabaye) we still managed to push through a deal in January of the following year. Maybe all hope is not lost..
 
-Comments welcome as always, and feel free to follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter").
+Comments welcome as always, and feel free to follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter").

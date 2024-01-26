@@ -26,4 +26,4 @@ I'm a big fan of Bacca and I think he'd thrive in the Premier League, however, h
 
 We need at least *two forwards* this window in order to have a real goal-scoring threat for de Jong to supply this season - is Bacca one of our primary targets?
 
-Comments welcome as always, and be sure to follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter").
+Comments welcome as always, and be sure to follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter").

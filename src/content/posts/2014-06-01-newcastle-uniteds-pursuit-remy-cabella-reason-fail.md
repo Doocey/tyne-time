@@ -29,4 +29,4 @@ The hope is that the clubs will come to an agreement, and it is likely that the 
 
 The question is - will Montpellier become even more insulted, or will they accept the offer and let Cabella leave for the hallowed turf of St. James' Park?
 
-Only time will tell, but we hope for some positive news, there is no reason why the club should fail in this quest. In the meantime, feel free to add your thoughts below, and follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter").
+Only time will tell, but we hope for some positive news, there is no reason why the club should fail in this quest. In the meantime, feel free to add your thoughts below, and follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter").

@@ -21,4 +21,4 @@ Alan Pardew is determined to bring in more English faces, and although Luuk de J
 
 Call me deluded, or overly optimistic but I just get that feeling that we could in the midst of those negotiations for Ince, and I certainly hope so. Swansea, Sunderland and Stoke are all conversing with the ex-Liverpool man, we should be in there too, no excuses.
 
-Comments welcome as always folks, and shoot us a follow on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter") if you fancy it.
+Comments welcome as always folks, and shoot us a follow on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter") if you fancy it.

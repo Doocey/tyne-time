@@ -28,4 +28,4 @@ I'm interested - above the other candidates - to see whether Abeid can return fr
 
 What do you think? Does he have a future?
 
-Comments below, and feel free to follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter").
+Comments below, and feel free to follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter").

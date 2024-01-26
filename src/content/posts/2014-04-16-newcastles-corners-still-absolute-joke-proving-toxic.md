@@ -38,4 +38,4 @@ It's a matter that has been annoying me for a solid year and sadly no improvemen
 
 Hatem Ben Arfa, Sylvain Marveaux, Dan Gosling, and Anita (from left-hand side) are all suitable corner takers, but please can Alan Pardew see that the current system is a shambles. It's time to change, let the corners just be the start..
 
-Follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter") and feel free to leave comments in the section provided.
+Follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter") and feel free to leave comments in the section provided.

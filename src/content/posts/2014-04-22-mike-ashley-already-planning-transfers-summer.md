@@ -27,4 +27,4 @@ We'd love to see some real investment in some quality players at Newcastle, and 
 
 Despite that, he seems to be trying a new approach at Newcastle regards transfers — it can't turn out any worse than previous years, can it?
 
-Thoughts in the comments below, and as ever - feel free to follow myself on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter")!
+Thoughts in the comments below, and as ever - feel free to follow myself on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter")!

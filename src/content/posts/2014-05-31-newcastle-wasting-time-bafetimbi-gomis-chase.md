@@ -21,4 +21,4 @@ Let's be honest though - there are better forwards out there that would be willi
 
 I would like to see Graham Carr, Norman Wooster and the team to focus their efforts elsewhere, because, if you ask me, we'll be left disappointed if we concentrate on trying - yet again - to lure the powerful forward to St. James' Park.
 
-What do you think? Are the club right to be pursuing Gomis so strenuously, or should be drop interest and look to bring in younger, and arguably better talent? Comments below please, and make sure to follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey “kevin doocey twitter").
+What do you think? Are the club right to be pursuing Gomis so strenuously, or should be drop interest and look to bring in younger, and arguably better talent? Comments below please, and make sure to follow me on Twitter [@KevinDoocey](https://twitter.com/kevindoocey "kevin doocey twitter").
