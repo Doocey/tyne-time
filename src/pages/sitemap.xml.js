@@ -25,7 +25,7 @@ export async function GET({ request }) {
 
   primaryPagesXmlString.push(`<url>
     <loc>${baseUrl}/</loc>
-    <lastmod>${new Date(posts.at(0).data.date).toISOString()}</lastmod>
+    <lastmod>${new Date(posts.at(-1).data.date).toISOString()}</lastmod>
     </url>`);
 
   const postsXmlString = posts.map(
@@ -49,8 +49,8 @@ export async function GET({ request }) {
   );
 
   const completeXmlString = [
-    ...primaryPagesXmlString,
-    ...postsXmlString,
+    ...primaryPagesXmlString.reverse(),
+    ...postsXmlString.reverse(),
     ...categoriesXmlString
   ];
 
