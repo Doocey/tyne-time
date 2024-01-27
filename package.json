@@ -10,7 +10,6 @@
     "astro": "astro"
   },
   "dependencies": {
-    "@astrojs/mdx": "^2.0.4",
     "@astrojs/rss": "^4.0.2",
     "@fontsource/pt-serif": "^5.0.18",
     "astro": "^4.1.3",
