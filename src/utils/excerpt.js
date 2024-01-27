@@ -1,10 +1,9 @@
-import MarkdownIt from "markdown-it";
-
-const parser = new MarkdownIt();
+import { micromark } from "micromark";
 
 export const createExcerpt = ({ body, characterLimit }) => {
-  return parser
-    .render(body)
+  // Allow the ampersand (&) symbol in the <PostCard />
+  return micromark(body)
+    .replaceAll("&amp;", "&")
     .split("\n")
     .map((str) => str.replace(/<\/?[^>]+(>|$)/g, "").split("\n"))
     .flat()

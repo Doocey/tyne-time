@@ -11,7 +11,7 @@ categories:
   - Newcastle United News
 ---
 
-### Harewood - Reportedly joining Newcastle next week
+### Harewood - Reportedly joining Newcastle next week
 
 Well, I'm back from holidays in the Algarve, albeit a little sunburnt but the good news is, Newcastle United are top of the Coca Cola Championship with Chris Hughton doing a great job. A rather great goal from 'Dan the man Guthrie' saw us through Leicester with Nile Ranger showing signs of a very good future striker. Steve Howard caused a few problems to our defence but Jose Enrique, Steven Taylor and co. did a pretty decent job. We've Cardiff next, in the Welsh capital and we'll really need to be on top form to overcome Dave Jones's side.
 

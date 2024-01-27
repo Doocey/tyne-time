@@ -10,7 +10,7 @@ categories:
   - Newcastle United News
 ---
 
-### Kinnear - Clearly hasn't taken the news well
+### Kinnear - Clearly hasn't taken the news well
 
 Phew! That was a close one. Most fans were about to cry when they heard Joe Kinnear could be returning as Newcastle United manager but David Craig and his 'sources' at Newcastle have confirmed that Kinnear will **not** be returning as manager. However it's understood that Mike Ashley as Derek Llambias visited Joe Kinnear checking up on his, asking whether he was ready to return to football. It's understood that Kinnear said he wasn't and that it'd be about two months away. So it's believed Newcastle will be sold at the end of this month and Kinnear will not figure as head coach of the Toon.
 

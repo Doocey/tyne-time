@@ -13,7 +13,7 @@ categories:
 
 ![Manchester City's Jô](https://www.tynetime.com/wp-content/uploads/2010/12/Jo-003.jpg "Jo_Man_City")
 
-#### Jô - Would be an extremely good addition to Newcastle United this January
+#### Jô - Would be an extremely good addition to Newcastle United this January
 
 It is very likely that Edin Džeko will join Manchester City this January in a €35m move come January as VfL Wolfsburg have lowered their asking initial asking price. Another ridiculous fee to pay for a striker who I can only guess would be delighted to join the club for its wages. Don't get me wrong, Edin is a fine talent and will score a lot of goals given the chance, but he isn't worth any more than £17m in all honesty. However, we needn't worry about all this commotion because surprisingly, it could spell some good news for Newcastle United as a club.
 

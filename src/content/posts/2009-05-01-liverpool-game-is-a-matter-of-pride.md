@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Players - Need to show they're worth their wages
+### Players - Need to show they're worth their wages
 
 We'll be going to Liverpool very soon and we'll be looking for a point. Shearer has today said that the team are going there with the attitude that we can get all 3 points but in fairness that won't happen. It's good to see the lads are optimistic heading into one of the highest scoring teams in the league but if you do the maths, we won't be getting anything from this game. We have big trouble defending and our defending is way below par, for Liverpool, they've found it easy to score and their defense has been sufficient. You'd suspect a big scoreline come the afternoon.
 

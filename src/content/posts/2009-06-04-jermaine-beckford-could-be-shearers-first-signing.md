@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Beckford - Leaving Elland Road regardless
+### Beckford - Leaving Elland Road regardless
 
 Reports over the last few days have suggested that Jermaine Beckford could arrive to St.James' as Shearer's first signing. Beckford who plays for Leeds is a center forward, for those of you who don't know. He's a powerful, tall and quite fast and his intentions are to leave Leeds United this summer. Joining Newcastle would be a big move up for the lad and we can't see him resisting a all from the Magpies. With Oba Martins set to leave and Owen close after him we need another striker to partner Carroll, Ameobi or indeed Lovenkrands. Of course Nile Ranger will be pushing for a starting place too.
 

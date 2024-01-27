@@ -11,7 +11,7 @@ categories:
 
 ![Jonas Gutiierrez doing very well for Newcastle United so far this season](https://static.guim.co.uk/sys-images/Football/Pix/pictures/2009/11/8/1257687255451/Jonas-Gutierrez-celebrate-001.jpg)
 
-### Jonas - Doing well on Tyneside this season and has scored a few goals
+### Jonas - Doing well on Tyneside this season and has scored a few goals
 
 Jonas Gutierrez will represent Argentina at the World Cup in South Africa in June, which is a major honour for the winger that has played this season in the Coca Cola Championship. The former Mallorca man who arrived on Tyneside in rather controversial circumstances didn't really set the world alight in his first season the Premier League but then again, how many Newcastle United players last season really did impress you besides Sebastien Bassong?
 

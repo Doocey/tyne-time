@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Coloccini - To be dropped
+### Coloccini - To be dropped
 
 Well it seems that Shearer isn't afraid to change things around and it seems that Fabricio Coloccini will be first to feel the wrath of the new boss. Coloccini has been in poor form all season bar his debut against Manchester United where he looked worthy of all the £10.3m we paid for him. However he has been at fault for many of our goals including Chelsea's first on Saturday. He is simply too slow but hopefully he can improve and get used to the Premier League soon. It seems that Bassong and Steven Taylor could be the two center backs for Stoke with Enrique and Beye the fullbacks.
 

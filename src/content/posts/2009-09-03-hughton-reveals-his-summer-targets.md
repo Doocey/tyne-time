@@ -10,7 +10,7 @@ categories:
   - Newcastle United News
 ---
 
-### Hughton - Working under severe Ashley demands
+### Hughton - Working under severe Ashley demands
 
 Speaking today to local papers today, Chris Hughton, who is doing a really good job with the lads this season, revealed who he tried for during the transfer window period. Although the window has slammed shut, and slammed firmly shut for Chelsea, Championship squads can continue to loan and sign free agents. We're currently top of the table, the last we said that was on the first day of the season with Sam Allardyce in charge, after a 3-1 victory at Bolton. Notably the scorers in that game are now departed and Bolton's scorer Kevin Nolan, is currently a Magpie. Just thought I'd point that out 😀
 

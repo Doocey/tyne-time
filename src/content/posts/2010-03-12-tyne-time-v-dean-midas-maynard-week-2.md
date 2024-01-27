@@ -9,7 +9,7 @@ categories:
   - Newcastle United News
 ---
 
-### Tyne Time v Dean Maynard in tipping challenge
+### Tyne Time v Dean Maynard in tipping challenge
 
 With Newcastle traveling to Middlesbrough tomorrow, **Tyne Time** continues it's feature which see us put our wits up against one of the leading sports psychics in the world, Dean Midas Maynard. As mentioned in the previous weeks posts, Dean is quite a famous sports psychic and has worked with many football clubs. This week, we go head to head to see who can predict the exact result for the Boro derby, or indeed the closest thing to a derby we'll get this season anyway.
 

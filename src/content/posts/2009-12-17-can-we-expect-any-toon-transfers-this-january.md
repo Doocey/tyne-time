@@ -9,7 +9,7 @@ categories:
   - Newcastle United News
 ---
 
-### Pato - Perhaps just a little unrealistic?
+### Pato - Perhaps just a little unrealistic?
 
 OK, we might not attract Alexandre Pato to St.James' Park but we certainly do hope that new faces arrive on Tyneside this January. I know a lot of you'll will immediately play down our chances of signing anyone <span style="text-decoration: line-through;">good</span> **permanently** you just never know, we might be surprised this Christmas period, although I wouldn't get too excited. Reports emerged today that Ashley could hand Chris Hughton a possible £6m transfer kitty, and that Adam Hammill is on Hughton's wish-list. I really don't know what's more believable, £6m budget or signing Adam Hammill!
 

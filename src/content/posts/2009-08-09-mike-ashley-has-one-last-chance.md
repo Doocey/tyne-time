@@ -10,7 +10,7 @@ categories:
   - Newcastle United News
 ---
 
-### Ashley - Coming back from holiday
+### Ashley - Coming back from holiday
 
 Mike Ashley, the torrid owner of Newcastle United, has one last chance to get out of the club before it's too late, yet again. It's being reported today that Ashley is flying back from Hawaii , cutting short an undeserved holiday to return and discuss Barry Moat's bid. It's believed Moat has bid around £70m and Ashley isn't too keen on accepting it, only thing is, it's the only bidder let on the table with the Profitable Group having pulled out a while back. Although it's being reported that David O'Leary has been offered the Newcastle job, with Ashley deciding to stay, we can't trust any Sunday rumours from any source, this time being the BBC.
 

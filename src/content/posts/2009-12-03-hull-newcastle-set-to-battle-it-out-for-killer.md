@@ -9,7 +9,7 @@ categories:
   - Newcastle United News
 ---
 
-### Kilgallon - Hull have moved in alongside Newcastle for the CB
+### Kilgallon - Hull have moved in alongside Newcastle for the CB
 
 Well it seems my latest article caused quite a lot of controversy and perhaps it was just a little too harsh on Birmingham City. They're doing well in the Premier League and Toon old boys Stephen Carr & Lee Bowyer seem to be enjoying their football at St.Andrews. Long may it last but I still believe that they'll be fighting it out for survival come April/ May, then again, that's only my opinion. Anyway, today's brings news that Matthew Kilgallon is now being looked at by Phil Brown. Hull City, who have enjoyed quite a positive spell of late seem to have belief that they can win games and put it up against anyone, even in the transfer market.
 

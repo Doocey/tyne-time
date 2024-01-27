@@ -10,7 +10,7 @@ categories:
   - Newcastle United News
 ---
 
-### Cousin - Wouldn't be a bad acquisition
+### Cousin - Wouldn't be a bad acquisition
 
 After the news of Caleb Folan's reported loan move to Newcastle United, there is more news today, that Newcastle are looking for Daniel Cousin as well. The forward who is very similar to Caleb Folan hasn't been in and out of the Hull City side and it seems his relationship with manager Phil Brown isn't a love affair by any means. Most of you will remember cousin scoring against us in the cup, which put us out last year but that was then and half the team that played that night no longer wear the Black and White of Newcastle United.
 

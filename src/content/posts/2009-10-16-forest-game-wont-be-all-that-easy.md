@@ -9,7 +9,7 @@ categories:
   - Newcastle United News
 ---
 
-### Davies - Would love win against Toon
+### Davies - Would love win against Toon
 
 Newcastle will tomorrow attempt to keep their lead in the Coca Cola Championship as we face a trip to Nottingham Forest. Forest themselves who have had a touch a go start to the season aren't doing too badly, lying in about mid-table. For us, we can stay aloft the league and also, hopefully stretch our lead should West Brom, Middlesbrough or Sheffield face a blip in these weekend games. Chris Hughton, who has been in charge since relegation has done a great job, not least bringing the lads together, both on the field and off, something we haven't had in a while.
 

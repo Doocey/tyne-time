@@ -8,7 +8,7 @@ categories:
   - Mike Ashley
 ---
 
-### St. James' Park - 'New' name utter nonsense
+### St. James' Park - 'New' name utter nonsense
 
 They insist that the new name is to bolster revenue for the club, and for Chris Hughton's transfer pot. However, naming it Ashley's own company brings us absolutely no funding and you don't have to be a mathematician to figure out that it means no cash for Chris in January either. Maybe I'm wrong and that there will be some cash injected from Sports Direct but in all fairness , there would need to be. The stadium has been 'renamed' until the rest of the season which is another brainless move as it has no impact whatsoever for the club except trying to hinder the history of the famous theatre.
 

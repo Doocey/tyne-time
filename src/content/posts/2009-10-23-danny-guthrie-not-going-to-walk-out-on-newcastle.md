@@ -9,7 +9,7 @@ categories:
   - Danny Guthrie
 ---
 
-### Guthrie - Won't settle until Newcastle are back in Premier League
+### Guthrie - Won't settle until Newcastle are back in Premier League
 
 One man who has been in determined form of late is Newcastle's Danny Guthrie. Danny, who was rumoured to be Keegan's only real signing has showed lots of maturity to adjust to the commotion at Newcastle. It's never easy for any player when you play under three different managers in one season and I think you'll find Guthrie is one of them players who is very keen to see Chris Hughton appointed full-time. Indeed Chris is expected to take full control in the next few days, and maybe even before tomorrow's game against Doncaster.
 

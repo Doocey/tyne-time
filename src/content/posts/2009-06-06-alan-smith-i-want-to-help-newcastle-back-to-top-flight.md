@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Smith - Wants to bring Newcastle back to Premier League
+### Smith - Wants to bring Newcastle back to Premier League
 
 Alan Smith admits he feels guilty that Newcastle United were relegated from the Premier League and feels as if he was one of the causes. Smith arrived from Man United for £6m, another Allardyce signing but has never had a permanent spot in Newcastle's first 11. Smith says he will stay at Newcastle and hopefully bring them back up to where they deserve to be, the Barclays Premier League. There may be a little problem though, Smith is one of the high earners at Newcastle pocketing £60,000 a week, and indeed Shearer will be looking to ship out most high earners this summer providing he is the manager.
 

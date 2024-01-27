@@ -12,7 +12,7 @@ categories:
 
 ![Steven Taylor heartbroken on the pitch at Villa Park following relegation](https://www.tynetime.com/wp-content/uploads/2012/05/Aston-Villa-Relegated-NUFC.jpg "Aston-Villa-Relegated-NUFC")
 
-#### Taylor - One of few players that day to show a genuine despair at relegation
+#### Taylor - One of few players that day to show a genuine despair at relegation
 
 Every Newcastle United fan will remember where they were when the final whistle sounded round Villa Park on the 24th of May, 2009. An own goal from Damien Duff, was the only thing that separated Newcastle United from Premier League survival and relegation to the Championship. Gareth Barry took a shot that was heading well off target and it hit Duff on the way only to evade Steve Harper and pop into the bottom corner. This was just minutes after Darron Gibson had scored a stunner for Manchester United to put Hull City in the bottom three. As we all know, the whole of Villa Park taunted and laughed at NUFC's demise, mocking them, and asking where our next messiah would come from.
 

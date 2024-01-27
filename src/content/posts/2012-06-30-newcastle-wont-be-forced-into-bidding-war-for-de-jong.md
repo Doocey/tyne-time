@@ -11,7 +11,7 @@ categories:
 
 ![Luuk de Jong plays during a Europa League game against Fulham](https://www.tynetime.com/wp-content/uploads/2012/06/Luuk-de-Jong-Holland.jpg "Luuk-de-Jong-Holland")
 
-#### de Jong - Wants to play his football in the Premier League
+#### de Jong - Wants to play his football in the Premier League
 
 While Newcastle United are trying their hardest to bring Luuk de Jong to St.James' Park, they have told FC Twente's negotiators that if they are too greedy over their forward, then the North-East outfit won't think twice about pulling out of any deal. Derek Llambias, alongside Lee Charnley are present in Holland and are hoping to take a trip down to France to talk to their other main target Mathieu Debuchy (if he isn't holidaying already!). The general consensus in the Newcastle camp is that they will have one player in their bag when they land back on Tyneside in the coming days.
 

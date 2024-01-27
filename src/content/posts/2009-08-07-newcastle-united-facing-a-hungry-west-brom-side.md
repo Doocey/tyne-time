@@ -9,7 +9,7 @@ categories:
   - Newcastle United News
 ---
 
-### Di Matteo - Will become a successful boss
+### Di Matteo - Will become a successful boss
 
 When Newcastle United travel to West Bromich Albion to tackle the first game of the Championship season, all eyes will be on The Hawthorns as tabloids alike will look to exert even more pressure on an already beleaguered NUFC. It's rather unfortunate that we face such stern opposition in our first game , although if I was to call West Brom stern opposition last year I'd begin to laugh. This is reality now though, we're facing probable Premier League promotion pushers that have strengthened the squad considerably. As I reported last month, they had already signed a few of our targets, none less than Simon Cox. Now it seems they could well field Joe mattock against us on Saturday, but although maybe not a transfer target, certainly a considerable one.
 

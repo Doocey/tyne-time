@@ -9,7 +9,7 @@ categories:
   - Chris Hughton
 ---
 
-### Hughton - Not buying a truck load of players this Jan
+### Hughton - Not buying a truck load of players this Jan
 
 Chris Hughton may be after a couple of players in January but he's intent on not breaking the harmony within the Newcastle United squad at the minute. Or in simple English 'Don't fix it, if it's not broken' and how right it is. We currently lie top of the Coca Cola Championship table as we enter a busy Christmas period. This is down to Chris and the players for knuckling down, but  especially to Chris. He's been working with the current crop of players since Kevin Keegan arrived that long time ago (2008) and he's connected well with every on the Toon lads.
 

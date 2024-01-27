@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-###  Martins - Can score some goals before the end of the season
+### Martins - Can score some goals before the end of the season
 
 If we beat Stoke on Saturday, not only will it be our first win in some time but it will be a turning point for Shearer's stint I should think. If we win say 2-0 our goal difference will be -13, Sunderland who are 3 points ahead of us are playing Manchester United next. With United's dramatic win against Villa on Sunday you would expect a win at the Stadium of Light. Say they defeat Sunderland 3-0 which is possible, Sunderland's goal difference would go to -15. That would mean Newcastle would step out of the relegation zone on a temporary basis.
 

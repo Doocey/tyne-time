@@ -11,7 +11,7 @@ categories:
 
 ![Alan Pardew shakes hands with Joey Barton after Newcastle's 3-1 vs. Liverpool](https://www.tynetime.com/wp-content/uploads/2011/03/Alan-Pardew-Joey-Barton.jpg "Alan_Pardew_Joey_Barton")
 
-#### Pardew - Will keep Newcastle United in the Premier League this season
+#### Pardew - Will keep Newcastle United in the Premier League this season
 
 I watched the whole ninety minutes of Newcastle United's thumping at the Britannia on Saturday and was less than impressed as you would. We were dominated, looked heartless and make a desperate Stoke City team look like a team a division above us.
 

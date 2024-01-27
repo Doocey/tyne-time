@@ -11,7 +11,7 @@ categories:
 
 ![Branimir Hrgota in action Sweden](https://www.tynetime.com/wp-content/uploads/2012/05/Branimir-Hrgota-NUFC.jpg "Branimir-Hrgota-NUFC")
 
-#### Hrgota - Hightly rated in Sweden as a natural goalscorer and future star
+#### Hrgota - Hightly rated in Sweden as a natural goalscorer and future star
 
 It is great to see Newcastle United are scouting for new talent all the time, and the latest to be linked with a move to St.James' Park is a certain Branimir Hrgota. Who is that you might ask, and to be fair, I haven't heard a lot about him before. What we do know is that he is 19 year-old Swedish striker for club Joenkoeping Soedra. According to his stats, he is fond of finding the net, but of course we do not know how high the standard is in that particular league. With that said, there are a lot of people raving about this guy back in Sweden and we're not the only club watching him: Valencia, Ajax and Bayern Leverkusen are also keeping tabs on him.
 

@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Bassong - Attracting apparent interest from Arsenal
+### Bassong - Attracting apparent interest from Arsenal
 
 Sebastien Bassong has spoken today about rumours linking him with Arsenal and despite the crappy tabloids claiming he's all ready to join Arsenal in the summer is nonsense, let's just get that straight first. He did however confirm his agent approached him about some interest from Arsenal however Arsené Wenger hasn't said a word about it. We all know Bassong by now, the best Newcastle defender all season and it doesn't surprise anyone that he could be attracting interest from bigger clubs. Sebastien said today though, that the only thing on his mind now is keeping Newcastle up and let's hope he does because you would certainly expect him to leave should we go down 🙁
 

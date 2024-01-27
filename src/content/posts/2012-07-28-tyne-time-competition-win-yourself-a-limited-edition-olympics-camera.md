@@ -11,7 +11,7 @@ categories:
 
 ![flagtagscompetition](https://www.tynetime.com/wp-content/uploads/2012/07/flagtagscompetition.jpg "flagtagscompetition")
 
-#### Olympics - Team GB will be hoping to please the home crowds in the football
+#### Olympics - Team GB will be hoping to please the home crowds in the football
 
 Despite all the issues with security that have been highlighted over the last couple of weeks - London and various parts of the UK are set for the 2012 Olympics. It's sure to be a historic event, with some of the most able athletes from all corners of the world coming to Britain to compete in biggest combined sporting event in the world. This event began in 776AD so to say it's been around a long time is a bit of an understatement to say the least! Anyway, to celebrate the Olympics, and indeed thank you as readers for your daily visits to TyneTime.com - we're giving away a special edition Panasonic digital camera.
 

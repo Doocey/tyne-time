@@ -9,7 +9,7 @@ categories:
   - Newcastle United News
 ---
 
-### Reynolds - Apparently attracting the interest from Colin Calderwood & Hughton
+### Reynolds - Apparently attracting the interest from Colin Calderwood & Hughton
 
 Well it might not have been John Ruddy Chris Hughton and co. were looking at in their quest to Scotland a day ago I expected. instead, the attention has turned to their centre-back, Mark Reynolds. The Scottish defender is also rumoured to be attracting interest from Sam Allardyce's Blackburn Rovers so whether that indicates what type of player he is, is another matter. However, reports are good on Reynolds and a lot of Motherwell fans see big times lying ahead of Mark.
 

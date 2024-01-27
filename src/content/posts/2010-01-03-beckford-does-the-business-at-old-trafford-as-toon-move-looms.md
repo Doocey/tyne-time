@@ -9,7 +9,7 @@ categories:
   - Jermaine Beckford
 ---
 
-### Beckford - Scored his 20th of the season to knock United out of the FA Cup
+### Beckford - Scored his 20th of the season to knock United out of the FA Cup
 
 I think most of us were delighted in some way to see Jermaine Beckford and Leeds United, knock Manchester United out of the FA Cup, at just the 3rd round. Beckford who you'll have probably heard, unless you've been under a stone for the last month, is being strongly linked with a move to Newcastle and within the next few days. However, after scoring in one of the biggest stages in the world in front of everyone, I think we'll see more than just Newcastle look to sign the striker. Beckford could've had a second too only for his shot was mis-hit in the last 10 minutes.
 

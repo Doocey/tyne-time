@@ -10,7 +10,7 @@ categories:
   - Newcastle United News
 ---
 
-### Jonas - Ready for Greek move
+### Jonas - Ready for Greek move
 
 Some may be delighted to see the guy go, he's been labelled everything from a headless chicken to an astounding dribbler but either way he wants out of Newcastle, and sooner the better. I suppose I can't blame Gutierrez too much for leaving and I believe that he'll be a very good player in the years to come. I'll never forget that performance in Old Trafford when he caused real havoc for United, indeed most Toon fans will never forget that, managing a point but not only that, Fabricio Coloccini having a great game too. Speaing today though, Jonas has the intention to play abroad and the sooner the better.
 

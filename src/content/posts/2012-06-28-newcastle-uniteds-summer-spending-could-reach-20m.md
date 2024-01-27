@@ -11,7 +11,7 @@ categories:
 
 ![Luuk de Jong in action for FC Twente](https://www.tynetime.com/wp-content/uploads/2012/06/luuk-de-jong.jpg "luuk-de-jong")
 
-#### de Jong - Newcastle are still hoping to land the forward despite £10m valuation
+#### de Jong - Newcastle are still hoping to land the forward despite £10m valuation
 
 Astoundingly, this summer's transfer window could see Newcastle United spending upwards of £20m as their pursuit of FC Twente forward Luuk de Jong, and endeavours to sign Mathieu Debuchy continue. de Jong, who has been subject to a £8.5m bid from NUFC would welcome a move to the Premier League, however, his club would like to receive a fee closer to £10m before letting their star man go. A £4m bid for Mathieu Debuchy has also been considered by the Lille hierarchy, but they too would like a couple of million more. If Newcastle were to agree to £9.5m & £6.5m fees respectively - it would see a 'capital outlay' of £16m - and that is before the prospect of Vurnon Anita arriving from Ajax or whoever else for that matter.
 

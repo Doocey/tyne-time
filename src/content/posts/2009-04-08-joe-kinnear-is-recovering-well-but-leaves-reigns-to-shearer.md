@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Kinnear - Recovering well but not returning this season
+### Kinnear - Recovering well but not returning this season
 
 Good news that Joe is recovering well from his heart operation and that he is returning to full strength. However Kinnear won't be returning as manager of Newcastle United this season, instead he will return in the Summer when hopefully we'll still be a Premier League team. It's obvious the board want no further disruptions to the club as we enter the most important stage of our season that we have witnessed in a long long time. Kinnear has done his fair bit and is excellent at rallying his troops at half time. We'll all remember the Everton game when we cam from 2-0 behind in Goodison park to get a point or the second half display again our rivals Sunderland.
 

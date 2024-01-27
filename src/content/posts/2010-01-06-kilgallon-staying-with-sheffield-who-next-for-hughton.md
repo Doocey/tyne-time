@@ -9,7 +9,7 @@ categories:
   - Matthew Kilgallon
 ---
 
-### Kilgallon - Staying at Bramall Lane until end of the season
+### Kilgallon - Staying at Bramall Lane until end of the season
 
 Chris Hughton will now have to readjust his January transfer target and his main man, Matthew Kilgallon has said today that he's staying put at Sheffield United. Kilgallon, who was expected to make the move to us this January has opted to try and push for promotion with the Blades and reassess his options in the summer. In fairness, you've to credit the lad there, he wants to stay and hopefully achieve promotion with manager Kevin Blackwell. That now rules Kilgallon out of the Toon scenario and as Chris Hughton said earlier, he wants to sign a striker and a centre back, I wonder has his ambitions changed?
 

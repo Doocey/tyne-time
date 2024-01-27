@@ -12,7 +12,7 @@ categories:
 
 ![Vurnon Anita in action for Ajax](https://www.tynetime.com/wp-content/uploads/2012/06/Vurnon-Anita-Ajax.jpg "Vurnon-Anita-Ajax")
 
-#### Anita - Highly rated by the Newcastle scouting team and likely to arrive
+#### Anita - Highly rated by the Newcastle scouting team and likely to arrive
 
 First off, there's a couple of rumours going around that Tim Krul has been subject to a £10m bid from Harry Redknapp's Tottenham Hotspurs. If this is the case, then I'm sure the NUFC hierarchy will only laugh off the bid and tell Harry that Timmy's left hand isn't for sale. £10m?! For one of the keepers of the season - in a side that finished just off the Champions League spots - ten million wouldn't cover half the keepers fee. At the very least I'd be looking for £25m for Krul , although he has reiterated his desire to play for Newcastle United in the years to come, and is out in Ukraine with the Dutch international side on hand to grab the #1 jersey, so we really shouldn't worry.
 

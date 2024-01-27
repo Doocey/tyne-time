@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Bassong - Deserves to stay up
+### Bassong - Deserves to stay up
 
 Sebastien Bassong who has been our best player throughout the season still thinks Newcastle can beat the drop and propel themselves to safety. Arriving from France for as little as 3/4's of a million, Sebastien has aspired to Newcastle's best center back this season, if not one of the best center backs in the Premier League. Perhaps I'm a little too biased! However he's been a brilliant figure this season and will get snapped up if we go down, which seems more and more likely.
 

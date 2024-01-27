@@ -10,7 +10,7 @@ categories:
   - Mike Ashley
 ---
 
-### Ashley - About to take NUFC off the market - again
+### Ashley - About to take NUFC off the market - again
 
 I'm sorry if this article sounds a bit pessimistic but it's hard not to be on a downer. News has broken today that Chris Hughton will be offered the full-time job and that later this week he'll accept the final terms of what I'm sure will be quite a lucrative contract. However, that's not the bad part, actually that probably the best news we could have expected. The bad news is , this more than likely signals that Mike Ashley will continue his torrid tenure at Newcastle United. This will be the second time within months that Mike will have taken the club off the market.
 

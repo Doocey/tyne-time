@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Turner - Reported to be on Newcastle's summer list
+### Turner - Reported to be on Newcastle's summer list
 
 Reports today have suggested that Newcastle are trailing Michael Turner, Hull's solid center back. Turner has been in great form for the Tigers this season chipping in with no less than 6 goals. Standing at 6'4 he has been great from corners this season. The former Brentford man would be perfect for us, alongside Bassong and I think he would jump at the chance to play for us should we stay in The Premier League this season. We have lacked goals form corners this season without a doubt, I am open to correction here but i believe that our last goal from a corner came at West Brom in our last win, Steven Taylor heading it home.
 

@@ -11,7 +11,7 @@ categories:
 
 ![Newcastle United's new jersey for the coming season](https://www.tynetime.com/wp-content/uploads/2012/06/NewcastleHome-Jersey-2012-13.jpg "NewcastleHome-Jersey-2012-13")
 
-#### Puma - Some absolutely shocking 'designs' on the home jersey for next season
+#### Puma - Some absolutely shocking 'designs' on the home jersey for next season
 
 With everything that's going on regards Demba Ba and elsewhere, I thought I might take a moment to have a look at our home kit for next year. Unfortunately, it doesn't make for pleasant viewing. Puma the manufacturers, seem to have put very little effort into their designs and have reverted back to 7 stripes at the front, with a big white blank space in the middle for our sponsors: Virgin Money.
 

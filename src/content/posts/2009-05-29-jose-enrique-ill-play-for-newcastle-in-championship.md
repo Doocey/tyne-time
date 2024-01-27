@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Enrique - Would consider a bigger offer
+### Enrique - Would consider a bigger offer
 
 Jose Enrique has today announced that he will play for Newcastle in the Championship. Speaking today to Marca , a Spanish newspaper he said he's very happy at Newcastle United and love the town and the fans. However he didn't rule out the possibility of  leaving Newcastle should a better offer be accepted by the. Speaking today he said every player wants to play in the English Premier League and he is one of them. Enrique who has a turbulent start to his Newcastle career has just settled of late and is turning out to be a fine player indeed.
 

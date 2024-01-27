@@ -12,7 +12,7 @@ categories:
 
 ![Nathaniel Clyne in action for Crystal Palace](https://www.tynetime.com/wp-content/uploads/2012/05/nathaniel-clyne.jpg "Nathaniel Clyne - Carling Cup Fourth Round")
 
-#### Clyne - In high demand with Manchester United looking to poach the youngster
+#### Clyne - In high demand with Manchester United looking to poach the youngster
 
 It is all very much paper talk at the moment surrounding Newcastle United and their proposed transfer targets, however, it is understood that Alan Pardew has made tentative inquiries about the availability of Crystal Palace right-back Nathaniel Clyne. At just 21 years of age, English, and with a lot of potential - Clyne is as expected very much sought after, but by Newcastle above all else. The very fact he is indeed young and with a big sell-on value has attracted the men in charge , and what has made a move for him even more tempting is the fact that he is out of contract at the end of the season. We'll still have to pay for him of course, but it might only be a minimal fee; a fee that would please a certain Mike Ashley.
 

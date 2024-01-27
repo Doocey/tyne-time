@@ -12,7 +12,7 @@ categories:
 
 ![Gabriel Obertan in action for Newcastle United at Blackburn](https://www.tynetime.com/wp-content/uploads/2012/04/Gabriel-Obertan-Newcastle-United.jpg "Gabriel-Obertan-Newcastle-United")
 
-#### Obertan - Faces stern competition in fight for first team place at St.James' Park
+#### Obertan - Faces stern competition in fight for first team place at St.James' Park
 
 With Hatem Ben Arfa, Demba Ba and Papiss Cissé leading Newcastle United's attack in recent weeks it must make Gabriel Obertan's comeback from injury that bit harder. The winger signed from Manchester United for £3m played quite regularly at the start of the season, as Hatem gradually got back to full fitness. However, a few niggles and annoying injuries have kept Gabby out for a month or so, the sad thing being no one has really missed him. He is quite frustrating to watch at times, but Alan Pardew and John Carver have faith in his ability, and that is enough for me to indicate that he can be molded into a a very good winger.
 

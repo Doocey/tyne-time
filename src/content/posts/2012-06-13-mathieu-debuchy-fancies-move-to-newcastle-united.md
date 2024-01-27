@@ -11,7 +11,7 @@ categories:
 
 ![Mathieu Debuchy celebrates after scoring against Iceland in a friendly](https://www.tynetime.com/wp-content/uploads/2012/06/Mathieu-Debuchy-Newcastle-United.jpg "Mathieu Debuchy")
 
-#### Debuchy - A good friend of Cabaye's and supposedly fancies move to NUFC
+#### Debuchy - A good friend of Cabaye's and supposedly fancies move to NUFC
 
 A report in the Journal by widely respected journalist Mark Douglas has revealed that Mathieu Debuchy - one of Newcastle United's number one targets this summer - fancies a move to Newcastle, and is ready to shun interest from the likes of Inter Milan to complete a move to St.James' Park. Debuchy, who was arguably the best player on the park when France drew 1-1 with England a few days ago at Euro 2012, is catching the eye of a lot of other clubs in Europe, and there's even talk that Arsenal might be interested as well. Alan Pardew did try to get a deal agreed before the Frenchman jetted off to the Euro's in Poland and Ukraine, but was unable to do so. Debuchy will decide on his future after the tournament.
 

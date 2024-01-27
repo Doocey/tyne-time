@@ -9,7 +9,7 @@ categories:
   - Newcastle United News
 ---
 
-### Ashley - In discussions or taking his time
+### Ashley - In discussions or taking his time
 
 There are many reports surrounding Newcastle United this weather and the latest one is of an approach from the infamous Geoff Sheard, backed by an American consortium, to but NUFC. Star Foundation from the USA are said to be backing a new approach led with Geoff Sheard spearheading it, even though Sheard himself, failed with the buyout of Sheffield Wednesday and indeed failed to back up his initial statements last month claiming he was all set to buy Newcastle with different American backing. However, he failed to produce proof of funds and his move played down.
 

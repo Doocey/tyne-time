@@ -10,7 +10,7 @@ categories:
   - Newcastle United News
 ---
 
-### Beckford - Is he really worth the hassle of luring to Toon?
+### Beckford - Is he really worth the hassle of luring to Toon?
 
 It's no lie to say that Jermaine Beckford is probably the best striker in League 1 albeit closely followed by Grant Holt of Norwich City. Racking up 16 goals to date, Beckford of course is attracting interest from beyond League 1 and our very own Newcastle United have been linked many a time with the 6'2 London born striker. It's believed that Beckford was being scouted and chased by the Toon Army when Dennis Wise was somehow in charge or sourcing new players for what was then, Kevin Keegan's Newcastle United.
 

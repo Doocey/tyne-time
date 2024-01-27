@@ -9,7 +9,7 @@ categories:
   - Newcastle United News
 ---
 
-### Adidas - Reported to be ridding their connections with Newcastle
+### Adidas - Reported to be ridding their connections with Newcastle
 
 It's being reported in the ever reliable Daily and Sunday Express that Adidas will terminate their shirt making contract with Newcastle United at the end of the season. The news comes from a source more unreliable than reliable, that Adidas are sick of all the negative press and exposure they're getting since Mike Ashley has been charge of the club. I'd honestly think exposure is exposure and it can't be bad for sales, especially at a club like Newcastle where nearly every man, woman and child wears the newest kit released from the Toon Army.
 

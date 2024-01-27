@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Guthrie - Missing in midfield for some time now
+### Guthrie - Missing in midfield for some time now
 
 Good news today as it is emerging that Xisco, Duff, Viduka, Owen and Guthrie could all return for the vital clash against Hull, a fortnight tomorrow. It is still unknown whether Beye will make the trip as he is recovering from one of Lee Cattermole's many terrible challenges this season. Barton, Beye, Digard,and more recently Scott Parker? Perhaps just a little too common in his poor tackling?
 

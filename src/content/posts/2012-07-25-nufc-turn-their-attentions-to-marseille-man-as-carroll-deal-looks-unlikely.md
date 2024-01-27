@@ -11,7 +11,7 @@ categories:
 
 ![Loic Remy particpates in a training session with France](https://www.tynetime.com/wp-content/uploads/2012/07/Loic-Remy-France.jpg "Loic-Remy-France")
 
-#### Rémy - A long term target of Newcastle United dating back to that 2009 season
+#### Rémy - A long term target of Newcastle United dating back to that 2009 season
 
 It seems as if Newcastle United's attempts to lure Andy Carroll back to St.James' Park for a fee in the region of £15m has reached an impasse. Brendan Rodgers has today commented that nothing less than £20m will give any prospective clubs the chance to talk to Carroll, with the price tag a tad too high for Mike Ashley's liking. A fee in the region of £15-17m had been mooted by NUFC officials but it seems as if Liverpool aren't in any rush to sit down at the table with any Tyneside representatives after what has happened in the last year. Even if Newcastle United were to match Liverpool's evaluation of £20m, it would still mean that we banked £15m on Carroll on what someone might describe as a season long loan. We really do hold all the aces in this one.
 

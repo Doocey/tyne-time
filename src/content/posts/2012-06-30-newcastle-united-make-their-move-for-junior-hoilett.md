@@ -11,7 +11,7 @@ categories:
 
 ![Junior Hoilett celebrates after scoring for Blackburn Rovers](https://www.tynetime.com/wp-content/uploads/2012/06/Junior-Hoilett-Newcastle-United.jpg "Junior Hoilett")
 
-#### Hoilett - Would be a fantastic free transfer as contract ends in hours
+#### Hoilett - Would be a fantastic free transfer as contract ends in hours
 
 There's some good news emerging regarding Newcastle United target Junior Hoilett. As of tonight, it is understood that Hoilett's contract will officially expire and NUFC are reported to be making their move for the winger. Unless you hid under a stone for the entire Premier League season that has just passed us, then you'll know that Hoilett had a decent season, and scored some great goals for a team that eventually surrendered to relegation. There's little argument in the suggestion that Hoilett is Blackburn's best player and after the departure of their other prolific goal-scorer Yakubu - who left to foreign moneybags - Junior is weighing up his options too. An instant return to the Premier League will prove too much for the Canadian born winger.
 

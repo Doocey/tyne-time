@@ -12,7 +12,7 @@ categories:
 
 ![Gerard Houllier looks on in disbelief as Aston Villa miss a chance against Burnley](https://www.tynetime.com/wp-content/uploads/2011/04/gerard_houllier.jpg "Gerard Houllier")
 
-#### Houllier - Faces a difficult challenge in motivating a lacklustre Villa side
+#### Houllier - Faces a difficult challenge in motivating a lacklustre Villa side
 
 Maybe I'm alone in my opinion of Gerard Houllier but I regard the Frenchman as one of those managers who always seem to get decent jobs, yet have very little understanding of the modern game. When Martin O'Neill left Villa Park things took a change for the worst. Milner had gone, Ashley Young was looking for a way out (still is) and John Carew; one of the most prominent strikers was  loaned out to Stoke City for the season. These things do not bode well for a football club and hence this why by Sunday we will more than likely see them in the relegation zone.
 

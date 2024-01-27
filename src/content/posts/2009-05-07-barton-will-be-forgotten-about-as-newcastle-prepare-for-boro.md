@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Guthrie - Hoping to start against Boro
+### Guthrie - Hoping to start against Boro
 
 On Monday night at around 10pm we will knows Newcastle's Premier League situation, if we are to lose it's goodbye to our Premier League campaign, if we win, there will be some confidence and hopefully enough to aspire another win if not two. Shearer insists that Joey Barton is nowhere near his or the teams thoughts as they prepare for battle against another team, desperately fighting for their survival this season. Speaking to the Chronicle Live today Big Al is confident heading into the tie at St.James'
 

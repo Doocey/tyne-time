@@ -12,7 +12,7 @@ categories:
 
 ![Demba Ba trains with Newcastle United](https://www.tynetime.com/wp-content/uploads/2012/05/Demba-Ba-NUFC_2012.jpg "Demba-Ba-NUFC_2012")
 
-#### Ba - Could be eyeing up a move away from St.James' Park
+#### Ba - Could be eyeing up a move away from St.James' Park
 
 Demba Ba arrived at Newcastle on a free transfer just less than a year ago, after impressing during a short stint at relegated West Ham. He scored goals as soon as he touched down in London, but couldn't save Avram Grant's Hammers from going down. A clause in his contract confirmed that he would be able to leave Upton Park on a free transfer should he endure relegation, and that's when NUFC moved in. In the first half of the season with us he couldn't stop scoring, and had amassed 16 at Christmas. He looked destined to hit the 20 goal mark, however it didn't happen. The arrival of his international teammate Papiss Cissé saw Ba deployed on the left-wing, and rather than score goals, Demba spent the second half of the season setting them up for our new #9.
 

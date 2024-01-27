@@ -12,7 +12,7 @@ categories:
 
 ![Yohan Cabaye does some tracking back away at Fulham ](https://www.tynetime.com/wp-content/uploads/2012/07/Yohan-Cabaye-NUFC-Fulham.jpg "Yohan-Cabaye-NUFC-Fulham")
 
-#### Cabaye - Worth £20m at the very least and has no intentions of leaving NUFC
+#### Cabaye - Worth £20m at the very least and has no intentions of leaving NUFC
 
 There has been some typically bad journalism from the Daily Mail in the last few years regarding Newcastle United, but they've certainly topped this years efforts with the latest rumour. Today, they linked Yohan Cabaye to Barcelona - for a fee of £8m. First off, why would Barcelona need more midfielders with the likes of Xavi, Iniesta, Busquets and countless others in their ranks, including all their young prospects that will gradually make a move up to the first team. Secondly, Cabaye for £8m?! Without doubt France's best player at EURO 2012, and did a decent job against Spain as well as being inches away from scoring a remarkable free-kick. Some of these stories are absolutely laughable.
 

@@ -11,7 +11,7 @@ categories:
 
 ![Shola Ameobi smiling at a Newcastle United training session](https://www.tynetime.com/wp-content/uploads/2012/06/Shola-Ameobi-NUFC-training.jpg "Shola-Ameobi-NUFC-training")
 
-#### Ameobi - Seems extremely pleased with the news of a free wallpaper!
+#### Ameobi - Seems extremely pleased with the news of a free wallpaper!
 
 It is fair to say that Newcastle United fans have had to put up with a lot of slack from Sunderland fans in the last couple of years. They laughed at us when we were relegated on the final day of the season in 2009 - despite the fact that SAFC themselves still stood a chance of dropping out of the Premier League that same day. As you know, we regained promotion to the top flight in historic fashion and since then have surpassed Sunderland in every way, shape and form. Our 5th place finish in the season gone by saw us hold a 20 point gap between our rivals, with a whole 8 places separating the sides. Martin O'Neill was hailed a hero for his impact and SAFC fans bemoaned Steve Bruce's effort in keeping up with Alan Pardew and co. despite the fact that _the gap between us had actually grown bigger since MON_ had taken the reigns. Funny aul story isn't it?
 

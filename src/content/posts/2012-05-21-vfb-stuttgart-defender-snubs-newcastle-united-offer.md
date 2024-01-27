@@ -11,7 +11,7 @@ categories:
 
 ![Serdar Tasci](https://www.tynetime.com/wp-content/uploads/2012/05/Serdar-Tasci-Stuggart.jpg "Serdar-Tasci-Stuggart")
 
-#### Tasci - 25 year old German centre-back held in high regard
+#### Tasci - 25 year old German centre-back held in high regard
 
 Reports today are suggesting that VfB Stuttgart defender Serdar Tasci has turned down approaches from Newcastle United, and indeed Spurs. The German - 25 years-old - is just recovering from an sprained knee ligaments and it seems as if he has a transfer clause in his contract allowing him to leave for a predetermined fee, a fee which hasn't been revealed. Tasci, is a talented footballer, and is captain at Stuttgart if memory serves me correctly. However, he doesn't seem interested in signing for either NUFC or Spurs so our interest may end here.
 

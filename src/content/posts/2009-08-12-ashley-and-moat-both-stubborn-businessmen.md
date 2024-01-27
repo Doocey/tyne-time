@@ -11,7 +11,7 @@ categories:
   - Newcastle United News
 ---
 
-### Moat - Stubborn as Ashley
+### Moat - Stubborn as Ashley
 
 OK, you might be saying to yourself, Ashley is far from a businessman and has no brain at all. Each day it keeps tilting towards that instinct but considering he was a billionaire, he must have done some things right. He's the owner of most Sports Direct retail stores, and even though their sales went sky high this year, their operating profit has decreased steadily from the last year. Whereas Barry Moat who is the executive of over 15 companies, he started making his fortune from selling novelty toys including one that was even presented to the Queen as a present. Now, who would be laughed at more when/if things go wrong. Surely the 'novelty' would ware off Moat fairly quickly if he's anything like Ashley.
 

@@ -11,7 +11,7 @@ categories:
 
 ![Roberto Rosales finds some humour during a league game for FC Twente](https://www.tynetime.com/wp-content/uploads/2012/05/Roberto-Rosales-FC-Twente.jpg "Roberto-Rosales-FC-Twente")
 
-#### Rosales - A possible replacement for the departing Danny Simpson
+#### Rosales - A possible replacement for the departing Danny Simpson
 
 It looks like luring Mathieu Debuchy from Lille is a lot harder than first anticipated, and according to reports, Newcastle United are willing to turn to FC Twente right-back Roberto Rosales if things do not work out as planned. Rosales, a Venezuelan international since 2007, is twenty-three years of age and an exciting prospect at the Dutch club. Of course we have done quite well with our last signing from this side in the shape of Cheik Tioté for about £3.5m and we are seeking more value in Rosales, who is apparently available for a fee in the region of £3m as well. Needless to say, we are going to be linked with a lot of players from now until the end of September and only few will arrive.
 

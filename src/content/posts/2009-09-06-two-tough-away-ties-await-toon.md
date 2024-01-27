@@ -9,7 +9,7 @@ categories:
   - Newcastle United News
 ---
 
-### Chopra - In good form for Cardiff
+### Chopra - In good form for Cardiff
 
 Just because we are top of the table and outwitting the media, it doesn't mean we have the right to say we're going straight back up or that we can gain promotion at first attempt easily. It's not as simple as that, and although we have made pretty much a perfect start to our Championship campaign, our next two games will really test our resolve. Firstly we travel to the Welsh capital Cardiff and then we'll venture down to the holidaying area, Blackpool. Former Toon striker Michael Chopra is banging in the goals for Cardiff at the minute and we're hoping that former teammate and current friend, Steven Taylor, can alter Chopra's goal scoring.
 

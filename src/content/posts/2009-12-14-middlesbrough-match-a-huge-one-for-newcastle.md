@@ -9,7 +9,7 @@ categories:
   - Newcastle United News
 ---
 
-### Taylor - Lets hope he's on target again this year
+### Taylor - Lets hope he's on target again this year
 
 It wasn't a good year for North-East football last year for sure, with us and Middlesbrough taking the drop to the Coca Cola Championship and Sunderland just about surviving the final few pressurizing games. In a game we needed to win and I'm not talking about Aston Villa and _that_ day but rather of the game at home to Middlesbrough where we got what many people thought was the three points which would've kept us up. I must say, honestly, I wasn't one of them. I need that we'd mess up again somewhere along the road and at home to Portsmouth happened to be it, for me anyway.
 

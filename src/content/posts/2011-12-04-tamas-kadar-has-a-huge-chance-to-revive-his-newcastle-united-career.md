@@ -13,7 +13,7 @@ categories:
 
 ![Tamás Kádár and James Perch in action for Newcastle United](https://www.tynetime.com/wp-content/uploads/2011/12/Tamas-Kadar-James-Perch-Newcastle.jpg "Tamas-Kadar-James-Perch-Newcastle")
 
-#### Duo - Chance for Perch and Kádár to stake their claims in the NUFC first team
+#### Duo - Chance for Perch and Kádár to stake their claims in the NUFC first team
 
 Fourteen games into the Premier League campaign and we've managed the same back five for all of it. A proud achievement. However, towards the very end of our encounter with Chelsea yesterday afternoon Steven Taylor happened to damage his achilles and is to undergo surgery on Monday. The inevitability about it all is that Taylor, who has been one of our best players of the season so far , will miss the remainder of the season. A cruel blow for a guy who was beginning to show his potential as a worthy English centre-back.
 

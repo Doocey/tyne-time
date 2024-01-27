@@ -10,7 +10,7 @@ categories:
   - Matthew Kilgallon
 ---
 
-### Targets - Hughton is confident they'll arrive
+### Targets - Hughton is confident they'll arrive
 
 According to surfacing reports and the many of them, Jermaine Beckford and Matthew Kilgallon will be signing for Newcastle United in the January transfer window. Both 'The Killer' and Beckford have been lined with possible moves to Newcastle, since the start of 2009 but no move materialized for either of them. Kilgallon, as well as Beckford are in the final months of their respective contracts and Chris Hughton is hoping to get a bargain on both of them. However, Newcastle's don't have it all to themselves, it's also being reported that numerous other Premier League clubs are monitoring the pairs situations.
 

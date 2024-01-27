@@ -17,7 +17,7 @@ const { post } = Astro.props;
       <h3>{post.data.title}</h3>
     </a>
 
-    <p>{`${createExcerpt({ body: post.body, characterLimit: 370 })} ...`}</p>
+    <p>{`${createExcerpt({ body: post.body, characterLimit: 400 })} ...`}</p>
 
     <a href={`${post.data.url}`}>
       <button>Keep Reading &rarr;</button>

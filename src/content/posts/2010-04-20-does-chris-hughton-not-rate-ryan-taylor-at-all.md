@@ -11,7 +11,7 @@ categories:
   - Ryan Taylor
 ---
 
-### Taylor - Hasn't seen a whole lot of playing time on Tyneside this season
+### Taylor - Hasn't seen a whole lot of playing time on Tyneside this season
 
 A great win yesterday and a very successful season to say the least. Thank you Chris Hughton, thank you supporters and indeed our thanks to the players. That aside, there's been something in the back of my mind all the time and I have to bring it up. Ryan Taylor arrived from Wigan Athletic over a season ago, in the January transfer window alongside Kevin Nolan and came here with high hopes. I must say I was excited at the prospect of having the free-kick expert on Tyneside to apply his skills to set pieces and indeed to bolster a side that lacks a real set-piece taker, Danny Guthrie aside.
 

@@ -12,7 +12,7 @@ categories:
 
 ![Mathieu Debuchy applauds French fans after their victory over Ukraine in Euro 2012.](https://www.tynetime.com/wp-content/uploads/2012/06/Mathieu-Debuchy-France.jpg "Mathieu-Debuchy-France")
 
-#### Debuchy - A man in high demand after excellent Euro 2012 showing
+#### Debuchy - A man in high demand after excellent Euro 2012 showing
 
 It doesn't come as a surprise to see that Alan Pardew is having a bit of trouble trying to lure his number one target to St.James' Park under the radar. Indeed, before the start of the European Championships, Pardew made quite an effort to seal a deal for Mathieu Debuchy and wanted Poland & Ukraine to be a warmup for his pre-season campaign with the Magpies. As we know, no deal happened and the RB said he would decide on his club future once he returned home from international duty. He returned home today and in the next couple of weeks - we expect him to sit down with Lille and discuss where his future lay. If Newcastle United will match Lille's evaluation of £6.5m for Debuchy, then it is almost guaranteed that he will link up with good friend and France teammate: Yohan Cabaye.
 

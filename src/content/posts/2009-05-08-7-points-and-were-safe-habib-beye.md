@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Beye - Believes that Toon can survive
+### Beye - Believes that Toon can survive
 
 Prominent wingback and makeshift center back Habib Beye believes Newcastle United can remain a Premier League club if they manage 7 points from their last three games. That's the equivalent of 2 wins and a draw, Fulham and Boro spring to mind as possible wins with a draw away to Villa next priority. Whether we can really get 2 wins in succession is beyond me or anyone else who follows football but you'd have to doubt it. However the ever optimistic Habib Beye, who is a fans favorite believe that 7 points can be their lucky number.
 

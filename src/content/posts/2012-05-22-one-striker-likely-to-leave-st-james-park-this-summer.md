@@ -12,7 +12,7 @@ categories:
 
 ![Nile Ranger control a ball in training at Benton, Newcastle](https://www.tynetime.com/wp-content/uploads/2012/05/Nile-Ranger-NUFC-2012.jpg "Nile-Ranger-NUFC-2012")
 
-#### Ranger - Lot of raw potential but a poor attitude to accompany it
+#### Ranger - Lot of raw potential but a poor attitude to accompany it
 
 If one was to look at Nile Ranger's CV, it doesn't make for bad reading at all. Once of Southampton, he featured in Newcastle United's promotion to the Premier League, and this year contributed to Sheffield Wednesday's return to the Championship. Unfortunately he has the attitude of a gangster and is still surrounded by people he could do without. While at Newcastle last year, Alan Pardew had multiple complaints about the striker's behaviour and how he conducts himself as a footballer. Showing up to training late; assault charges; drink driving offences - he's not the type of player Newcastle United will keep on their books for very long, unless there is major changes. There actually were improvements on Ranger's behalf, but he was shipped out to Wednesday on loan for some first team football. It's quite unlikely that he'll feature in a Black and White Newcastle shirt again.
 

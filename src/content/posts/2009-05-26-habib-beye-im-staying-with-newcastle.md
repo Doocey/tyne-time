@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Beye - Hoping to get Newcastle promoted
+### Beye - Hoping to get Newcastle promoted
 
 Although we have been relegated there is some great news today, as much as it expected people still didn't expect it, it you know what I mean. In an interview today Habib Beye said that by no means is he leaving Newcastle United even though they will be playing Championship football in August. Speaking today he said how much he loves the fans and the club plus how he has no intention of leaving NUFC in their time of need. To any Toon fan , this is great great news. He will be an inspirational leader in The CCC and more than decent at Rb/ CB too 😀 Speaking to the Chronicle he said how disappointed he is and he knows there's a long road ahead of them.
 

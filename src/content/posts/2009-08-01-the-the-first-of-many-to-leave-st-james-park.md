@@ -10,7 +10,7 @@ categories:
   - Obafemi Martins
 ---
 
-### Martins - Should succeed in Germany
+### Martins - Should succeed in Germany
 
 The first of many departures at Newcastle has begun with Obafemi Martins's transfer to Wolfsburg. The Bundesliga champions paid Newcastle €10.5m for the Nigerian and that's not a bad fee to receive. The only thing is, we wonder where the money will go. Into Mike Ashley pocket or back into the club in order to buy new players. We still don't know if there are new owners on the horizon but we certainly hope so as this day week, we play West Brom in the opening game of the Coca Cola Championship.
 

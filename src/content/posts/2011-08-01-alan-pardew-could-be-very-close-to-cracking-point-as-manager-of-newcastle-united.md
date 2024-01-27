@@ -12,7 +12,7 @@ categories:
 
 ![Alan Pardew looks on from the dug-out at St.James' Park](https://www.tynetime.com/wp-content/uploads/2011/08/Alan-Pardew-NUFC.jpg "Alan-Pardew-NUFC")
 
-#### Pardew - Get the feeling all is not well under the covers at St.James' Park
+#### Pardew - Get the feeling all is not well under the covers at St.James' Park
 
 It could well be just me, but I think there is something pretty serious going on at Newcastle United right now and it might not be very encouraging at all. Recent criticisms of the board and their regime have been well documented in the press the last week or so, with Jose Enrique openly venting his frustration at Mike Ashley and the lack of ambition show by the club. Then in the last couple of days Joey Barton seemingly took the baton from the Spaniard and also questioned the future of the club and it's stance on transfers. Again, the former English international confirmed he had no intentions of leaving Newcastle United anytime in the near future. As for Jose, I couldn't care less what he has to say much longer; he is just trying to maneuver a move for himself. In fact I'd be looking to sell the left-back before the window if we can because at the very least we deserve some cash for the guy; sticking by him in the Championship and all that.
 

@@ -10,7 +10,7 @@ categories:
   - Newcastle United News
 ---
 
-### Ashley - His reign to continue
+### Ashley - His reign to continue
 
 All the hopes we had after relegation, of Shearer bringing us back up to the Premier League under new ownership and the most appetizing thought of them all Mike Ashley ending his tenure in charge of the club. Well it seems we're all going to be disappointed again, with Mike Ashley about to take the club off the market. We've had Malaysians, Iranians, Americans, Englishmen, Irish, Singaporean and many more supposed interest in NUFC but none of the them had come to bear fruit. It's understood that there is one last straw and that is, Barry Moat, a local businessman who is make or break for Newcastle United, Mike Ashley and us, the fans.
 

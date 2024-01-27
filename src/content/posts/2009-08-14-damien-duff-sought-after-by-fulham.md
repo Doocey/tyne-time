@@ -10,7 +10,7 @@ categories:
   - Newcastle United News
 ---
 
-### Duff - Hodgson interested
+### Duff - Hodgson interested
 
 I suppose you could say things go from bad to worse for Newcastle, first sources close to the club indicating that they are ready to take Newcastle United from the market and now, one of our half decent players ready to move down London way to opt for Fulham. You can't blame Damien for wanting to leave and especially to a prospering side such as Fulham. Roy Hodgson who rescued Fulham on the last day from relegation a few seasons back has turned Fulham into a feared side and they have a very bright future. Roy knows Damien and thinks he'd be tempted for a move down to the capital.
 

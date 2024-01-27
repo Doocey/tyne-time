@@ -10,7 +10,7 @@ categories:
   - Newcastle United News
 ---
 
-### Hughton - Delighted to be manager of Newcastle United FC
+### Hughton - Delighted to be manager of Newcastle United FC
 
 This day one year ago, we were preparing for the home visit of QPR at St.James' Park, and indeed looking to grab top spot of what when then called the Coca Cola Championship. We went on to draw that game 1-1, Marlon Harewood scoring his début goal for the club, after Ben Watson had put Queens Park Rangers in line for a win. Add to that, confusion over the ownership of the club, constant rumours of players leaving, and indeed many stories of potential new managers. One year on, we're 6th in the Barclay's Premier League, in the 4th Round of the Carling Cup after defeating Chelsea at Stamford Bridge in a thriller and are settled to say the least.
 

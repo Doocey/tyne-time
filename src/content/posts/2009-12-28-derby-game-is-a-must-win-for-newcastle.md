@@ -9,7 +9,7 @@ categories:
   - Newcastle United News
 ---
 
-### Savage - Always looking to upset an opponents rhythm
+### Savage - Always looking to upset an opponents rhythm
 
 With West Brom leading away to Scunthorpe as I write this post, the importance of our game against Derby County at 5.30 has doubled. No longer are we 10 points clear at the top, indeed it will be a lot closer than that if West Brom win at Scunny. Not only are Brom closing the gap but Cardiff City who are four goals to the good away to Peterborough, are finding themselves in the hierarchy of the playoffs yet again. The thing is, tonights game at Derby is a must win, no excuses. If we mess up this evening then it could be a big turning point in both ours, and our rivals season.
 

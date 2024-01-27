@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Taylor - Not as bad as expected while Bassong could return too
+### Taylor - Not as bad as expected while Bassong could return too
 
 Good news today on the injury front as Steven Taylor who hobbled off against Arsenal last week could make a return for teh Chelsea game. We all thought that it was a serious injury and he nearly convinced us it was with the pain on his face he was showing! However it is reported to be a bruised ankle and that it's not as serious as first thought. Taylor is a player we really need at the moment and multiply that by two for Sebastien Bassong.             Chris said today :
 

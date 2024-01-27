@@ -9,7 +9,7 @@ categories:
   - Jonas Gutierrez
 ---
 
-### Jonas - Rejoins his high-flying club
+### Jonas - Rejoins his high-flying club
 
 Jonas Gutierrez in midweek secured his longest dream, of bringing Argentina to South Africa and indeed he himself, played a major hand in the deciding goal against Uruguay. Although he only won the free-kick which led to the goal, he looked quite sharp at times and the oppositions full-back found it quite difficult to keep taps on the 'greyhound'. Tomorrow, Jonas is expected to line out in Nottingham where hopefully he'll play his part in a win for Newcastle United. Now that his Argentina future is secured, there should be only one thing on his mind and that's aiding Newcastle's promotion cause.
 

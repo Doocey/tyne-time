@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### NUFC - Progress is being made with buyers
+### NUFC - Progress is being made with buyers
 
 Apparently Newcastle could be sold in about two weeks, according to a source within the club. This is encouraging news and the news that follows would be even better. They expect a managerial announcement (Shearer) by the 28th which would give Shearer time to train the lads, and get rid of some surplus player as well as bring some new ones in.
 

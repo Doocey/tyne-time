@@ -12,7 +12,7 @@ categories:
 
 ![Andy Carroll has been in great form for Newcastle United this season so far](https://static.guim.co.uk/sys-images/Football/Clubs/Club_Home/2010/8/22/1282487896706/Andy-Carroll-006.jpg "Andy Carroll")
 
-#### Carroll - Misses out on the Portuguese encounter tomorrow due to injury
+#### Carroll - Misses out on the Portuguese encounter tomorrow due to injury
 
 We're all feeling the pinch - I know it myself. However, it's a proven study that a lot of people are indeed adding Gambling to their list of growing hobbies and it is often providing some much needed extra cash. The stereotypical view of a bookmaker is someone who takes all your money and can be arrogant in the process. Well, that's not the case, and certainly not the case with online betting. We know that betting isn't for everyone but we also know that the Geordie population are one of the most eager gamblers on the land.
 

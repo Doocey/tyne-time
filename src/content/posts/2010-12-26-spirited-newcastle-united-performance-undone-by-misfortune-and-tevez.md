@@ -14,7 +14,7 @@ categories:
 
 ![Andy Carroll](https://www.tynetime.com/wp-content/uploads/2010/12/Andy-Carroll-006.jpg "Andy-Carroll-006")
 
-#### Carroll - Scored yet again today and continues to be linked with Toon exit
+#### Carroll - Scored yet again today and continues to be linked with Toon exit
 
 Frustrating isn't the word. When Fabricio Coloccini put the ball into his own net in the last ten minutes of the game, my heart sank and I nearly dropped my turkey sandwich. We had dominated the second half, every ball was ours, Carroll won every header, Cheik Tiote cleaned up every spill in centre midfield and Jose Enrique & Jonas Gutierrez swept up everything on the leftside of the pitch. However, we can only point the defeat to one thing, and that was the two gifted goals we gave away within five minutes. First, something too casual from Tim Krul and secondly, poor marking from Fabricio Coloccini to allow Carlos Tevez in to score an extremely well placed goal. Within five minutes, we were trailing by two goals, where was the hope?
 

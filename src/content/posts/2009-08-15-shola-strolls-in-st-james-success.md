@@ -12,7 +12,7 @@ categories:
   - Shola Ameobi
 ---
 
-### Ameobi - Sublime three goals today
+### Ameobi - Sublime three goals today
 
 In a game which saw potential Newcastle United owner Barry Moat sit inbetween the current hierarchy at Newcastle of Mike Ashley and Derek Llambias, Newcastle produced a performance to remember and one needed to boost all sides morale. Newcastle started the game brightly creating chances and were comfortably controlling the game. Jonas was presented with a great opportunity after a Kevin Nolan through ball but the Argentine per usual, stumbled and didn't show an end product. However some time late Jonas again involved laid it off to José Enrique who put a great ball in for Ameobi and the Newcastle number 23 headed down into the ground, the ball ended up looping over Reading's despairing keeper.
 

@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Zurab - Only player not linked
+### Zurab - Only player not linked
 
 In a special edition of **Tyne Time** we today look at the sheer amount of players that have been linked with Newcastle United since relegation and the ones that actually arrived. As you probably can figure, there's been truly rubbish transfer rumours put in our street and we've dealt with them. My headline is probably inappropriate and is far less than the actual figure but I've picked out **43** main players that has been linked to the sacred Black and White jersey and some of them, will just make you laugh. The ironic thing is, the media, who make up about 84% of the rumours,  have rarely ever predicted the actual players who arrived at Newcastle and their infamous sources seem to have deserted them. So here it is, a prestigious list, compiled by **Tyne Time**, of 43 players who never made the trip to Tyneside. Enjoy.
 

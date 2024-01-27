@@ -10,7 +10,7 @@ categories:
   - Peter Lovenkrands
 ---
 
-### Lovenkrands - Ankle injury could force the Dane out of Ashton Gate clash
+### Lovenkrands - Ankle injury could force the Dane out of Ashton Gate clash
 
 The free-scoring Peter Lovenkrands is 50-50 to make Newcastle's away trip to Bristol tomorrow after suffering a light ankle injury in Wednesday's 3-0 win over Scunthorpe. The Dane who has been banging them in up-front alongside Andy Carroll has hit 11 goals in his last 12 appearances, a record any striker would be proud of. However, the Dane is also a doubt for tomorrows clash against Bristol City which will prove a very tough task too, especially at Ashton Gate.
 

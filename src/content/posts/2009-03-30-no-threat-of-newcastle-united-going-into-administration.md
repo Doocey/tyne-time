@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Llambias - Says Newcastle's financial situation is secure
+### Llambias - Says Newcastle's financial situation is secure
 
 Good news today as Derek Llambias has confirmed that Newcastle don't have to worry about going into administration. He has come out today after rumours suggesting that Newcastle would go into administration, were published from the usual crappy Sunday papers. Of course these headlines grab attention and indeed sales for teh papers but how convenient it is that all the bad rumours have to be about Newcastle. It is no mystery that a single paper would love to see Newcastle go down but it will a sweet taste at the end if we avoid relegation.
 

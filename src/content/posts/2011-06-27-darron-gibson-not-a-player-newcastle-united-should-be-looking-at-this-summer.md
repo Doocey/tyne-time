@@ -12,7 +12,7 @@ categories:
 
 ![Darron Gibson in action for Manchester United against Marseille](https://www.tynetime.com/wp-content/uploads/2011/06/Darron-Gibson.jpg "Darron-Gibson")
 
-#### Gibson - Not good enough for our midfield and not worth five million
+#### Gibson - Not good enough for our midfield and not worth five million
 
 In the last couple of days, Irish midfielder Darron Gibson has been strongly linked with a move away from Manchester United and more noticeably to the Stadium of Light to join an already meagre midfield setup. However, as I mentioned in articles before this; Newcastle United and SAFC seem to share an awful lot of similar targets and are inevitably linked with the same players, over and over again. However , Gibson was a new target that had been identified, after it was made pretty clear that he was no longer needed at Old Trafford - with a £5m price tag on his head. Apparently Alan Pardew is not trying to hijack a move for the international and lure him to Newcastle United, with a little help from his old mate Danny Simpson.
 

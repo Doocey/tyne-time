@@ -9,7 +9,7 @@ categories:
   - Newcastle United News
 ---
 
-### Evans - Will be a big threat tonight
+### Evans - Will be a big threat tonight
 
 There's no doubt that Newcastle United will tonight face a very tough challenge if they are to overcome Sheffield United at Bramall Lane. It's been quite a while since these two teams last met and it will prove to be an exciting affair. With Sheffield leaking a lot of goals of late and Fabricio Coloccini set to return to an unreliable Newcastle United defence, the score tonight is truly unpredictable. West Brom took top spot with a bang as they dispatched of Watford in The Hawthorns. Tonight however could see us go top again by two points if we manage to nab all the spoils.
 

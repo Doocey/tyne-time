@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Guthrie - Very good player and an important one for us
+### Guthrie - Very good player and an important one for us
 
 Danny Guthrie has come out today and issued a rallying call to all his fellow troops at Newcastle, claiming that the players are to blame for the poor form. We have saw some terrible performances from this Newcastle side this season, with no fingers pointing at the defeat to Liverpool, although Liverpool were fantastic that day. We weren't good at Bolton or Blackburn and the list goes on and on however that was then and this is now. A good run in can fix it up and staying up is still possible although the tabloid papers would like to convince you otherwise.
 

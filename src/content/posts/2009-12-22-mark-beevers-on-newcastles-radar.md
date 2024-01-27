@@ -9,7 +9,7 @@ categories:
   - Chris Hughton
 ---
 
-### Beevers - Highly rated in English Football
+### Beevers - Highly rated in English Football
 
 It's being reported, and not for the first time, that Newcastle United could well be taking a look at Sheffield Wednesday's Mark Beevers. The defender who is a big 6'5 is meant to be attracting a lot of interest in not only the Championship, but also in the Premier League. Beevers received Player of the Season at Wednesday last year if memory serves me correct,and is only 20 years of age, and with a huge amount of potential if reports are accurate. I'm sure a lot of you know about him, and especially from Football Manager, dubbed a a new 'John Terry' or certainly, with a very good potential rating.
 

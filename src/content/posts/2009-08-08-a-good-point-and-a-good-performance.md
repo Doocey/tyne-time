@@ -10,7 +10,7 @@ categories:
   - Tim Krul
 ---
 
-### Krul - Some great saves today
+### Krul - Some great saves today
 
 A pretty good performance all round had Newcastle fans cheering throughout the 90 minutes at the Hawthorns today. In a game which is the start of a relentless Championship campaign, Newcastle United showed , in patches that they could well come to terms with the Championship, sooner rather than later. Holding a minutes applause for the late, Great Sir Bobby Robson, teams got under way and Newcastle to say the least, were looking the most dangerous. Indeed the second half was much the same, but only for a young man called Tim Krul, Newcastle might have walked away from The Hawthorns with nothing to show for their troubles at all.
 

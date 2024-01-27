@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Hull - Let's hope they keep falling down the table
+### Hull - Let's hope they keep falling down the table
 
 In a story of two seasons from Hull and 4 seasons for us the Premier League's relegation candidates could be decided on the last day like it was last year with Fulham staying up. We were already safe with King Kev at the helm but how were we to know that same time next year it would be us. Hull, currently in free-fall suffered another defeat on Saturday at the hands of Sunderland. We are all battling amongst ourselves for survival. We shouldn't be here, with our fans and the players we have, how are we here? Mike Ashley is your answer but nows not the time for blaming people as the players have been dreadful on many occasions too.
 

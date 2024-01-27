@@ -12,7 +12,7 @@ categories:
 
 ![Modibo Maiga in action for Sochaux in Ligue 1](https://www.tynetime.com/wp-content/uploads/2011/08/Modibo-Maiga-Newcastle.jpg "Modibo-Maiga-Newcastle")
 
-#### Maiga - Desperate to join Alan Pardew's Newcastle United today
+#### Maiga - Desperate to join Alan Pardew's Newcastle United today
 
 Modibo Maiga has been desperate for a move to Newcastle United since the day they expressed their first interest in him. He has had quarrels with the board, refused to play; dropped from squads and all the likes - but still he remains a Sochaux player as we approach the final seven hours of the summer transfer window. Despite the signing of a much needed full-back in Davide Santon, NUFC still haven't added a striker to their ranks to add to our collection already. This is the most worrying thing, we really do need a different type of striker to what we have at the club at the moment. Modibo Maiga was meant to be that striker. However, it's all too familiar to us trying to keep hold of our best striker if possible. You would think that their board is holding out for the best price possible but there's a slight problem: so are we.
 

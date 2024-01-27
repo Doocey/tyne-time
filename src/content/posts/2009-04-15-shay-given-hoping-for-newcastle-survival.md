@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Given - Praying for Newcastle's safety
+### Given - Praying for Newcastle's safety
 
 We all miss Shay Given between the sticks at St.James' but it was time for him to go and to try get some success with another club. Shay is without a doubt one of the best keepers in the world and saved NUFC on so many occasions. He left at the right time, when Newcastle were about hit the toughest period in a long long time. Saying that, he's still a big fan of Newcastle and who wouldn't after being with the club for 11 years. Speaking today he said he all his faith in Shearer to save Newcastle from dreaded relegation, we're right behind you Shay.
 

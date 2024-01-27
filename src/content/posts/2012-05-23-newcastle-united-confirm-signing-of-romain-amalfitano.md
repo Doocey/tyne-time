@@ -12,7 +12,7 @@ categories:
 
 ![Romain Amalfitano holds a Newcastle United jersey at St.James' Park](https://www.tynetime.com/wp-content/uploads/2012/05/Romain-Amafitano-Newcastle-United.jpg "Romain-Amafitano-Newcastle-United")
 
-#### Amalfitano - Has signed for Newcastle United but won't move until July 1st
+#### Amalfitano - Has signed for Newcastle United but won't move until July 1st
 
 Newcastle United in the last few minutes have confirmed that the club have signed Romain Amalfitano and he will join from Reims when his contract expires on June 30th. The club tweeted the news in the last few seconds, and it finally brings a close to the speculation. A deal was practically done two days ago as we reported, but now, it is official. Another Frenchman joins the Newcastle United revolution.
 

@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Enrique - Good to have him back
+### Enrique - Good to have him back
 
 On Monday we'll be facing Portsmouth in a must win game. That game could decide out fate this season and most people know this. The good news today is that Jose Enrique and the famous Joey Barton will be returning for that Monday evening. Barton has been missed in midfield without a doubt as we lack so much creativity, Joey isn't a Ronaldinho, Deco or Riquelme but he can pass and will hopefully provide something from our front 2/3. indeed that is a major question, whether Shearer will play 3 upfront or leave it until a later stage in the game.
 

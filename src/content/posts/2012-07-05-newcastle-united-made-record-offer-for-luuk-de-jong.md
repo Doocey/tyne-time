@@ -12,7 +12,7 @@ categories:
 
 ![Newcastle owner Mike Ashley alongside MD Derek Llambias attend a game](https://www.tynetime.com/wp-content/uploads/2012/07/Mike-Ashley-Derek-Llambias.jpg "Newcastle United's owner Mike Ashley with Derek Llambias")
 
-#### Ashley - Willing to part with his highest ever sum since taking charge of NUFC
+#### Ashley - Willing to part with his highest ever sum since taking charge of NUFC
 
 Not many people might have realised, but our £11m bid deemed unacceptable by FC Twente, for their star man Luuk de Jong, happened to be the highest ever bid Mike Ashley has financed in his NUFC tenure thus far. When Ashley arrived on Tyneside, he immediately threw forward £10.3m to sign Fabricio Coloccini - a well spent ten million if you ask me. However, later he dished out £5m more to finance the signing of Xisco from Deportivo yet again, which probably turned out his worst ever signing. Since that deal never worked out and according to the blueprint in place - little money was injected into our managers coffers in the last couple of years, until, we could afford to, via the Andy Carroll sale.
 

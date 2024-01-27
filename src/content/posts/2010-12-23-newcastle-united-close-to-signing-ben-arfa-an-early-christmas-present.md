@@ -14,7 +14,7 @@ categories:
 
 ![Hatem Ben Arfa](https://www.tynetime.com/wp-content/uploads/2010/12/Hatem-Ben-Arfa-006.jpg "Hatem-Ben-Arfa-006")
 
-#### Ben Arfa - Wants to play for Newcastle United and is looking for permanent deal
+#### Ben Arfa - Wants to play for Newcastle United and is looking for permanent deal
 
 We may well be in for an early Christmas present with the new that Hatem Ben Arfa, could be quite close to a permanent deal at Newcastle United. The French winger who joined this summer thanks to Chris Hughton, played less than five games, in which he scored a stunner against Everton at Goodison Park, in an excellent away win. Unfortunately, the terrible tackler that is Nigel de Jong broke the Frenchman's leg - in places, in a needless tackle where the winger was going nowhere. However, amidst all the recovery, Ben Arfa is set for an earlier than expected return and could well feature before the season finishes. He has reiterated time and time again how happy he is at Newcastle United and that he would like to stay permanently. Music to Toon fans no doubt, and it seems as if the hope he will play in a Newcastle United shirt again next season, may well come a reality in the New Year.
 

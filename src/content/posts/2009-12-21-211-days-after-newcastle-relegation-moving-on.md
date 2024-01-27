@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Hughton - Doing the best he can and it's working
+### Hughton - Doing the best he can and it's working
 
 I needn't remind you of that terrible terrible day in Villa Park in late May last, when the history of Newcastle United FC hit the lowest of the low. Relegation sounded, as Hull City celebrated staying afloat in the Premier League. There's no point saying we deserved to stay up because we didn't. However, if we'd a decent owner then of course we wouldn't have been in the spot we were in , or indeed in the Championship as we are now. To be honest, I think playing in the Championship is turning out to be a good lesson to the lads, especially the likes of Nolan, Smith, Taylor and so forth. Perhaps it's the lesson we need to avoid 'tragedies' like the one that happened earlier this year.
 

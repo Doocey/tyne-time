@@ -11,7 +11,7 @@ categories:
 
 ![Demba Ba celebrates after completing his hattrick at St.James' Park](https://www.tynetime.com/wp-content/uploads/2012/06/Demba-Ba-Hattrick.jpg "Demba-Ba-Hattrick")
 
-#### Ba - Looks like his agents want a big pay day at the expense of NUFC
+#### Ba - Looks like his agents want a big pay day at the expense of NUFC
 
 There has been a lot of speculation about Demba Ba today, and that he is on his way out of St.James' Park. Galatasaray are the club that are being strongly linked with the forward and reports from Sky Italia even went as far as confirming a move had been agreed between both parties. SkySports here in the UK however, have official confirmation from Newcastle United FC that no bids have been received for the Senegalese international. That confirmation does not mean an awful lot though, because it seems that - sooner or later - Demba Ba will leave NUFC and play his football elsewhere. It doesn't come as a surprise mind you.
 

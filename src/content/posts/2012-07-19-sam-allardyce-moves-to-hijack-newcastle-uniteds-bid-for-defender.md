@@ -11,7 +11,7 @@ categories:
 
 ![FC Twente's Douglas celebrates after scoring from the Dutch side](https://www.tynetime.com/wp-content/uploads/2012/07/Douglas-FCTwente-Newcastle.jpg "Douglas-FCTwente-Newcastle")
 
-#### Douglas - In high demand but Newcastle United lead the race for the Brazilian
+#### Douglas - In high demand but Newcastle United lead the race for the Brazilian
 
 During Sam Allardyce's tenure at Newcastle United, he signed Alan Smith, Mark Viduka, Claudio Cacapa, and Joey Barton name a few. To say those signings turned out to be quite disappointing acquisitions - Jose Enrique aside - would be putting it very mildly indeed. Now however, Allardyce seems to be taking his targets from Newcastle United's scrapbook. A couple of days ago, West Ham United announced the signing of Modibo Maiga - a player that was hours away from signing for NUFC, only for our medical team to pull the plug on the move after concerns of a thigh injury. Big Sam saw no risks, and signed him up long-term with the hope the Malian can fire them to safety.
 

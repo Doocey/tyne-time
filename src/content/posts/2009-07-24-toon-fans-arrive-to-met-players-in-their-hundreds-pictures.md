@@ -9,7 +9,7 @@ categories:
   - Newcastle United News
 ---
 
-### Fans - Would you think these fans suffered relegation this year?
+### Fans - Would you think these fans suffered relegation this year?
 
 First of all I like for people to ignore the previous article because it seems the sale of the new jerseys has picked up massively today. Earlier it was reported that a mere 3 people showed to get their new away strip, but that was only in the morning. Since then, and after midday the kids and adults of the town created a long queue and waited to get their new, Newcastle United banana jersey, as well having it signed by the four players who took time to sign it for them. Amongst the players were Shola Ameobi, Damien Duff, Andy Carroll, Fabricio Coloccini, Ryan Taylor. It was a rather surprising spectacle for people to see such a turnout when you consider the state we're in! Credit to these real fans.
 

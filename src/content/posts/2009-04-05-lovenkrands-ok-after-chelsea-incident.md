@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Lovenkrands - Ok and will be alright
+### Lovenkrands - Ok and will be alright
 
 Peter Lovenkrands took a little knock it seemed against Chelsea yesterday. The contact seemed minimal but the Dane struggles to recover and was replaced by Damien Duff after a few minutes of trying to recuperate on the sidelines. He was rushed to hospital geared with a breathing apparatus and was stable in hospital last night, Shearer confirmed. The extent of the injury is still unknown but it is believe he was finding it very difficult to breath and his gasps were painful. News is good though as he'll be back very soon and should be ready for the Stoke game.
 

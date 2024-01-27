@@ -12,7 +12,7 @@ categories:
 
 ![Andy Carroll takes a breather during a match for Liverpool](https://www.tynetime.com/wp-content/uploads/2012/07/Andy-carroll-Liverpool.jpg "Andy-carroll-Liverpool")
 
-#### Carroll - Wants to come home and his return is a a real possibility
+#### Carroll - Wants to come home and his return is a a real possibility
 
 Some things are just perfect. Selling a guy to Liverpool for £35m after only playing three-quarters of a Premier League season, and then finishing above them in the league with their new signing having very little impact, is probably as close as perfect can get when it comes to football. The cherry on top of it all sees Newcastle United coming back in for Carroll in a cut price deal and the player himself, refusing to talk to any other club other than his homeland team. Liverpool: stuck in a rut, much?
 

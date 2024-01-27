@@ -11,7 +11,7 @@ categories:
   - Newcastle United News
 ---
 
-### Moat - At long last will complete takeover
+### Moat - At long last will complete takeover
 
 Finally the day has come when I can say that Mike Ashley will not be Newcastle United owner for another few months. The Keegan scenario has been dealt with and £2m is a shock relief for Mike Ashley and his compatriots. This is good news, as it means that the wreckage has been cleared from the track to complete the sale of Newcastle United, and the long awaited one at that. We were expecting a sale before the CCC season started but now, with such a good start (although it could've been better yesterday), Barry Moat is ready to seal the deal.
 

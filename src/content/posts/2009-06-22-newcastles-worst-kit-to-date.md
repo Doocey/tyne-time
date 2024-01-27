@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Kit - We'll be playing our first Championship game in it!
+### Kit - We'll be playing our first Championship game in it!
 
 It seems that releasing our new kits and Coca Cola Championship badges for the jerseys are more important than announcing a manager or owners. Today Newcastle United released their new away kit and it's the worst one I've seen in a long long time at Newcastle. Newcastle United are known for their unique and stylish designs each year and the new home jersey is very nice. However a yellow and white striped Newcastle jersey just doesn't go and has nothing resembling Newcastle United about it.
 

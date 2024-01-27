@@ -8,7 +8,7 @@ categories:
   - Newcastle United News
 ---
 
-### Lovenkrands - Scored last night to tear Van der Sar's recore to tatters 😛
+### Lovenkrands - Scored last night to tear Van der Sar's recore to tatters 😛
 
 I think we can all say when Peter Lovenkrands tapped the ball into the net at St.James' Park after 9 minutes last night we all were ecstatic, it came as a shock to us but to Alex Ferguson and Edwin Van der Sar. The Dutch man only needed to keep a clean sheet for another 89 minutes before the Newcastle game and it looked pretty straight forward, from a Newcastle fan's perspective too. Not only had United (Manchester this is) been unstoppable this year, they too had kept a great clean sheet record and tipped for every cup going this year mind.
 

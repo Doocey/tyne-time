@@ -11,7 +11,7 @@ categories:
 
 ![Mark Davies in Bolton Wanderers final Premier League game of 2012](https://www.tynetime.com/wp-content/uploads/2012/05/Mark-Davies-Bolton-Wanderers.jpg "Mark-Davies-Bolton-Wanderers")
 
-#### Davies - Very talented football that would be a snip at anything under £4m
+#### Davies - Very talented football that would be a snip at anything under £4m
 
 There has been a lot of talk in the last week or so of Mark Davies joining Newcastle United from Bolton Wanderers. With Bolton relegated to the nPower Championship, Owen Coyle will face a battle to try keep his best players, and although he has managed to sign Kevin Davies to a new deal - the likes of Mark Davies will have Premier League ambitions. On our side, Danny Guthrie is set to leave St.James' Park for pastures anew and we wish him every success with whatever team he joins. There is a need for bodies this summer on Tyneside with European football not very far away and Davies, would be an excellent addition to the team.
 

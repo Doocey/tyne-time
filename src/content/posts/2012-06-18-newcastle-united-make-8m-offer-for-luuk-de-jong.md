@@ -11,7 +11,7 @@ categories:
 
 ![Luuk de Jong in action for FC Twente](https://www.tynetime.com/wp-content/uploads/2012/06/luuk-de-jong.jpg "luuk-de-jong")
 
-#### de Jong - £8m bid submitted for the Dutchman to replace Ba?
+#### de Jong - £8m bid submitted for the Dutchman to replace Ba?
 
 In the last few minutes,SkySports have reported on a bit of Newcastle United transfer news. There are claims that Newcastle United have submitted an official bid in the region of £8m for FC Twente's Luuk de Jong - signalling that Demba Ba could be very close to departing St.James' Park. Either that, or NUFC are actually closing in on a deal for someone we don't know about, and the de Jong rumours are simply a smokescreen for the deal. However, I've a feeling that we really are looking to lure the Dutchman to Tyneside and indeed our latest link with him makes it the umpteenth time both the club and the forwards name have been bandied about.
 

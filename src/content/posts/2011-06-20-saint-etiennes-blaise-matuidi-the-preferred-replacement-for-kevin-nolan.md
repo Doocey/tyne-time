@@ -13,7 +13,7 @@ categories:
 
 ![Blaise Matuidi in action for Saint-Étienne in the Ligue 1](https://www.tynetime.com/wp-content/uploads/2011/06/Blaise-Matuidi.jpg "Blaise-Matuidi")
 
-#### Matuidi - Being targeted by Alan Pardew as a replacement for Kevin Nolan
+#### Matuidi - Being targeted by Alan Pardew as a replacement for Kevin Nolan
 
 I suppose there's two sides to the story regarding Kevin Nolan's departure to West Ham. A large chunk of the fans will blame the ownership for stalling on a new deal, and failing to reward their captain for the fantastic season his put in on our return to the Premier League, yielding twelve goals. The other side, will see Nolan's move as a step forward for Newcastle United; one more high waged player off the bill and an aging, slow midfielder no longer our responsibility. I stand in-between. I must say I wasn't very disappointed by his move, mainly because I expected it - I knew we were set to offload a lot of players this summer, and Kevin is just the start of it. On the other-hand I am confused. Nolan up until very recently had always praised the NUFC hierarchy in their ambitions, and personally praised Mike Ashley for his recent endeavours at the club. For a man who was sad to leave St. James' Park: it doesn't really make much sense.
 

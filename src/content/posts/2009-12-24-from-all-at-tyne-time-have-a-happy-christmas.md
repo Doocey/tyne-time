@@ -9,7 +9,7 @@ categories:
   - Site
 ---
 
-### Seasons Greetings to all you readers
+### Seasons Greetings to all you readers
 
 As you know it's Christmas Eve and tomorrow is Christmas day. Tyne Time would like to wish all it's readers and every Geordie in the world, from Brazil to Australia, a very very Happy Christmas. I'm sure a lot of things have happened since the last time Christmas was celebrated, some good, some bad. However, for Newcastle United, things have marginally picked up. 10 points clear at the top of the Coca Cola Championship and stability at once is seems. This 'blog in particular has covered stories about Newcastle United ranging from the club being bought by a person who doesn't exist, to their Managing Director running across a football pitch naked, although we didn't cover that story in detail, if you know what I mean.
 
