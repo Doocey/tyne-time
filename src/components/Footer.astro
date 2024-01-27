@@ -3,8 +3,13 @@ type Props = Record<string, never>;
 ---
 
 <footer>
-  &copy; {new Date().getFullYear()} of Kevin Doocey. All images reserved to their
-  respectful owners.
+  <nav>
+    <a href="/">Home</a> &sol;
+    <a href="/about/">About</a> &sol;
+    <a href="/contact/">Contact</a> &sol;
+    <a href="/advertise/">Advertise</a> &sol;
+    <a href="/friends/">Friends</a>
+  </nav>
   <div class="social-links">
     <a href="https://twitter.com/tynetime" target="_blank">
       <span class="sr-only">@TyneTime</span>
@@ -21,6 +26,11 @@ type Props = Record<string, never>;
       >
     </a>
   </div>
+
+  <div>
+    &copy; {new Date().getFullYear()} of Kevin Doocey. All images reserved to their
+    respectful owners.
+  </div>
 </footer>
 
 <style>
@@ -31,14 +41,18 @@ type Props = Record<string, never>;
     text-align: center;
     font-size: 14px;
   }
+
+  a {
+    color: white;
+  }
+
   .social-links {
     display: flex;
     justify-content: center;
     gap: 1em;
-    margin-top: 1em;
+    margin: 1em 0;
   }
   .social-links a {
     text-decoration: none;
-    color: white;
   }
 </style>
