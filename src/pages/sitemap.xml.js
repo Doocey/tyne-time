@@ -15,7 +15,12 @@ export async function GET({ request }) {
     ...new Set(posts.map((post) => post.data.categories).flat())
   ];
 
-  const primaryPages = ["/about/", "/advertise/", "/contact/"];
+  const primaryPages = [
+    "/about/",
+    "/advertise/",
+    "/contact/",
+    "/newcastle-on-tv/"
+  ];
 
   const primaryPagesXmlString = primaryPages.map(
     (page) => `<url>
