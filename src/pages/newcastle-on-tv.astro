@@ -1,0 +1,98 @@
+---
+import BaseLayout from "@layouts/BaseLayout.astro";
+import Hero from "@components/Hero.astro";
+
+const title = "Newcastle United fixtures on TV";
+const description =
+  "A frequently updated list of TV channels across the world showing the next Newcastle United game. If NUFC's fixture is being broadcast live somewhere, it should be here.";
+const image = "/images/nufc-tv-fixtures.png";
+
+const response = await fetch(import.meta.env.TV_FIXTURES_URL);
+const { date, fixture, listings } = await response.json();
+
+const formattedDate = (): string =>
+  `(${new Date(date).toLocaleString("en-GB", {
+    year: "numeric",
+    month: "numeric",
+    day: "numeric",
+    hour: "numeric",
+    minute: "numeric"
+  })})`;
+---
+
+<BaseLayout title={title} description={description} image={image}>
+  <Hero title={title} backgroundImage={image} slot="hero" />
+
+  <p>
+    For supporters around the world who aren't lucky enough to watch Eddie
+    Howe's Black and White Army in the flesh, below is a list of any TV channels
+    broadcasting the Newcastle United game. Updated twice-weekly.
+  </p>
+
+  <p>Feel free to bookmark for future use.</p>
+
+  <h2>
+    {fixture}
+    <span>{formattedDate}</span>
+  </h2>
+
+  {
+    listings.length && (
+      <>
+        <table>
+          <thead>
+            <tbody>
+              {listings.map(({ country, channels }): HTMLTableRowElement => {
+                return (
+                  <tr>
+                    <td>
+                      <strong>
+                        {country.name === "UK" ? "UK & Ireland" : country.name}
+                      </strong>
+                    </td>
+                    <td>
+                      {channels.map((channel: string) => (
+                        <>
+                          {channel} <br />
+                        </>
+                      ))}
+                    </td>
+                  </tr>
+                );
+              })}
+            </tbody>
+          </thead>
+        </table>
+      </>
+    )
+  }
+</BaseLayout>
+
+<style type="text/css">
+  h2 {
+    font-size: 1.3em;
+  }
+
+  span {
+    display: block;
+    font-size: 70%;
+  }
+
+  table {
+    padding: 10px;
+    margin-top: 15px;
+    background: white;
+    border: 2px solid var(--gray-light);
+
+    border-collapse: collapse;
+    max-width: 1000px;
+  }
+
+  table tr:nth-child(odd) {
+    background-color: var(--gray-light);
+  }
+
+  td {
+    padding: 5px 10px;
+  }
+</style>
