@@ -38,8 +38,8 @@ For all the departure talk, there has also been plenty of names linked with an a
 
 Onana has been linked with Arsenal and beyond, and with Everton's financial worries, there will be plenty of teams looking to take advantage of their predicament. The Belgium international only arrived in August 2022, but has proven himself in the rugged Premier League environment.
 
-![Ederson of Seria A side Atalanta](./images/ederson-atalanta.jpeg)
+![Ederson of Serie A side Atalanta](./images/ederson-atalanta.jpeg)
 
-Éderson on the other-hand has long-term admirers in Steve Nickson and co. With talk of a potential departure of Joelinton, it is a move that could spring into action if the club fail to agree a new contract with Big Joe. Spurs have been credited with interest in the Seria A midfielder as recently as today (at the time of writing) and there undoubtedly be others.
+Éderson on the other-hand has long-term admirers in Steve Nickson and co. With talk of a potential departure of Joelinton, it is a move that could spring into action if the club fail to agree a new contract with Big Joe. Spurs have been credited with interest in the Serie A midfielder as recently as today (at the time of writing) and there undoubtedly be others.
 
 The 2024 summer transfer window will be a big one for Newcastle United, as the club move into 'stage two' of post-takeover transition. While it seems inevitable that one big name will leave in a summer sale, we can be certain that those funds will be reinvested to help progress this football club further – something that proved wishful thinking in the era of Mike Ashley.
