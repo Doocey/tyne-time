@@ -2,3 +2,4 @@
 /tag/* /tags/:splat 301
 /page/* / 301
 /author/* / 301
+/index.xml /rss.xml 301
