@@ -43,9 +43,9 @@ Howe voiced his frustration about a disappointing window and rightly so, and one
 
 ## Howe loses allies; Mitchell assured and outspoken
 
-There is no doubt that Howe has lost allies in the boardroom with the departure of Staveley and her partner with the recent reshuffle. Some will argue that is not a good thing and could ultimately kick-of the start of the end for Eddie Howe at Newcastle United. Others will argue that the club and their appointment of Mitchell align it moreso with how top-level football operate nowadays.
+There is no doubt that Howe has lost allies in the boardroom with the departure of Staveley and her partner with the recent reshuffle. Some will argue that is not a good thing and could ultimately kick-off the start of the end for Eddie Howe at Newcastle United. Others will argue that the club and their appointment of Mitchell align it moreso with how top-level football clubs operate nowadays.
 
-In an organised & brooding interview with various media, Mitchell was outspoken about the underwhleming window that passed, and touched on how things are in transition at the club, with much work to be done, particularly when it comes to recruitment.
+In an organised & brooding interview with various media, Mitchell was outspoken about the underwhelming window that passed, and touched on how things are in transition at the club, with much work to be done, particularly when it comes to recruitment.
 
 > "Do we have to look at the way we recruit and scout and also do we have to look where we do? Because the market is complicated and we have seen the impact PSR has had.
 > Should our scouting and recruitment be driven more extensively with a wider-reaching net? Of course, it needs to be and that’s the responsibility of me, the scouting team, the recruitment team and Eddie. To do that, to look at that. Is it fit for purpose?”
