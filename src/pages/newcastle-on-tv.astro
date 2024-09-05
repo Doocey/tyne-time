@@ -32,12 +32,20 @@ const formattedDate = (): string =>
   <p>Feel free to bookmark for future use.</p>
 
   <h2>
-    {fixture}
-    <span>{formattedDate}</span>
+    {
+      listings && date ? (
+        <>
+          {fixture}
+          <span>{formattedDate}</span>
+        </>
+      ) : (
+        ""
+      )
+    }
   </h2>
 
   {
-    listings.length && (
+    listings?.length && (
       <>
         <table>
           <thead>
