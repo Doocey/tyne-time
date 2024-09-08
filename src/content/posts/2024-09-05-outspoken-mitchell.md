@@ -1,6 +1,6 @@
 ---
 title: Outspoken and assured - Paul Mitchell has to deliver for Newcastle United
-date: 2024-09-05T16:58:16.383Z
+date: 2024-09-08T14:18:16.383Z
 description: >-
   The summer window marked an underwhelming recruitment drive at Newcastle United, but new sporting director Paul Mitchell is ready to deliver - or so he says.
 url: /2024/09/paul-mitchell-ready-deliver-newcastle-united/
