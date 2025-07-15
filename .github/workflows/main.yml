@@ -1,4 +1,4 @@
-name: semi-daily-build-netlify
+name: semi-daily-build-cloudflare
 
 on:
   schedule:
@@ -7,6 +7,6 @@ jobs:
   build:
     runs-on: ubuntu-latest
     steps:
-      - name: Trigger Netlify site build
+      - name: Trigger cloudflare site build
         run: |
-          curl -X POST -d '{}' ${{ secrets.NETLIFY_BUILD_HOOK }}
+          curl -X POST -d '{}' ${{ secrets.CF_BUILD_WEBHOOK }}
