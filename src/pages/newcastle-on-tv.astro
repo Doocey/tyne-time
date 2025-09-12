@@ -10,14 +10,14 @@ const image = "/images/nufc-tv-fixtures.png";
 const response = await fetch(import.meta.env.TV_FIXTURES_URL);
 const { date, fixture, listings } = await response.json();
 
-const formattedDate = (): string =>
-  `(${new Date(date).toLocaleString("en-GB", {
-    year: "numeric",
-    month: "numeric",
-    day: "numeric",
-    hour: "numeric",
-    minute: "numeric"
-  })})`;
+const formattedDate = `(${new Date(date).toLocaleString("en-GB", {
+  year: "numeric",
+  month: "numeric",
+  day: "numeric",
+  hour: "numeric",
+  minute: "numeric",
+  timeZone: "Europe/London"
+})})`;
 ---
 
 <BaseLayout title={title} description={description} image={image}>
