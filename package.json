@@ -10,11 +10,11 @@
     "astro": "astro"
   },
   "dependencies": {
-    "@astrojs/rss": "^4.0.2",
-    "@fontsource/pt-serif": "^5.0.18",
-    "astro": "^4.1.3",
-    "astro-social-share": "^1.2.1",
-    "micromark": "^4.0.0"
+    "@astrojs/rss": "^4.0.13",
+    "@fontsource/pt-serif": "^5.2.8",
+    "astro": "^5.15.4",
+    "astro-social-share": "^2.2.0",
+    "micromark": "^4.0.2"
   },
   "devDependencies": {
     "prettier": "^3.2.4",
