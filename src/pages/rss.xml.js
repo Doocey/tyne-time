@@ -3,7 +3,10 @@ import { getCollection } from "astro:content";
 import { SITE_TITLE, SITE_DESCRIPTION } from "../consts";
 
 export async function GET(context) {
-  const posts = await getCollection("posts");
+  const posts = (await getCollection("posts")).sort(
+    (a, b) =>
+      Date.parse(b.data.date.toString()) - Date.parse(a.data.date.toString())
+  );
 
   return rss({
     xmlns: {
